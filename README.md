@@ -4,7 +4,7 @@
 [![](https://img.shields.io/badge/-@seakbz-%23181717?style=flat-square&logo=github)](https://github.com/seakbz)
 [![](https://img.shields.io/website?color=0ab9e6&style=flat-square&up_message=sauanla.com&url=https%3A%2F%2Fsauanla.com)](https://sauanla.com)
 
-𝑰 am fullstack development!
+𝑰 am fullstack Developer!
 
 ## 𝗠𝘆 𝗧𝗲𝗰𝗸 𝗦𝘁𝗮𝗰𝗸
 
