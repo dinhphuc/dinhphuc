@@ -6,7 +6,7 @@
 
 𝑰 am fullstack Developer!
 
-## 𝗠𝘆 𝗧𝗲𝗰𝗸 𝗦𝘁𝗮𝗰𝗸
+## 𝗠𝘆 𝗧𝗲𝗰h
 
 ![NodeJs](https://img.shields.io/badge/-Nodejs-%339933?style=flat-square&logo=node-dot-js&logoColor=ffffff)
 ![C#](https://img.shields.io/badge/-CSharp-%339933?style=flat-square&logo=c-sharp&logoColor=ffffff)
