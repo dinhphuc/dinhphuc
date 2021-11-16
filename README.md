@@ -1,6 +1,9 @@
 ### Hi there 👋
 # 𝗛𝗲𝗹𝗹𝗼 𝗜'𝗺 Sauanla
 
+![visitors](https://visitor-badge.glitch.me/badge?page_id=seakBz.seakBz)
+[<img alt="github" src="https://img.shields.io/badge/github-seakBz-8da0cb?style=for-the-badge&labelColor=555555&logo=github" height="20">](https://github.com/seakBz)
+
 [![](https://img.shields.io/badge/-@seakbz-%23181717?style=flat-square&logo=github)](https://github.com/seakbz)
 [![](https://img.shields.io/website?color=0ab9e6&style=flat-square&up_message=sauanla.com&url=https%3A%2F%2Fsauanla.com)](https://sauanla.com)
 
