@@ -1,10 +1,10 @@
 ### Hi there 👋
 # 𝗛𝗲𝗹𝗹𝗼 𝗜'𝗺 Sauanla
 
-![visitors](https://visitor-badge.glitch.me/badge?page_id=seakBz.seakBz)
-[<img alt="github" src="https://img.shields.io/badge/github-seakBz-8da0cb?style=for-the-badge&labelColor=555555&logo=github" height="20">](https://github.com/seakBz)
+![visitors](https://visitor-badge.glitch.me/badge?page_id=dinhphuc.dinhphuc)
+[<img alt="github" src="https://img.shields.io/badge/github-dinhphuc-8da0cb?style=for-the-badge&labelColor=555555&logo=github" height="20">](https://github.com/dinhphuc)
 
-[![](https://img.shields.io/badge/-@seakbz-%23181717?style=flat-square&logo=github)](https://github.com/seakbz)
+[![](https://img.shields.io/badge/-@dinhphuc-%23181717?style=flat-square&logo=github)](https://github.com/dinhphuc)
 [![](https://img.shields.io/website?color=0ab9e6&style=flat-square&up_message=sauanla.com&url=https%3A%2F%2Fsauanla.com)](https://sauanla.com)
 
 𝑰 am fullstack Developer!
@@ -30,7 +30,7 @@
 
 ## 𝗦𝘁𝗮𝘁𝘀
 
-![seakbz's github stats](https://github-readme-stats.vercel.app/api?username=seakbz&show_icons=true&theme=dracula)
+![dinhphuc's github stats](https://github-readme-stats.vercel.app/api?username=dinhphuc&show_icons=true&theme=dracula)
 
  
 
