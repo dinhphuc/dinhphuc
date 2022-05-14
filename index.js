@@ -29,12 +29,12 @@ const generate = async () => {
   const lastIndex = content.indexOf("⚡");
   if (lastIndex !== -1) {
     let subContent = content.substring(0, lastIndex);
-    subContent += `⚡ Quote: \n**${quote}**_\n\n${author}`
+    subContent += `⚡ Quote: \n**${quote}**\n\n${author}`
     fs.writeFileSync("README.md", subContent);
     return;
   }
 
-  fs.appendFileSync("README.md", `⚡ Quote: \n**${quote}**_\n\n${author}`);
+  fs.appendFileSync("README.md", `⚡ Quote: \n**${quote}**\n\n${author}`);
 };
 
 generate();
