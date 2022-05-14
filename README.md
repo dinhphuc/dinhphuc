@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Opportunities to find deeper powers within ourselves come when life seems most challenging.**
+**Don't wish it were easier. Wish you were better.**
 
-Joseph Campbell
+Jim Rohn
