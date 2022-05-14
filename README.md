@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only thing worse than starting something and failing... is not starting something.**
+**People are just as happy as they make up their minds to be.**
 
-Seth Godin
+Abraham Lincoln
