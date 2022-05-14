@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Teachers open the door; you enter by yourself.**
+**You have purpose.**
 
-Chinese Proverb
+Anonymous
