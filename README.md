@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter where you are on your journey, that's exactly where you need to be.**
+**The reputation of a thousand years may be determined by the conduct of one hour.**
 
-Oprah Winfrey
+Japanese Proverb
