@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We are what we repeatedly do. Excellence, then, is not an act, but a habit.**
+**The only thing worse than starting something and failing... is not starting something.**
 
-Aristotle
+Seth Godin
