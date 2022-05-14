@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter where you are on your journey, that's exactly where you need to be.**
+**Maybe it won't work out. But maybe seeing if it does will be the best adventure ever.**
 
-Oprah Winfrey
+Anonymous
