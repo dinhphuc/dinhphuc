@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you believe it, the mind can achieve it.**
+**It is only possible to live happily ever after on a daily basis.**
 
-Ronnie Lott
+Anonymous
