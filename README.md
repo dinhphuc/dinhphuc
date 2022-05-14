@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A house is made of bricks and beams. A home is made of hopes and dreams.**
+**Always two there are, no more, no less. A master and an apprentice.**
 
-Anonymous
+Yoda
