@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**People are just as happy as they make up their minds to be.**
+**You may never know what results come of your actions, but if you do nothing, there will be no results.**
 
-Abraham Lincoln
+Mahatma Gandhi
