@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always two there are, no more, no less. A master and an apprentice.**
+**Life is either a daring adventure or nothing at all.**
 
-Yoda
+Helen Keller
