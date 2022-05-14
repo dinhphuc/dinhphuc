@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Climb the mountains to see lowlands.**
+**The difference between the impossible and the possible lies in a person's determination.**
 
-Chinese Proverb
+Tommy Lasorda
