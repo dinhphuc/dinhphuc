@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You may never know what results come of your actions, but if you do nothing, there will be no results.**
+**Do something today that your future self will thank you for.**
 
-Mahatma Gandhi
+Anonymous
