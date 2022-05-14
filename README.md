@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Try to be a rainbow in someone's cloud.**
+**We are what we repeatedly do. Excellence, then, is not an act, but a habit.**
 
-Maya Angelou
+Aristotle
