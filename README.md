@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Successful people are not gifted; they just work hard, then succeed on purpose.**
+**If you believe it, the mind can achieve it.**
 
-G.K. Nielson
+Ronnie Lott
