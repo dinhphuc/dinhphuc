@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The more you praise and celebrate your life, the more there is in life to celebrate.**_
+**You yourself, as much as anybody in the entire universe, deserve your love and affection.**
 
-Oprah Winfrey
+Buddha
