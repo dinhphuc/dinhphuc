@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do something today that your future self will thank you for.**
+**Until you're broken, you don't know what you're made of.**
 
 Anonymous
