@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You yourself, as much as anybody in the entire universe, deserve your love and affection.**
+**Opportunities to find deeper powers within ourselves come when life seems most challenging.**
 
-Buddha
+Joseph Campbell
