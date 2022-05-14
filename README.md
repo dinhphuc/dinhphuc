@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is either a daring adventure or nothing at all.**
+**No matter where you are on your journey, that's exactly where you need to be.**
 
-Helen Keller
+Oprah Winfrey
