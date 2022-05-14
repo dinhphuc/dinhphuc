@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Until you're broken, you don't know what you're made of.**
+**Successful people are not gifted; they just work hard, then succeed on purpose.**
 
-Anonymous
+G.K. Nielson
