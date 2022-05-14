@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The reputation of a thousand years may be determined by the conduct of one hour.**
+**Climb the mountains to see lowlands.**
 
-Japanese Proverb
+Chinese Proverb
