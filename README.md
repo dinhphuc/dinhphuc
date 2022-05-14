@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't wish it were easier. Wish you were better.**
+**Teachers open the door; you enter by yourself.**
 
-Jim Rohn
+Chinese Proverb
