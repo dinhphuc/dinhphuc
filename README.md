@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is only possible to live happily ever after on a daily basis.**
+**A house is made of bricks and beams. A home is made of hopes and dreams.**
 
 Anonymous
