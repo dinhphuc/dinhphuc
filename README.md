@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You have purpose.**
+**Try to be a rainbow in someone's cloud.**
 
-Anonymous
+Maya Angelou
