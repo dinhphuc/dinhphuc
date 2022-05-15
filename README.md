@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength isn't about how much you can handle before you break. It's about how much you can endure after you've been broken.**
+**It's not what you look at that matters, it's what you see.**
 
-Anonymous
+Henry David Thoreau
