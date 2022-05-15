@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is only one corner of the universe you can be certain of improving, and that's your own self.**
+**Be strong now, because things will get better. It might be stormy now, but it can't rain forever.**
 
-Aldous Huxley
+Anonymous
