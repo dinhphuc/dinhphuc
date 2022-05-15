@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**An attitude of positive expectation is the mark of the superior personality.**
+**Everyone is breakable, but not everyone is aware that it's a choice to stay broken.**
 
-Brian Tracy
+Stanley Behrman
