@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is what happens when you're busy making other plans.**
+**Today you are you! That is truer than true! There is no one alive who is you-er than you!**
 
-John Lennon
+Dr. Seuss
