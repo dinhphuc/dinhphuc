@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Surround yourself with only people who are going to lift you higher.**
+**Life is what happens when you're busy making other plans.**
 
-Oprah
+John Lennon
