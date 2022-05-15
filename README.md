@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**My attitude is if you push me towards a weakness, I will turn that weakness into a strength.**
+**The first place where self-esteem begins its journey is within us.**
 
-Michael Jordan
+Stephen Richards
