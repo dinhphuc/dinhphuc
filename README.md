@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Some people ask me 'How to be happy' and my answer is always the same: just be happy!**
+**Sometimes you face difficulties not because you're doing something wrong but because you're doing something right.**
 
 Anonymous
