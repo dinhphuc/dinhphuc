@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are willing to do more than you are paid to do, eventually you will be paid to do more than you do.**
+**One of the simplest ways to be happy is letting go of the things that make you sad.**
 
 Anonymous
