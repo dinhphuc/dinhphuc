@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Walk on with hope in your heart, and you'll never walk alone.**
+**Everyone is breakable, but not everyone is aware that it's a choice to stay broken.**
 
-Shah Rukh Khan
+Stanley Behrman
