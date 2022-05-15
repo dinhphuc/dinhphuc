@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not what you look at that matters, it's what you see.**
+**There may be people that have more talent than you, but theres no excuse for anyone to work harder than you.**
 
-Henry David Thoreau
+Derek Jeter
