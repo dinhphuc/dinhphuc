@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You were born to win. But to be a winner, you must plan to win, prepare to win, and expect to win.**
+**If you are willing to do more than you are paid to do, eventually you will be paid to do more than you do.**
 
-Zig Ziglar
+Anonymous
