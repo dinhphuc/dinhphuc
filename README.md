@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Surround yourself with only people who are going to lift you higher.**
+**If you don't love what you do, you won't do it with much conviction or passion.**
 
-Oprah
+Mia Hamm
