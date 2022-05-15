@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everyone is breakable, but not everyone is aware that it's a choice to stay broken.**
+**Always two there are, no more, no less. A master and an apprentice.**
 
-Stanley Behrman
+Yoda
