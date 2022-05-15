@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Running is therapy anyone can afford.**
+**The biggest adventure you can take is to live the life of your dreams.**
 
-Toni Sorenson
+Oprah Winfrey
