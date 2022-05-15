@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between the impossible and the possible lies in a person's determination.**
+**Every next level of your life will demand a different version of you.**
 
-Tommy Lasorda
+Anonymous
