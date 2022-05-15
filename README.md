@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The biggest adventure you can take is to live the life of your dreams.**
+**My attitude is if you push me towards a weakness, I will turn that weakness into a strength.**
 
-Oprah Winfrey
+Michael Jordan
