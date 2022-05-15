@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile, and let the world wonder why.**
+**Running is therapy anyone can afford.**
 
-Minnie Mouse
+Toni Sorenson
