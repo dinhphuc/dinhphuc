@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There may be people that have more talent than you, but theres no excuse for anyone to work harder than you.**
+**You were born to win. But to be a winner, you must plan to win, prepare to win, and expect to win.**
 
-Derek Jeter
+Zig Ziglar
