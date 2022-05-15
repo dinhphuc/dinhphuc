@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The first place where self-esteem begins its journey is within us.**
+**Strength isn't about how much you can handle before you break. It's about how much you can endure after you've been broken.**
 
-Stephen Richards
+Anonymous
