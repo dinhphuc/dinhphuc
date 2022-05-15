@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every next level of your life will demand a different version of you.**
+**There is only one corner of the universe you can be certain of improving, and that's your own self.**
 
-Anonymous
+Aldous Huxley
