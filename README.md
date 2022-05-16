@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are what you do, not what you say you'll do.**
+**Every day may not be good... but there's something good in every day.**
 
-Anonymous
+Alice Morse Earle
