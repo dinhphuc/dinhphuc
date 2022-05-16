@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Trust the process of life.**
+**One small positive thought in the morning can change your whole day.**
 
 Anonymous
