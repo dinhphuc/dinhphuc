@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When we help ourselves, we find moments of happiness. When we help others, we find lasting fulfillment.**
+**There are no mistakes, only lessons. Growth is a process of trial and error.**
 
-Simon Sinek
+Anonymous
