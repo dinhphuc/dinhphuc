@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**More smiling, less worrying. More compassion, less judgment. More blessed, less stressed. More love, less hate.**
+**Dream big. Start small. But most of all, start.**
 
-Roy T. Bennett
+Simon Sinek
