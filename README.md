@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every day may not be good... but there's something good in every day.**
+**Nothing is impossible, the word itself says "I'm possible"!**
 
-Alice Morse Earle
+Audrey Hepburn
