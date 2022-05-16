@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Dream big. Start small. But most of all, start.**
+**Doing what you like is freedom. Liking what you do is happiness.**
 
-Simon Sinek
+Anonymous
