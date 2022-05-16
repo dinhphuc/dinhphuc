@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The trophy is earned in the hours that no one is watching.**
+**When you want to succeed as bad as you want to breathe, you will be successful.**
 
-Anonymous
+Eric Thomas
