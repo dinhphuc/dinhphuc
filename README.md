@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing builds self-esteem and self-confidence like accomplishment.**
+**We are all in the gutter, but some of us are looking at the stars.**
 
-Thomas Carlyle
+Oscar Wilde
