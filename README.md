@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything you've ever wanted is on the other side of fear.**
+**If you want to go fast, go alone. If you want to go far, go together.**
 
-George Addair
+African Proverb
