@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't think about what might go wrong. Think about what might go right.**
+**When we help ourselves, we find moments of happiness. When we help others, we find lasting fulfillment.**
 
-Anonymous
+Simon Sinek
