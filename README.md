@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One small positive thought in the morning can change your whole day.**
+**Don't think about what might go wrong. Think about what might go right.**
 
 Anonymous
