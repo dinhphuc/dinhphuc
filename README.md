@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Learning never exhausts the mind.**
+**Hustle until your haters ask if you are hiring.**
 
-Leonardo da Vinci
+Anonymous
