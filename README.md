@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Instead of feeding myself excuses why I can't, I give myself reasons why I can.**
+**Every strike brings me closer to the next home run.**
 
-Anonymous
+Babe Ruth
