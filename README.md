@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hustle until your haters ask if you are hiring.**
+**Someone who is busier than you is running right now.**
 
-Anonymous
+Nike
