@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every strike brings me closer to the next home run.**
+**When you stop chasing the wrong things you give the right things a chance to catch you.**
 
-Babe Ruth
+Anonymous
