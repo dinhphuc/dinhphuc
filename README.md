@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are no mistakes, only lessons. Growth is a process of trial and error.**
+**Everything you've ever wanted is on the other side of fear.**
 
-Anonymous
+George Addair
