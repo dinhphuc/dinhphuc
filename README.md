@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every strike brings me closer to the next home run.**
+**Don't just glov, dazzle.**
 
-Babe Ruth
+Anonymous
