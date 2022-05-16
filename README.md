@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is a magical ride. Enjoy every moment.**
+**Learning never exhausts the mind.**
 
-Anonymous
+Leonardo da Vinci
