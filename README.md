@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Doing what you like is freedom. Liking what you do is happiness.**
+**Life is a magical ride. Enjoy every moment.**
 
 Anonymous
