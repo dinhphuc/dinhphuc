@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to go fast, go alone. If you want to go far, go together.**
+**It is only possible to live happily ever after on a daily basis.**
 
-African Proverb
+Anonymous
