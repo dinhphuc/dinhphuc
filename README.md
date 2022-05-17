@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Before you score, you first must have a goal.**
+**When things are bad, remember: it won't always be this way. Take one day at a time.**
 
-Greek Proverb
+Anonymous
