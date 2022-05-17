@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest discovery of all time is that a person can change their future by merely changing their attitude.**
+**Everyone is breakable, but not everyone is aware that it's a choice to stay broken.**
 
-Oprah Winfrey
+Stanley Behrman
