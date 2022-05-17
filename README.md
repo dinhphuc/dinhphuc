@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you depersonalize abrasive behavior and see it as a call for help you become a catalyst for the best kind of change.**
+**Doubt kills more dreams than failure ever will.**
 
-Marilyn Suttle
+Suzy Kassem
