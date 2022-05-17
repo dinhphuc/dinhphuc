@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Successful people are not gifted; they just work hard, then succeed on purpose.**
+**Don't worry about failure; you only have to be right once.**
 
-G.K. Nielson
+Drew Houston
