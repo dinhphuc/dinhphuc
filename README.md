@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**My attitude is if you push me towards a weakness, I will turn that weakness into a strength.**
+**Do or do not. There is no try.**
 
-Michael Jordan
+Yoda
