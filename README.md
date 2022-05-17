@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We are all in the gutter, but some of us are looking at the stars.**
+**Life is what happens when you're busy making other plans.**
 
-Oscar Wilde
+John Lennon
