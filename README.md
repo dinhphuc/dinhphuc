@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**And in the end, the love you take, is equal to the love you make.**
+**Friends show their love in times of trouble, not in happiness.**
 
-The Beatles
+Euripides
