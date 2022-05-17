@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You may say I'm a dreamer but I'm not the only one.**
+**The wise listens to her mind, the foolish to the mob.**
 
-John Lennon
+Chinese Proverb
