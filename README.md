@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Champions play to win. Failure is just feedback. There's everything to gain by trying your best.**
+**Simple to open a shop; another thing to keep it open.**
 
-Jim Afremow
+Chinese Proverb
