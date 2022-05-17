@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Friends show their love in times of trouble, not in happiness.**
+**Why worry? If you've done the very best you can, worrying won't make it any better.**
 
-Euripides
+Walt Disney
