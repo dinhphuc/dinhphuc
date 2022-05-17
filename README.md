@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The things you regret most in life are the risks you didn't take.**
+**Champions play to win. Failure is just feedback. There's everything to gain by trying your best.**
 
-Anonymous
+Jim Afremow
