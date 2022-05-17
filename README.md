@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We become what we think about.**
+**Our greatest ability as humans is not to change the world; but to change ourselves.**
 
-Earl Nightingale
+Mahatma Gandhi
