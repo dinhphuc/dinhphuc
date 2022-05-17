@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**People will see you the way you see yourself.**
+**When you depersonalize abrasive behavior and see it as a call for help you become a catalyst for the best kind of change.**
 
-Sergio Diaz
+Marilyn Suttle
