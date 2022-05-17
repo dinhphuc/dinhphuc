@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Why worry? If you've done the very best you can, worrying won't make it any better.**
+**There is no shame in not knowing; the shame lies in not finding out.**
 
-Walt Disney
+Russian Proverb
