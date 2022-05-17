@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest ability as humans is not to change the world; but to change ourselves.**
+**Successful people are not gifted; they just work hard, then succeed on purpose.**
 
-Mahatma Gandhi
+G.K. Nielson
