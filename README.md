@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The wise listens to her mind, the foolish to the mob.**
+**The things you regret most in life are the risks you didn't take.**
 
-Chinese Proverb
+Anonymous
