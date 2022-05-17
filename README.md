@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is what happens when you're busy making other plans.**
+**People will see you the way you see yourself.**
 
-John Lennon
+Sergio Diaz
