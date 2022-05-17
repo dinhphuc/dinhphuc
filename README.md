@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always be yourself and have faith in yourself. Do not go out and look for a successful personality and try to duplicate it.**
+**The trophy is earned in the hours that no one is watching.**
 
-Bruce Lee
+Anonymous
