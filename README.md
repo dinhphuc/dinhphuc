@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest discovery of all time is that a person can change their future by merely changing their attitude.**
+**Before you score, you first must have a goal.**
 
-Oprah Winfrey
+Greek Proverb
