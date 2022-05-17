@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Simple to open a shop; another thing to keep it open.**
+**You fail because you don't believe.**
 
-Chinese Proverb
+Yoda
