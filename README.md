@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I never dreamed about success. I worked for it.**
+**Why worry? If you've done the very best you can, worrying won't make it any better.**
 
-Estee Lauder
+Walt Disney
