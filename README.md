@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't worry about failure; you only have to be right once.**
+**Happens to every guy sometimes this does.**
 
-Drew Houston
+Yoda
