@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no shame in not knowing; the shame lies in not finding out.**
+**Being entirely honest with oneself is a good exercise.**
 
-Russian Proverb
+Sigmund Freud
