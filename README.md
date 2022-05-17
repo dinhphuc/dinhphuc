@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You fail because you don't believe.**
+**The greatest discovery of all time is that a person can change their future by merely changing their attitude.**
 
-Yoda
+Oprah Winfrey
