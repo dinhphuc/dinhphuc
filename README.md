@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Being entirely honest with oneself is a good exercise.**
+**You may say I'm a dreamer but I'm not the only one.**
 
-Sigmund Freud
+John Lennon
