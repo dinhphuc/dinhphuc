@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do or do not. There is no try.**
+**And in the end, the love you take, is equal to the love you make.**
 
-Yoda
+The Beatles
