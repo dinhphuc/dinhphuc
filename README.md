@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The pain you feel today will be the strength you feel tomorrow.**
+**There is no cosmetic for beauty like happiness.**
 
-Anonymous
+Maria Mitchell
