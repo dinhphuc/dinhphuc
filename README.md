@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Wake up every morning with the thought that something wonderful is about to happen.**
+**Work hard in silence. Let success make the noise.**
 
 Anonymous
