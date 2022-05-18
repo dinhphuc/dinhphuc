@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Accept yourself, love yourself, and keep moving forward.**
+**You can't always control what goes on outside, but you can always control what goes on inside.**
 
-Roy T. Bennett
+Wayne Dyer
