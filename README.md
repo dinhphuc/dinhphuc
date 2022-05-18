@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You deserve to be happy. You deserve to live a life you are excited about. Don't let others make you forget that.**
+**For every minute you are angry you lose sixty seconds of happiness.**
 
-Anonymous
+Ralph Waldo Emerson
