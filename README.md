@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Accept yourself, love yourself, and keep moving forward.**
+**Don't criticize, condemn or complain.**
 
-Roy T. Bennett
+Dale Carnegie
