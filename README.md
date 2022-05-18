@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm not here to be average, I'm here to be awesome.**
+**When it gets difficult is often right before you succeed.**
 
-Anonymous
+Jeffrey Walker
