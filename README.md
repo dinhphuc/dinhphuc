@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no cosmetic for beauty like happiness.**
+**A teacher is better than two books.**
 
-Maria Mitchell
+German Proverb
