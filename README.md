@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't criticize, condemn or complain.**
+**Learn to be thankful for what you already have, while you pursue all that you want.**
 
-Dale Carnegie
+Jim Rohn
