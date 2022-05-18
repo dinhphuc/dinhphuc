@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is short, and it is up to you to make it sweet.**
+**I'm not here to be average, I'm here to be awesome.**
 
-Sarah Louise Delany
+Anonymous
