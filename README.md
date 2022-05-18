@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never stop believing in hope because miracles happen everyday.**
+**Whatever you decide to do, make sure it makes you happy.**
 
 Anonymous
