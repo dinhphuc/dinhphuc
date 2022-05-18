@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Learn to be thankful for what you already have, while you pursue all that you want.**
+**Strength isn't about how much you can handle before you break. It's about how much you can endure after you've been broken.**
 
-Jim Rohn
+Anonymous
