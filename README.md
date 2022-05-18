@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.**
+**Nothing will work unless you do.**
 
-William Arthur Ward
+Maya Angelou
