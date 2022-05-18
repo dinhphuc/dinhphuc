@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing will work unless you do.**
+**The pain you feel today will be the strength you feel tomorrow.**
 
-Maya Angelou
+Anonymous
