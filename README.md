@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Attitude will always define who we are in life.**
+**Nothing will work unless you do.**
 
-Mark A. Brennan
+Maya Angelou
