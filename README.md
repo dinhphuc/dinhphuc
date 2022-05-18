@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You have to fight through some bad days to earn the best days of your life.**
+**Only a life lived for others is a life worthwhile.**
 
-Anonymous
+Albert Einstein
