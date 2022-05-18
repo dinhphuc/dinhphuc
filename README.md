@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only a life lived for others is a life worthwhile.**
+**Never stop believing in hope because miracles happen everyday.**
 
-Albert Einstein
+Anonymous
