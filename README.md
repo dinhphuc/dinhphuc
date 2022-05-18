@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always deliver more than expected.**
+**Accept yourself, love yourself, and keep moving forward.**
 
-Larry Page
+Roy T. Bennett
