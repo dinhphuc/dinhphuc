@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't always control what goes on outside, but you can always control what goes on inside.**
+**Wake up every morning with the thought that something wonderful is about to happen.**
 
-Wayne Dyer
+Anonymous
