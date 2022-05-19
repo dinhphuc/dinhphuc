@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Dream without fear. Love without limits.**
+**All things equal, people will do business with, and refer business to, people they know trust and like.**
 
-Dilip Bathija
+Bob Burg
