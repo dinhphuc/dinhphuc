@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Patience you must have, my young padawan.**
+**The only time you fail is when you fall down and stay down.**
 
-Yoda
+Stephen Richards
