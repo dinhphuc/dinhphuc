@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you feel like giving up, just look back on how far you are already.**
+**Not all those who wander are lost.**
 
-Anonymous
+J. R. R. Tolkien
