@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Take it all one day at a time and enjoy the journey.**
+**Your positive action combined with positive thinking results in success.**
 
-Kristi Bartlett
+Anonymous
