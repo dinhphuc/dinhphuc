@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are not willing to risk the usual, you will have to settle for the ordinary.**
+**Not all those who wander are lost.**
 
-Jim Rohn
+J. R. R. Tolkien
