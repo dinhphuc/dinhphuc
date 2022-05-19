@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Go confidently in the direction of your dreams! Live the life you've imagined.**
+**Look for something positive in each day, even if some days you have to look a little harder.**
 
-Henry David Thoreau
+Anonymous
