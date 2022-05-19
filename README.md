@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Work hard in silence. Let success make the noise.**
+**Strive not to be a success, but rather to be of value.**
 
-Anonymous
+Albert Einstein
