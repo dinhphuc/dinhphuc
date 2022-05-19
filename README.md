@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strive not to be a success, but rather to be of value.**
+**Be happy. It really annoys negative people.**
 
-Albert Einstein
+Ricky Gervais
