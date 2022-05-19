@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Impossible is nothing.**
+**Take it all one day at a time and enjoy the journey.**
 
-Muhammad Ali
+Kristi Bartlett
