@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your positive action combined with positive thinking results in success.**
+**The sun itself is weak when it first rises, and gathers strength and courage as the day gets on.**
 
-Anonymous
+Charles Dickens
