@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's gonna get harder before it gets easier. But it will get better, you just gotta make it through the hard stuff first.**
+**We are made to persist. That's how we find out who we are.**
 
-Anonymous
+Tobias Wolff
