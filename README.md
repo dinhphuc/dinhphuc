@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Not all those who wander are lost.**
+**Rise up. Start fresh. See the bright opportunity in each new day.**
 
-J. R. R. Tolkien
+Anonymous
