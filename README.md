@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We are made to persist. That's how we find out who we are.**
+**Nurture your mind with great thoughts, for you will never go any higher than you think.**
 
-Tobias Wolff
+Benjamin Disraeli
