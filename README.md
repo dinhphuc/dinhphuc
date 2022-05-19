@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The sun itself is weak when it first rises, and gathers strength and courage as the day gets on.**
+**You walk through life much easier with a smile on your face.**
 
-Charles Dickens
+Sweet Paul
