@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The sun itself is weak when it first rises, and gathers strength and courage as the day gets on.**
+**No marathon gets easier later. The halfway point only marks the end of the beginning.**
 
-Charles Dickens
+Joe Henderson
