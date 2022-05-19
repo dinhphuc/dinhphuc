@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Beauty begins the moment you decide to be yourself.**
+**Go confidently in the direction of your dreams! Live the life you've imagined.**
 
-Coco Chanel
+Henry David Thoreau
