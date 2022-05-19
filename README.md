@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only time you fail is when you fall down and stay down.**
+**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
 
-Stephen Richards
+Anonymous
