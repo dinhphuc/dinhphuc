@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Look for something positive in each day, even if some days you have to look a little harder.**
+**If you feel like giving up, just look back on how far you are already.**
 
 Anonymous
