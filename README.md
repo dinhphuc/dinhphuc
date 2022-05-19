@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No marathon gets easier later. The halfway point only marks the end of the beginning.**
+**Don't give up on yourself. You're worth it.**
 
-Joe Henderson
+Anonymous
