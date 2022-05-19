@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence comes from discipline and training.**
+**When it gets difficult is often right before you succeed.**
 
-Robert Kiyosaki
+Jeffrey Walker
