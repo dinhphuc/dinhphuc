@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Rise up. Start fresh. See the bright opportunity in each new day.**
+**One who moves a mountain begins by carrying away small stones.**
 
-Anonymous
+Confucius
