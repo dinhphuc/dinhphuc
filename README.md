@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Successful people have fear, successful people have doubts, and successful people have worries. They just don't let these feelings stop them.**
+**All things equal, people will do business with, and refer business to, people they know trust and like.**
 
-T. Harv Eker
+Bob Burg
