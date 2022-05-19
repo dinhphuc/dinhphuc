@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One who moves a mountain begins by carrying away small stones.**
+**Confidence comes from discipline and training.**
 
-Confucius
+Robert Kiyosaki
