@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be happy. It really annoys negative people.**
+**Patience you must have, my young padawan.**
 
-Ricky Gervais
+Yoda
