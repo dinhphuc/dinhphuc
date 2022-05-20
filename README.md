@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Age is whatever you think it is. You are as old as you think you are.**
+**The key to being happy is knowing you have the power to choose what to accept and what to let go.**
 
-Muhammad Ali
+Anonymous
