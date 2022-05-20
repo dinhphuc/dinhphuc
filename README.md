@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When it gets difficult is often right before you succeed.**
+**When you stop chasing the wrong things you give the right things a chance to catch you.**
 
-Jeffrey Walker
+Anonymous
