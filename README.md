@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be crazy. Be stupid. Be silly. Be weird. Be whatever. Because life is too short to be anything but happy.**
+**Strength grows in the moments when you think you can't go on but you keep going anyway.**
 
 Anonymous
