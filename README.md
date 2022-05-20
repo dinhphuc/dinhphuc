@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't want to look back and know you could have done better.**
+**When we help ourselves, we find moments of happiness. When we help others, we find lasting fulfillment.**
 
-Anonymous
+Simon Sinek
