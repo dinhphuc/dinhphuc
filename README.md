@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**And in the end, the love you take, is equal to the love you make.**
+**Smiling doesn't necessarily mean you're happy. Sometimes it just means you're strong.**
 
-The Beatles
+Anonymous
