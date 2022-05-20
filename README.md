@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One who moves a mountain begins by carrying away small stones.**
+**And in the end, the love you take, is equal to the love you make.**
 
-Confucius
+The Beatles
