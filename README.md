@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When we help ourselves, we find moments of happiness. When we help others, we find lasting fulfillment.**
+**Patience you must have, my young padawan.**
 
-Simon Sinek
+Yoda
