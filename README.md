@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every champion was once a contender that refused to give up.**
+**Never give up, stay focused, stay positive, stay strong.**
 
-Rocky Balboa
+Anonymous
