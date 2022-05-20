@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Spend your life with people who make you smile, laugh, and feel loved.**
+**Never give up, stay focused, stay positive, stay strong.**
 
-Roy T. Bennett
+Anonymous
