@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not so much that I began to run, but that I continued.**
+**Spend your life with people who make you smile, laugh, and feel loved.**
 
-Hal Higdon
+Roy T. Bennett
