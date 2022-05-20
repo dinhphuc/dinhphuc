@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**My heart is always open to love.**
+**Whatever you decide to do, make sure it makes you happy.**
 
 Anonymous
