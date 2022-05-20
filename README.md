@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Feel the force!**
+**Life is never fair, and perhaps it is a good thing for most of us that it is not.**
 
-Yoda
+Oscar Wilde
