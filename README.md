@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**How wonderful it is that nobody need wait a single moment before starting to improve the world.**
+**People will see you the way you see yourself.**
 
-Anne Frank
+Sergio Diaz
