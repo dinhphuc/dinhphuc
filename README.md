@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Words may inspire but only action creates change.**
+**It's not so much that I began to run, but that I continued.**
 
-Simon Sinek
+Hal Higdon
