@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously.**
+**Believe in yourself and you can be anything.**
 
-Steve Maraboli
+Katy Perry
