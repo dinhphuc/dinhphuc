@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Patience you must have, my young padawan.**
+**Age is whatever you think it is. You are as old as you think you are.**
 
-Yoda
+Muhammad Ali
