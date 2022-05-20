@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Optimism is a happiness magnet. If you stay positive, good things and good people will be drawn to you.**
+**Spend your life with people who make you smile, laugh, and feel loved.**
 
-Mary Lou Retton
+Roy T. Bennett
