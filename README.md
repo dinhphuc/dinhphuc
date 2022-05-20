@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is never fair, and perhaps it is a good thing for most of us that it is not.**
+**Words may inspire but only action creates change.**
 
-Oscar Wilde
+Simon Sinek
