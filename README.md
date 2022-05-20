@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Spend your life with people who make you smile, laugh, and feel loved.**
+**Optimism is a happiness magnet. If you stay positive, good things and good people will be drawn to you.**
 
-Roy T. Bennett
+Mary Lou Retton
