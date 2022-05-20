@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You're off to great places, today is your day. Your mountain is waiting, so get on your way.**
+**One who moves a mountain begins by carrying away small stones.**
 
-Dr. Seuss
+Confucius
