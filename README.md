@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are stronger than you think.**
+**Be crazy. Be stupid. Be silly. Be weird. Be whatever. Because life is too short to be anything but happy.**
 
 Anonymous
