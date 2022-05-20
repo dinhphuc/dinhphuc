@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe in yourself and you can be anything.**
+**How wonderful it is that nobody need wait a single moment before starting to improve the world.**
 
-Katy Perry
+Anne Frank
