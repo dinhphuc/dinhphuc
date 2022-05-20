@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smiling doesn't necessarily mean you're happy. Sometimes it just means you're strong.**
+**Be happy not because everything is good, but because you can see the good side of everything.**
 
 Anonymous
