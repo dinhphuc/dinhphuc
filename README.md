@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength grows in the moments when you think you can't go on but you keep going anyway.**
+**If one dream should fall and break into a thousand pieces, never be afraid to pick one of those pieces up and begin again.**
 
-Anonymous
+Flavia Weedn
