@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Optimism is a happiness magnet. If you stay positive, good things and good people will be drawn to you.**
+**Confidence is the ability to feel beautiful, without needing someone to tell you.**
 
-Mary Lou Retton
+Anonymous
