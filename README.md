@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you see in yourself is what you see in the world.**
+**Wherever you go, no matter what the weather, always bring your own sunshine.**
 
-Afghan Proverb
+Anthony J. D'Angelo
