@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up. You only get one life. Go for it.**
+**Optimism is a happiness magnet. If you stay positive, good things and good people will be drawn to you.**
 
-Richard E. Grant
+Mary Lou Retton
