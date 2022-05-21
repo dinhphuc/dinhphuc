@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Float like a butterfly, sting like a bee.**
+**Even the smallest shift in perspective can bring about the greatest healing.**
 
-Muhammad Ali
+Joshua Kai
