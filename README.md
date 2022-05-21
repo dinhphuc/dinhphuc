@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no better than adversity. Every defeat, every heartbreak, every loss, contains its own seed, its own lesson on how to improve your performance the next time.**
+**I don't make excuses. I make results.**
 
-Malcolm X
+Anonymous
