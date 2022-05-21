@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good, better, best. Never let it rest. Until your good is better and your better is best.**
+**Happiness is not out there, it's in you.**
 
-Tim Duncan
+Anonymous
