@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Float like a butterfly, sting like a bee.**
+**One day you will wake up and there won't be any time to do the things you've always wanted to do. Do it now.**
 
-Muhammad Ali
+Paulo Coelho
