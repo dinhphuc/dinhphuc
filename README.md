@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence is the ability to feel beautiful, without needing someone to tell you.**
+**Wake up every morning with the thought that something wonderful is about to happen.**
 
 Anonymous
