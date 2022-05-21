@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot fail at being yourself.**
+**Nobody who ever gave their best regretted it.**
 
-Wayne Dyer
+George Halas
