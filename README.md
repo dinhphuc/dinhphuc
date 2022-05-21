@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All our dreams can come true, if we have the courage to pursue them.**
+**If you get tired, learn to rest, not quit.**
 
-Walt Disney
+Anonymous
