@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One day you will wake up and there won't be any time to do the things you've always wanted to do. Do it now.**
+**We are all in the gutter, but some of us are looking at the stars.**
 
-Paulo Coelho
+Oscar Wilde
