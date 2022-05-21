@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do not blame the world. Find a solution.**
+**Never give up. You only get one life. Go for it.**
 
-Sri Chinmoy
+Richard E. Grant
