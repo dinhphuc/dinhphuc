@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Surround yourself with only people who are going to lift you higher.**
+**Success usually comes to those who are too busy to be looking for it.**
 
-Oprah
+Henry David Thoreau
