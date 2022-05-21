@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success usually comes to those who are too busy to be looking for it.**
+**Smile in the mirror. Do that every morning and you'll start to see a big difference in your life.**
 
-Henry David Thoreau
+Yoko Ono
