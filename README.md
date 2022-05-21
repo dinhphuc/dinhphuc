@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Wake up every morning with the thought that something wonderful is about to happen.**
+**Failure will never overtake me if my determination to succeed is strong enough.**
 
-Anonymous
+Og Mandino
