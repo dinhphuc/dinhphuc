@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you see in yourself is what you see in the world.**
+**Good, better, best. Never let it rest. Until your good is better and your better is best.**
 
-Afghan Proverb
+Tim Duncan
