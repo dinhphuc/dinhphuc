@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The more grateful I am, the more beauty I see.**
+**Surround yourself with only people who are going to lift you higher.**
 
-Mary Davis
+Oprah
