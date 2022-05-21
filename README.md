@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A leader is one who knows the way, goes the way, and shows the way.**
+**The more grateful I am, the more beauty I see.**
 
-John C. Maxwell
+Mary Davis
