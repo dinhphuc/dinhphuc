@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure will never overtake me if my determination to succeed is strong enough.**
+**Strive not to be a success, but rather to be of value.**
 
-Og Mandino
+Albert Einstein
