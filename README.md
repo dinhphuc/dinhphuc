@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Even the smallest shift in perspective can bring about the greatest healing.**
+**Attitude is everything. New day, new strength, new thoughts.**
 
-Joshua Kai
+Anonymous
