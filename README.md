@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are wonderfully made.**
+**All our dreams can come true, if we have the courage to pursue them.**
 
-Anonymous
+Walt Disney
