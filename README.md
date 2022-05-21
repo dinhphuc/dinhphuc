@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody who ever gave their best regretted it.**
+**What you see in yourself is what you see in the world.**
 
-George Halas
+Afghan Proverb
