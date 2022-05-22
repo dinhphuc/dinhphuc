@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not what you look at that matters, it's what you see.**
+**If your dreams don't scare you, they aren't big enough.**
 
-Henry David Thoreau
+Muhammad Ali
