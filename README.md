@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The way to get started is to quit talking and begin doing.**
+**Set a goal that makes you want to jump out of bed in the morning.**
 
-Walt Disney
+Anonymous
