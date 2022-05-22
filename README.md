@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you are enthusiastic about what you do, you feel this positive energy. It's very simple.**
+**Life is a magical ride. Enjoy every moment.**
 
-Paulo Coelho
+Anonymous
