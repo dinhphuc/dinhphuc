@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A truly rich man is one whose children run into his arms when his hands are empty.**
+**If you are willing to do more than you are paid to do, eventually you will be paid to do more than you do.**
 
-Unknown
+Anonymous
