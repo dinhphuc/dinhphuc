@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I am in charge of how I feel and today I am choosing happiness.**
+**There are two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle.**
 
-Anonymous
+Albert Einstein
