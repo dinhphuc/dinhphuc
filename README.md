@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When obstacles arise, you change your direction to reach your goal, you do not change your decision to get there.**
+**It's not what you look at that matters, it's what you see.**
 
-Zig Ziglar
+Henry David Thoreau
