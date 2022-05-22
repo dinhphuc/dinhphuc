@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile, and let the world wonder why.**
+**Sometimes you face difficulties not because you're doing something wrong but because you're doing something right.**
 
-Minnie Mouse
+Anonymous
