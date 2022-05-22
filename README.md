@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Peace begins When expectation ends.**
+**When you are enthusiastic about what you do, you feel this positive energy. It's very simple.**
 
-Sri Chinmoy
+Paulo Coelho
