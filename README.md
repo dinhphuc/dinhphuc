@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't sacrifice for what you want, what you wants becomes the sacrifice.**
+**Smile, and let the world wonder why.**
 
-Anonymous
+Minnie Mouse
