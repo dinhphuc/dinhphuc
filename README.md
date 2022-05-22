@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is a magical ride. Enjoy every moment.**
+**In this life we cannot do great things. We can only do small things with great love.**
 
-Anonymous
+Mother Teresa
