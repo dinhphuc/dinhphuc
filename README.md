@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every day may not be good... but there's something good in every day.**
+**When obstacles arise, you change your direction to reach your goal, you do not change your decision to get there.**
 
-Alice Morse Earle
+Zig Ziglar
