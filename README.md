@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Attitude is everything. New day, new strength, new thoughts.**
+**A truly rich man is one whose children run into his arms when his hands are empty.**
 
-Anonymous
+Unknown
