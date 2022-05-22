@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To give anything less than your best is to sacrifice the gift.**
+**The harder the battle. The sweeter the victory.**
 
-Steve Prefontaine
+Les Brown
