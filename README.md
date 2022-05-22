@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always two there are, no more, no less. A master and an apprentice.**
+**Good, better, best. Never let it rest. Until your good is better and your better is best.**
 
-Yoda
+Tim Duncan
