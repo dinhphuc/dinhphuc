@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In this life we cannot do great things. We can only do small things with great love.**
+**And in the end, the love you take, is equal to the love you make.**
 
-Mother Teresa
+The Beatles
