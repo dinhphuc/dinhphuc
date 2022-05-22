@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The harder the battle. The sweeter the victory.**
+**Challenges are what make life interesting and overcoming them is what makes life meaningful.**
 
-Les Brown
+Joshua Marine
