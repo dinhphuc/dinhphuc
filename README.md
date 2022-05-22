@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**And in the end, the love you take, is equal to the love you make.**
+**Every day may not be good... but there's something good in every day.**
 
-The Beatles
+Alice Morse Earle
