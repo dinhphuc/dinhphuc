@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success consists of getting up just one more time than you fall.**
+**Always two there are, no more, no less. A master and an apprentice.**
 
-Oliver Goldsmith
+Yoda
