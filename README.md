@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are willing to do more than you are paid to do, eventually you will be paid to do more than you do.**
+**If you don't sacrifice for what you want, what you wants becomes the sacrifice.**
 
 Anonymous
