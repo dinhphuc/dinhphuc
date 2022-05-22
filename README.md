@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If your dreams don't scare you, they aren't big enough.**
+**The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.**
 
-Muhammad Ali
+William Arthur Ward
