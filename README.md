@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you want to talk about who made me, you talk to me. Who made me is ME.**
+**Success consists of getting up just one more time than you fall.**
 
-Muhammad Ali
+Oliver Goldsmith
