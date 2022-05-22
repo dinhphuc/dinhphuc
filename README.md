@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good, better, best. Never let it rest. Until your good is better and your better is best.**
+**Success consists of getting up just one more time than you fall.**
 
-Tim Duncan
+Oliver Goldsmith
