@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.**
+**I am in charge of how I feel and today I am choosing happiness.**
 
-William Arthur Ward
+Anonymous
