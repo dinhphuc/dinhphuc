@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You miss 100% of the shots you don't take.**
+**Great works are performed, not by strength, but by perseverance.**
 
-Wayne Gretzky
+Samuel Johnson
