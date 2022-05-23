@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Being optimistic really has nothing to do with happiness, it's just taking whatever life chucks at you and not letting it break you down.**
+**The positive thinker sees the invisible, feels the intangible, and achieves the impossible.**
 
-Anonymous
+Winston Churchill
