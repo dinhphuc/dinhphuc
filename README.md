@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be happy. It really annoys negative people.**
+**Being optimistic really has nothing to do with happiness, it's just taking whatever life chucks at you and not letting it break you down.**
 
-Ricky Gervais
+Anonymous
