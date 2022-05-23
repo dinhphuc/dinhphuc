@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Look in the mirror. That's your competition.**
+**A fault confessed is half redressed.**
 
-John Assaraf
+Zulu Proverb
