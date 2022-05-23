@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only thing worse than starting something and failing... is not starting something.**
+**Look in the mirror. That's your competition.**
 
-Seth Godin
+John Assaraf
