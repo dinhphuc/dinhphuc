@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In the end, it's not the years in your life that count. It's the life in your years.**
+**Acting on a good idea is better than just having a good idea.**
 
-Abraham Lincoln
+Robert Half
