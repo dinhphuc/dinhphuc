@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You have to fight through some bad days to earn the best days of your life.**
+**The only impossible journey is the one you never begin.**
 
-Anonymous
+Tony Robbins
