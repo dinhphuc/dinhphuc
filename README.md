@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Challenges are what make life interesting and overcoming them is what makes life meaningful.**
+**Be happy. It really annoys negative people.**
 
-Joshua Marine
+Ricky Gervais
