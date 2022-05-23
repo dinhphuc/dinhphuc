@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A champion is someone who gets up when they can't.**
+**You miss 100% of the shots you don't take.**
 
-Jack Dempsey
+Wayne Gretzky
