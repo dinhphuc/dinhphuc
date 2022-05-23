@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only impossible journey is the one you never begin.**
+**Shine like the whole universe is yours.**
 
-Tony Robbins
+Rumi
