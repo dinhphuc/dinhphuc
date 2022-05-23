@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want it, you'll find a way. If you don't, you'll find an excuse.**
+**Working hard for something we don't care about is called stress; working hard for somthing we love is called passion.**
 
-Anonymous
+Simon Sinek
