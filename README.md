@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe in yourself, take on your challenges, dig deep within yourself to conquer fears. Never let anyone bring you down. You got to keep going.**
+**In the end, it's not the years in your life that count. It's the life in your years.**
 
-Chantal Sutherland
+Abraham Lincoln
