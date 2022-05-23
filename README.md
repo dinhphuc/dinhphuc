@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Before telling secrets on the road, look in the bushes.**
+**You have to fight through some bad days to earn the best days of your life.**
 
-Chinese Proverb
+Anonymous
