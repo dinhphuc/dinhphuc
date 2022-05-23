@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never stop trying. Never stop believing. Never give up. Your day will come.**
+**Our greatest weakness lies in giving up. The most certain way to succeed is to just try one more time.**
 
-Anonymous
+Thomas Edison
