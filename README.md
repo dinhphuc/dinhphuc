@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Train like a silver medalist, compete like a gold.**
+**There are only two options regarding commitment. You're either IN or you're OUT. There is no such thing as life in-between.**
 
-Anonymous
+Pat Riley
