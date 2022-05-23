@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your path you must decide.**
+**Train like a silver medalist, compete like a gold.**
 
-Yoda
+Anonymous
