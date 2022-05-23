@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Great works are performed, not by strength, but by perseverance.**
+**Never stop trying. Never stop believing. Never give up. Your day will come.**
 
-Samuel Johnson
+Anonymous
