@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The positive thinker sees the invisible, feels the intangible, and achieves the impossible.**
+**It is not the strongest of the species that survive, nor the most intelligent, but the one most responsive to change.**
 
-Winston Churchill
+Charles Darwin
