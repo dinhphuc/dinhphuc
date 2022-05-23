@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't give up on yourself. You're worth it.**
+**Before telling secrets on the road, look in the bushes.**
 
-Anonymous
+Chinese Proverb
