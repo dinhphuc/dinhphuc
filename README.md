@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you believe it, the mind can achieve it.**
+**If you want it, you'll find a way. If you don't, you'll find an excuse.**
 
-Ronnie Lott
+Anonymous
