@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There's nothing that you can do that can't be done.**
+**Whatever you hold in your mind on a consistent basis is exactly what you will experience in your life.**
 
-The Beatles
+Tony Robbins
