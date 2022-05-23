@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Build your own dreams, or someone else will hire you to build theirs.**
+**Your path you must decide.**
 
-Farrah Gray
+Yoda
