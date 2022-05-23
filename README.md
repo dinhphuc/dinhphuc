@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Positive anything is better than negative nothing.**
+**There's nothing that you can do that can't be done.**
 
-Elbert Hubbard
+The Beatles
