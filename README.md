@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Acting on a good idea is better than just having a good idea.**
+**Don't give up on yourself. You're worth it.**
 
-Robert Half
+Anonymous
