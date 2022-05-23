@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Working hard for something we don't care about is called stress; working hard for somthing we love is called passion.**
+**The only thing worse than starting something and failing... is not starting something.**
 
-Simon Sinek
+Seth Godin
