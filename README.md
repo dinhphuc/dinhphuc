@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Shine like the whole universe is yours.**
+**When it's pouring rain and you're bowling along through the wet, there's satisfaction in knowing you're out there and the others aren't.**
 
-Rumi
+Peter Snell
