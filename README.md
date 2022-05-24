@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The best way to predict your future is to create it.**
+**Hard times don't create heroes. It is during the hard times when the 'hero' within us is revealed.**
 
-Peter F. Drucker
+Bob Riley
