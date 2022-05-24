@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hard times don't create heroes. It is during the hard times when the 'hero' within us is revealed.**
+**Confidence comes not from always being right but from not fearing to be wrong.**
 
-Bob Riley
+Peter T. Mcintyre
