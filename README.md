@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is either a daring adventure or nothing at all.**
+**You've got to be willing to lose everything to gain yourself.**
 
-Helen Keller
+Iyanla Vanzant
