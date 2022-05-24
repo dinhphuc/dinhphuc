@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love the life you live. Live the life you love.**
+**The best way to predict your future is to create it.**
 
-Bob Marley
+Peter F. Drucker
