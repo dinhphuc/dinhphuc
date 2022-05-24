@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be humble in your confidence yet courageous in your character.**
+**Love the life you live. Live the life you love.**
 
-Melanie Koulouris
+Bob Marley
