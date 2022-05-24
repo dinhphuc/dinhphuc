@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I alone cannot change the world, but I can cast a stone across the water to create many ripples.**
+**Learning never exhausts the mind.**
 
-Mother Teresa
+Leonardo da Vinci
