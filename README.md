@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are so much more than what you are going through.**
+**Life is either a daring adventure or nothing at all.**
 
-John Tew
+Helen Keller
