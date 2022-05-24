@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A teacher is better than two books.**
+**You have purpose.**
 
-German Proverb
+Anonymous
