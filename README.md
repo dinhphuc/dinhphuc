@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is either a daring adventure or nothing at all.**
+**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
 
-Helen Keller
+Anonymous
