@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Successful people build each other up. They inspire, motivate, and push each other. Unsuccessful people just hate, blame, and complain.**
+**One of the simplest ways to be happy is letting go of the things that make you sad.**
 
 Anonymous
