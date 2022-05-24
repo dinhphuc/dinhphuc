@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are stronger than you think.**
+**Happiness is not something you postpone for the future; it is something you design for the present.**
 
-Anonymous
+Jim Rohn
