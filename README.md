@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no hope at all.**
+**I alone cannot change the world, but I can cast a stone across the water to create many ripples.**
 
-Dale Carnegie
+Mother Teresa
