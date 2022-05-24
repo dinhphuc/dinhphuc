@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I've never let anyone talk me into not believing in myself.**
+**Anyone who has grown mentally, physically or spiritually knows that growth is not found in comfort.**
 
-Muhammad Ali
+Anonymous
