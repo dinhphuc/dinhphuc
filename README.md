@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Anyone who has grown mentally, physically or spiritually knows that growth is not found in comfort.**
+**Life is what happens when you're busy making other plans.**
 
-Anonymous
+John Lennon
