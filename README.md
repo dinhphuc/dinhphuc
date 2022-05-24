@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always remember that you are absolutely unique. Just like everyone else.**
+**I've never let anyone talk me into not believing in myself.**
 
-Margaret Mead
+Muhammad Ali
