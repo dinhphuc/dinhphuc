@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You have purpose.**
+**You are so much more than what you are going through.**
 
-Anonymous
+John Tew
