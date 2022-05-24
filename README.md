@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is what happens when you're busy making other plans.**
+**Be humble in your confidence yet courageous in your character.**
 
-John Lennon
+Melanie Koulouris
