@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every next level of your life will demand a different version of you.**
+**Happiness is not something you postpone for the future; it is something you design for the present.**
 
-Anonymous
+Jim Rohn
