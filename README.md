@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence comes not from always being right but from not fearing to be wrong.**
+**Doing what you like is freedom. Liking what you do is happiness.**
 
-Peter T. Mcintyre
+Anonymous
