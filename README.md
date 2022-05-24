@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You've got to be willing to lose everything to gain yourself.**
+**Always remember that you are absolutely unique. Just like everyone else.**
 
-Iyanla Vanzant
+Margaret Mead
