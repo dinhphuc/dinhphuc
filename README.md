@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A fault confessed is half redressed.**
+**You should never give up. No matter how hard the situation is, always believe that something beautiful is going to happen.**
 
-Zulu Proverb
+Anonymous
