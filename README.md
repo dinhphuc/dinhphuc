@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is a habit - cultivate it.**
+**Every next level of your life will demand a different version of you.**
 
-Elbert Hubbard
+Anonymous
