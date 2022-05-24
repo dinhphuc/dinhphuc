@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Learning never exhausts the mind.**
+**The hardest thing to find in life is happiness - money is only hard to find because it gets wasted trying to find happiness.**
 
-Leonardo da Vinci
+Unknown
