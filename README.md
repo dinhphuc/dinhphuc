@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Passion first and everything will fall into place.**
+**Whatever the mind can conceive and believe, it can achieve.**
 
-Holly Holm
+Napoleon Hill
