@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between stumbling blocks and stepping stones is how you use them.**
+**Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.**
 
-Anonymous
+Samuel Beckett
