@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is too short to spend it at war with yourself.**
+**Don't wait around for other people to be happy for you. Any happiness you get, you've got to make yourself.**
 
-Anonymous
+Alice Walker
