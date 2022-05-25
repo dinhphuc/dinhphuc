@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.**
+**Throw kindness around like confetti.**
 
-Samuel Beckett
+Anonymous
