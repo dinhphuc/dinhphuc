@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I don't aspire to be like other driver. I aspire to be unique.**
+**Leadership is not about being in charge. Leadership is about taking care of those in your charge.**
 
-Lewis Hamilton
+Simon Sinek
