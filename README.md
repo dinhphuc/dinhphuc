@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Successful people build each other up. They inspire, motivate, and push each other. Unsuccessful people just hate, blame, and complain.**
+**All our dreams can come true, if we have the courage to pursue them.**
 
-Anonymous
+Walt Disney
