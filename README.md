@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Are your excuses more important than your dreams?**
+**When you know what you want, and want it bad enough, you'll find a way to get it.**
 
-Anonymous
+Jim Rohn
