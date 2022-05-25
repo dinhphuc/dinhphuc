@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do not blame the world. Find a solution.**
+**Today, give a stranger one of your smiles. It might be the only sunshine they see all day.**
 
-Sri Chinmoy
+H. Jackson Brown Jr
