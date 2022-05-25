@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Leadership is not about being in charge. Leadership is about taking care of those in your charge.**
+**It matters not what someone is born, but what they grow to be.**
 
-Simon Sinek
+Master Oogway
