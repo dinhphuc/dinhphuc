@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever happens, just keep smiling and lose yourself in love.**
+**No one controls how I feel about myself, but me.**
 
-Rumi
+Anonymous
