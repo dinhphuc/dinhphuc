@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever the mind can conceive and believe, it can achieve.**
+**Life isn't about waiting for the storm to pass, it's about learning how to dance in the rain.**
 
-Napoleon Hill
+Vivian Greene
