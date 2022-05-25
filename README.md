@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever happens, just keep smiling and lose yourself in love.**
+**Even the smallest shift in perspective can bring about the greatest healing.**
 
-Rumi
+Joshua Kai
