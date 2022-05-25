@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Throw kindness around like confetti.**
+**Life is ours to be spent, not to be saved.**
 
-Anonymous
+D. H. Lawrence
