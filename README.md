@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It matters not what someone is born, but what they grow to be.**
+**Life is too short to spend it at war with yourself.**
 
-Master Oogway
+Anonymous
