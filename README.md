@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Positive anything is better than negative nothing.**
+**I don't aspire to be like other driver. I aspire to be unique.**
 
-Elbert Hubbard
+Lewis Hamilton
