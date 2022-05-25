@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good, better, best. Never let it rest. Until your good is better and your better is best.**
+**Passion first and everything will fall into place.**
 
-Tim Duncan
+Holly Holm
