@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Virtually nothing is impossible in this world if you just put your mind to it and maintain a positive attitude.**
+**It's not who you are that holds you back, it's who you think you're not.**
 
-Lou Holtz
+Anonymous
