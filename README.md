@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not who you are that holds you back, it's who you think you're not.**
+**Spend your life with people who make you smile, laugh, and feel loved.**
 
-Anonymous
+Roy T. Bennett
