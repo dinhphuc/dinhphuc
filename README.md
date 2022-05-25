@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Rise up. Start fresh. See the bright opportunity in each new day.**
+**When a new day begins, dare to smile gratefully.**
 
-Anonymous
+Steve Maraboli
