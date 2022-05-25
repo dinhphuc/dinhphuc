@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life isn't about waiting for the storm to pass, it's about learning how to dance in the rain.**
+**I compete only with myself, and I try to become a better human being. This is my goal.**
 
-Vivian Greene
+Sri Chinmoy
