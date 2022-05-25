@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever the mind can conceive and believe, it can achieve.**
+**It's lack of faith that makes people afraid of meeting challenges, and I believed in myself.**
 
-Napoleon Hill
+Muhammad Ali
