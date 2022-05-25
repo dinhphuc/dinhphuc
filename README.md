@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Today, give a stranger one of your smiles. It might be the only sunshine they see all day.**
+**Good, better, best. Never let it rest. Until your good is better and your better is best.**
 
-H. Jackson Brown Jr
+Tim Duncan
