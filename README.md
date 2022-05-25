@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To give anything less than your best is to sacrifice the gift.**
+**Rise up. Start fresh. See the bright opportunity in each new day.**
 
-Steve Prefontaine
+Anonymous
