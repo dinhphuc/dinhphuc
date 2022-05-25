@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Learning never exhausts the mind.**
+**Virtually nothing is impossible in this world if you just put your mind to it and maintain a positive attitude.**
 
-Leonardo da Vinci
+Lou Holtz
