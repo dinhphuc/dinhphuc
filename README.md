@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you know what you want, and want it bad enough, you'll find a way to get it.**
+**To give anything less than your best is to sacrifice the gift.**
 
-Jim Rohn
+Steve Prefontaine
