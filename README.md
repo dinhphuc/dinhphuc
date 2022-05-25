@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how old I get, the race remains one of life's most rewarding experiences.**
+**To give anything less than your best is to sacrifice the gift.**
 
-George Sheehan
+Steve Prefontaine
