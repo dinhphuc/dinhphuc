@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Spend your life with people who make you smile, laugh, and feel loved.**
+**Whatever happens, just keep smiling and lose yourself in love.**
 
-Roy T. Bennett
+Rumi
