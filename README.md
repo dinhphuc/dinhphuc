@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Even the smallest shift in perspective can bring about the greatest healing.**
+**Do not blame the world. Find a solution.**
 
-Joshua Kai
+Sri Chinmoy
