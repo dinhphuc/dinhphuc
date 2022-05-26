@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I always like to look on the optimistic side of life, but I am realistic enough to know that life is a complex matter.**
+**Just think how happy you would be if you lost everything you have right now, and then got it back again.**
 
-Walt Disney
+Frances Rodman
