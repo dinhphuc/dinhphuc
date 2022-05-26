@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Just think how happy you would be if you lost everything you have right now, and then got it back again.**
+**Life only comes around once, so do whatever makes you happy, and be with whoever makes you smile.**
 
-Frances Rodman
+Anonymous
