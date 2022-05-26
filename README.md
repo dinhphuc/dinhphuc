@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If no mistake have you made, yet losing you are... a different game you should play.**
+**You are the only one who can limit your greatness.**
 
-Yoda
+Anonymous
