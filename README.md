@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are the only one who can limit your greatness.**
+**A teacher is better than two books.**
 
-Anonymous
+German Proverb
