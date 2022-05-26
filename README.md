@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In a dark place we find ourselves, and a little more knowledge lights our way.**
+**Enjoy the little things, for one day you may look back and realize they were the big things.**
 
-Yoda
+Robert Brault
