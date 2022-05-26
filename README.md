@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No one is perfect - that's why pencils have erasers.**
+**Life is ours to be spent, not to be saved.**
 
-Wolfgang Riebe
+D. H. Lawrence
