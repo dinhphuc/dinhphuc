@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to achieve greatness, stop asking for permission.**
+**Your positive action combined with positive thinking results in success.**
 
 Anonymous
