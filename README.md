@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All you need is love.**
+**One of the simplest ways to be happy is letting go of the things that make you sad.**
 
-The Beatles
+Anonymous
