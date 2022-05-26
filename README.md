@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are the only one who can limit your greatness.**
+**Think gold and never settle for silver.**
 
-Anonymous
+Jim Afremow
