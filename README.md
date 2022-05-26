@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is ours to be spent, not to be saved.**
+**All you need is love.**
 
-D. H. Lawrence
+The Beatles
