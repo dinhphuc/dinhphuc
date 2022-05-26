@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whoever is happy will make others happy too.**
+**If you want to achieve greatness, stop asking for permission.**
 
 Anonymous
