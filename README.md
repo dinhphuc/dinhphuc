@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are the only one who can limit your greatness.**
+**Everywhere you go, take a smile with you.**
 
-Anonymous
+Sasha Azevedo
