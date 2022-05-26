@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything you've ever wanted is on the other side of fear.**
+**Impossible is nothing.**
 
-George Addair
+Muhammad Ali
