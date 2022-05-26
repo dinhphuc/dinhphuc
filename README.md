@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If it doesn't challenge you, it won't change you.**
+**Doing what you like is freedom. Liking what you do is happiness.**
 
 Anonymous
