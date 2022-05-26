@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life only comes around once, so do whatever makes you happy, and be with whoever makes you smile.**
+**Everything you've ever wanted is on the other side of fear.**
 
-Anonymous
+George Addair
