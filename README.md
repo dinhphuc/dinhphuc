@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only easy day was yesterday.**
+**Enjoy the little things, for one day you may look back and realize they were the big things.**
 
-Navy Seals
+Robert Brault
