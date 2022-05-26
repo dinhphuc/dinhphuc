@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of change is to focus all of your energy, not on fighting the old, but on building the new.**
+**Ask yourself: Can I give more? The answer is usually: Yes.**
 
-Socrates
+Paul Tergat
