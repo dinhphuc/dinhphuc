@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Enjoy the little things, for one day you may look back and realize they were the big things.**
+**Life is a magical ride. Enjoy every moment.**
 
-Robert Brault
+Anonymous
