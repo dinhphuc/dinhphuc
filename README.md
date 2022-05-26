@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Ask yourself: Can I give more? The answer is usually: Yes.**
+**If it doesn't challenge you, it won't change you.**
 
-Paul Tergat
+Anonymous
