@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It takes but one positive thought when given a chance to survive and thrive to overpower an entire army of negative thoughts.**
+**If no mistake have you made, yet losing you are... a different game you should play.**
 
-Robert H. Schuller
+Yoda
