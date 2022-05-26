@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everywhere you go, take a smile with you.**
+**If you really look closely, most overnight successes took a long time.**
 
-Sasha Azevedo
+Steve Jobs
