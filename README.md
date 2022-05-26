@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Doing what you like is freedom. Liking what you do is happiness.**
+**I always like to look on the optimistic side of life, but I am realistic enough to know that life is a complex matter.**
 
-Anonymous
+Walt Disney
