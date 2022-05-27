@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A person who never made a mistake never tried anything new.**
+**You should never give up. No matter how hard the situation is, always believe that something beautiful is going to happen.**
 
-Albert Einstein
+Anonymous
