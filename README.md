@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are willing to do more than you are paid to do, eventually you will be paid to do more than you do.**
+**Life chips away at us all. Some play the victim. Some choose to be a survivor. And then there are those who choose to conquer.**
 
 Anonymous
