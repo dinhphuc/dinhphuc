@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only easy day was yesterday.**
+**It makes a big difference in your life when you stay positive.**
 
-Navy Seals
+Ellen DeGeneres
