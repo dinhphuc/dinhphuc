@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We last longer if we compete against ourselves for the good of others instead of competing against others for the good of ourselves.**
+**Float like a butterfly, sting like a bee. The hands can't hit what the eyes can't see.**
 
-Simon Sinek
+Muhammad Ali
