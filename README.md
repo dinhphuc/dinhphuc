@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are what you believe yourself to be.**
+**Once you're beat mentally, you might as well not even go to the starting line.**
 
-Paulo Coelho
+Todd Williams
