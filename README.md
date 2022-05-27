@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Working hard for something we don't care about is called stress; working hard for somthing we love is called passion.**
+**Being optimistic really has nothing to do with happiness, it's just taking whatever life chucks at you and not letting it break you down.**
 
-Simon Sinek
+Anonymous
