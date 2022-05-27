@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Float like a butterfly, sting like a bee. The hands can't hit what the eyes can't see.**
+**You are what you believe yourself to be.**
 
-Muhammad Ali
+Paulo Coelho
