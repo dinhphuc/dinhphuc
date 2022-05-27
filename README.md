@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When I hear somebody sigh, 'Life is hard,' I am always tempted to ask, 'Compared to what?'**
+**Don't cry because it's over, smile because it happened.**
 
-Sydney Harris
+Dr. Seuss
