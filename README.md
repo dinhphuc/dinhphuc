@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be afraid of your fears. They're not there to scare you. They're there to let you know that something is worth it.**
+**For every minute you are angry you lose sixty seconds of happiness.**
 
-C. JoyBell C
+Ralph Waldo Emerson
