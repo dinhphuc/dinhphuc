@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**For every minute you are angry you lose sixty seconds of happiness.**
+**You cannot change the direction of the wind - only alter the angle of your sails.**
 
-Ralph Waldo Emerson
+Anonymous
