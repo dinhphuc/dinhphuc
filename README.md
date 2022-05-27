@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I am an ordinary man who worked hard to develop the talent I was given. I believed in myself, and I believe in the goodness of others.**
+**When you know what you want, and want it bad enough, you'll find a way to get it.**
 
-Muhammad Ali
+Jim Rohn
