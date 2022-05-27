@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is short, and it is up to you to make it sweet.**
+**A person who never made a mistake never tried anything new.**
 
-Sarah Louise Delany
+Albert Einstein
