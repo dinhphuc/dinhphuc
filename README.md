@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life chips away at us all. Some play the victim. Some choose to be a survivor. And then there are those who choose to conquer.**
+**Working hard for something we don't care about is called stress; working hard for somthing we love is called passion.**
 
-Anonymous
+Simon Sinek
