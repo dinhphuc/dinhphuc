@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It makes a big difference in your life when you stay positive.**
+**Choosing to be positive and having a grateful attitude is going to determine how you're going to live your life.**
 
-Ellen DeGeneres
+Joel Osteen
