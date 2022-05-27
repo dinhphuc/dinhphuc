@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**At the end of the day, you can either focus on what's tearing you apart, or you can focus on what's keeping you together.**
+**Only those who dare to fail greatly can ever achieve greatly.**
 
-Anonymous
+Robert F. Kennedy
