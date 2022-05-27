@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Working hard for something we don't care about is called stress; working hard for somthing we love is called passion.**
+**Life is short, and it is up to you to make it sweet.**
 
-Simon Sinek
+Sarah Louise Delany
