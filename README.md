@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember that not getting what you want is sometimes a wonderful stroke of luck.**
+**It feels good when you can put a smile on someone's face by simply being yourself.**
 
-Dalai Lama
+Anonymous
