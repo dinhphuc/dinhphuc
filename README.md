@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you know what you want, and want it bad enough, you'll find a way to get it.**
+**Remember that not getting what you want is sometimes a wonderful stroke of luck.**
 
-Jim Rohn
+Dalai Lama
