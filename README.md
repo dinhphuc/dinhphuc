@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The absence of adversity is an indicator that my goals aren't significant enough.**
+**If opportunity doesn't knock, build a door.**
 
-Clint Bruce
+Milton Berle
