@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is really simple, but we insist on making it complicated.**
+**When written in Chinese the word "crisis" is composed of two characters - one represents danger and the other represents opportunity.**
 
-Confucius
+John F. Kennedy
