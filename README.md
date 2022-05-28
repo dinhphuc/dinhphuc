@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If opportunity doesn't knock, build a door.**
+**The greatest discovery of all time is that a person can change their future by merely changing their attitude.**
 
-Milton Berle
+Oprah Winfrey
