@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You have purpose.**
+**The absence of adversity is an indicator that my goals aren't significant enough.**
 
-Anonymous
+Clint Bruce
