@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The best way to predict your future is to create it.**
+**Keep going. Everything you need will come to you at the perfect time.**
 
-Peter F. Drucker
+Anonymous
