@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Often it isn't the mountains ahead that wear you out, it's the little pebble in your shoe.**
+**Only those who dare to fail greatly can ever achieve greatly.**
 
-Muhammad Ali
+Robert F. Kennedy
