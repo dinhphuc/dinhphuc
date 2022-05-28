@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Make sure your worst enemy doesn't live between your own two ears.**
+**Nothing is impossible, the word itself says "I'm possible"!**
 
-Laird Hamilton
+Audrey Hepburn
