@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only those who dare to fail greatly can ever achieve greatly.**
+**A gentle word, a kind look, a good-natured smile can work wonders and accomplish miracles.**
 
-Robert F. Kennedy
+William Hazlitt
