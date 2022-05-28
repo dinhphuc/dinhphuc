@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When the 'why' is clear, the 'how' is easy.**
+**Examine what is said, not who speaks.**
 
-Anonymous
+Arab Proverb
