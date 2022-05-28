@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everytime you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**
+**Don't wish it were easier. Wish you were better.**
 
-Mother Teresa
+Jim Rohn
