@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile, it is the key that fits the lock of everybody's heart.**
+**The greatest discovery of all time is that a person can change their future by merely changing their attitude.**
 
-Anthony J D'Angelo
+Oprah Winfrey
