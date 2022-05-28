@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only those who dare to fail greatly can ever achieve greatly.**
+**When the 'why' is clear, the 'how' is easy.**
 
-Robert F. Kennedy
+Anonymous
