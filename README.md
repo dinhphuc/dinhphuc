@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Examine what is said, not who speaks.**
+**Life is really simple, but we insist on making it complicated.**
 
-Arab Proverb
+Confucius
