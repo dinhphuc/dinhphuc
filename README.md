@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing is impossible, the word itself says "I'm possible"!**
+**I attribute my success to this: I never gave or took any excuse.**
 
-Audrey Hepburn
+Florence Nightingale
