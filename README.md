@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A gentle word, a kind look, a good-natured smile can work wonders and accomplish miracles.**
+**Everytime you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**
 
-William Hazlitt
+Mother Teresa
