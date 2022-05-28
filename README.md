@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When written in Chinese the word "crisis" is composed of two characters - one represents danger and the other represents opportunity.**
+**If you don't love what you do, you won't do it with much conviction or passion.**
 
-John F. Kennedy
+Mia Hamm
