@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I attribute my success to this: I never gave or took any excuse.**
+**When the 'why' is clear, the 'how' is easy.**
 
-Florence Nightingale
+Anonymous
