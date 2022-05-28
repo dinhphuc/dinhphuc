@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest discovery of all time is that a person can change their future by merely changing their attitude.**
+**A runner must run with dreams in his heart.**
 
-Oprah Winfrey
+Emil Zatopek
