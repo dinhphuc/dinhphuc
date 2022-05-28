@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always dream and shoot higher than you know you can do. Do not bother just to be better than your contemporaries or predecessors. Try to be better than yourself.**
+**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
 
-William Faulkner
+Anonymous
