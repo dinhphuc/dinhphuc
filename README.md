@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
+**We should never change our minds about where we are going, but always be curious about different ways to get there.**
 
-Anonymous
+Simon Sinek
