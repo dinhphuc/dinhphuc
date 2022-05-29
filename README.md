@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do what makes you happy.**
+**He who lives in harmony with himself lives in harmony with the universe.**
 
-Rachel Ann Nunes
+Marcus Aurelius
