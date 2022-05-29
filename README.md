@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Until you're broken, you don't know what you're made of.**
+**Great minds discuss ideas; average minds discuss events; small minds discuss people.**
 
-Anonymous
+Eleanor Roosevelt
