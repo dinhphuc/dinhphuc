@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**He who lives in harmony with himself lives in harmony with the universe.**
+**Always believe that something wonderful is about to happen.**
 
-Marcus Aurelius
+Anonymous
