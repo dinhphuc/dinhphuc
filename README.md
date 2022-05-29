@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always believe that something wonderful is about to happen.**
+**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
 
 Anonymous
