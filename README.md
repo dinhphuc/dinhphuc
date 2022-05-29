@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
+**A little progress each day adds up to big results.**
 
-Anonymous
+Satya Nani
