@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously.**
+**Always two there are, no more, no less. A master and an apprentice.**
 
-Steve Maraboli
+Yoda
