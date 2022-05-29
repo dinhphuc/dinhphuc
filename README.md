@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe you can and you're halfway there.**
+**A successful man is one who can lay a firm foundation with the bricks others have thrown at him.**
 
-Theodore Roosevelt
+David Brinkley
