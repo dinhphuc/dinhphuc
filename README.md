@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always two there are, no more, no less. A master and an apprentice.**
+**To give anything less than your best is to sacrifice the gift.**
 
-Yoda
+Steve Prefontaine
