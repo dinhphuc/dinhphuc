@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everytime you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**
+**Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.**
 
-Mother Teresa
+Napoleon Hill
