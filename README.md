@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A successful man is one who can lay a firm foundation with the bricks others have thrown at him.**
+**Winning isn't everything, but wanting to win is.**
 
-David Brinkley
+Vince Lombardi
