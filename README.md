@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only easy day was yesterday.**
+**He who always thinks it is too soon is sure to come too late.**
 
-Navy Seals
+German Proverb
