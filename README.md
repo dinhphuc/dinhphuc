@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.**
+**He who always thinks it is too soon is sure to come too late.**
 
-Napoleon Hill
+German Proverb
