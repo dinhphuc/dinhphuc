@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If only we'd stop trying to be happy we could have a pretty good time.**
+**Believe you can and you're halfway there.**
 
-Edith Wharton
+Theodore Roosevelt
