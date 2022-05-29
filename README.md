@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A little progress each day adds up to big results.**
+**The starting point of all achievement is desire.**
 
-Satya Nani
+Napoleon Hill
