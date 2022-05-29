@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Great minds discuss ideas; average minds discuss events; small minds discuss people.**
+**Wherever you go, no matter what the weather, always bring your own sunshine.**
 
-Eleanor Roosevelt
+Anthony J. D'Angelo
