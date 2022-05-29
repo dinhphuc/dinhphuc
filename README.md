@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Winning isn't everything, but wanting to win is.**
+**As long as we have hope, we have direction, the energy to move, and the map to move by.**
 
-Vince Lombardi
+Lao Tzu
