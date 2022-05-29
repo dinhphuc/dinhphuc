@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't like something, change it. If you can't change it, change your attitude.**
+**You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously.**
 
-Maya Angelou
+Steve Maraboli
