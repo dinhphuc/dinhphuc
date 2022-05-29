@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Look for something positive in each day, even if some days you have to look a little harder.**
+**A little progress each day adds up to big results.**
 
-Anonymous
+Satya Nani
