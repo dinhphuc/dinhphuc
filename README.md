@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**As long as we have hope, we have direction, the energy to move, and the map to move by.**
+**Do what makes you happy.**
 
-Lao Tzu
+Rachel Ann Nunes
