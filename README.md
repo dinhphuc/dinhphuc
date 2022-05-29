@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The starting point of all achievement is desire.**
+**Acting on a good idea is better than just having a good idea.**
 
-Napoleon Hill
+Robert Half
