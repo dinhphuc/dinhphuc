@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Wherever you go, no matter what the weather, always bring your own sunshine.**
+**The past does not equal the future.**
 
-Anthony J. D'Angelo
+Tony Robbins
