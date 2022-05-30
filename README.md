@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want your dinner, don't insult the cook.**
+**When the sun rises, it rises for everyone.**
 
-Chinese Proverb
+Cuban Proverb
