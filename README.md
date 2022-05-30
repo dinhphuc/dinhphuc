@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody can bring you peace but yourself.**
+**If you look the right way, you can see that the whole world is a garden.**
 
-Ralph Waldo Emerson
+Frances Hodgson Burnett
