@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything that is done in this world is done by hope.**
+**It's not bragging if you can back it up.**
 
-Martin Luther
+Muhammed Ali
