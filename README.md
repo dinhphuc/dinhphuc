@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Change your thoughts and you change your world.**
+**What we achieve inwardly will change outer reality.**
 
-Norman Vincent Peale
+Plutarch
