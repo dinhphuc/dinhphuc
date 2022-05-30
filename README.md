@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your positive action combined with positive thinking results in success.**
+**Working hard for something we don't care about is called stress; working hard for somthing we love is called passion.**
 
-Anonymous
+Simon Sinek
