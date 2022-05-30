@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not bragging if you can back it up.**
+**When we point to obstacles we inhibit progress. When we offer solutions we advance.**
 
-Muhammed Ali
+Simon Sinek
