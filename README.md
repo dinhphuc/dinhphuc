@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you set your goals ridiculously high and it's a failure, you will fail above everyone else's success.**
+**The real opportunity for success lies within the person and not in the job.**
 
-James Cameron
+Zig Ziglar
