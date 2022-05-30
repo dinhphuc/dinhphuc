@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't dream of winning, train for it!**
+**Success consists of getting up just one more time than you fall.**
 
-Mo Farah
+Oliver Goldsmith
