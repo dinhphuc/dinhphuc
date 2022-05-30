@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You must do the thing you think you cannot do.**
+**Always two there are, no more, no less. A master and an apprentice.**
 
-Eleanor Roosevelt
+Yoda
