@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When we point to obstacles we inhibit progress. When we offer solutions we advance.**
+**Your positive action combined with positive thinking results in success.**
 
-Simon Sinek
+Anonymous
