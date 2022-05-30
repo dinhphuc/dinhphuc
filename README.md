@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When the sun rises, it rises for everyone.**
+**The more you praise and celebrate your life, the more there is in life to celebrate.**
 
-Cuban Proverb
+Oprah Winfrey
