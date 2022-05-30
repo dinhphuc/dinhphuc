@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The real opportunity for success lies within the person and not in the job.**
+**Many of life's failures are people who did not realize how close they were to success when they gave up.**
 
-Zig Ziglar
+Thomas A. Edison
