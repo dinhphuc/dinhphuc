@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The more you praise and celebrate your life, the more there is in life to celebrate.**
+**Nobody can bring you peace but yourself.**
 
-Oprah Winfrey
+Ralph Waldo Emerson
