@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Successful people have fear, successful people have doubts, and successful people have worries. They just don't let these feelings stop them.**
+**If you want your dinner, don't insult the cook.**
 
-T. Harv Eker
+Chinese Proverb
