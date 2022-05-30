@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever the mind can conceive and believe, it can achieve.**
+**You must do the thing you think you cannot do.**
 
-Napoleon Hill
+Eleanor Roosevelt
