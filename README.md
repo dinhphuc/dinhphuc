@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you look the right way, you can see that the whole world is a garden.**
+**Gratitude turns what we have into enough.**
 
-Frances Hodgson Burnett
+Anonymous
