@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success consists of getting up just one more time than you fall.**
+**Everything that is done in this world is done by hope.**
 
-Oliver Goldsmith
+Martin Luther
