@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always two there are, no more, no less. A master and an apprentice.**
+**Whatever the mind can conceive and believe, it can achieve.**
 
-Yoda
+Napoleon Hill
