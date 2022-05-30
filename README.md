@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always two there are, no more, no less. A master and an apprentice.**
+**A runner must run with dreams in his heart.**
 
-Yoda
+Emil Zatopek
