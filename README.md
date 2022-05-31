@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be afraid to start over. It's a brand new opportunity to rebuild what you truly want.**
+**You cannot fail at being yourself.**
 
-Anonymous
+Wayne Dyer
