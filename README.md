@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every next level of your life will demand a different version of you.**
+**Wake up every morning with the thought that something wonderful is about to happen.**
 
 Anonymous
