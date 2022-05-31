@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You walk through life much easier with a smile on your face.**
+**No matter how tough it may get, never give up on yourself or you will look back and regret it.**
 
-Sweet Paul
+Anonymous
