@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of change is to focus all of your energy, not on fighting the old, but on building the new.**
+**Winning isn't everything, but wanting to win is.**
 
-Socrates
+Vince Lombardi
