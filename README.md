@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't sail out farther than you can row back.**
+**You walk through life much easier with a smile on your face.**
 
-Danish Proverb
+Sweet Paul
