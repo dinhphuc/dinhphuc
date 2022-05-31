@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is letting go of what you think your life is supposed to look like and enjoying it for everything that it is.**
+**Give up on being perfect and start working on becoming yourself.**
 
-Mandy Hale
+Anna Quindlen
