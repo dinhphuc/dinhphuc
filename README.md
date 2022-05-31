@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Through challenge and difficulty, we learn to see life differently than before.**
+**If you want to lift yourself up, lift up someone else.**
 
-Auliq-Ice
+Booker T. Washington
