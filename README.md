@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Wake up every morning with the thought that something wonderful is about to happen.**
+**If you can't stop thinking about it, don't stop working for it.**
 
 Anonymous
