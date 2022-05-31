@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Look in the mirror. That's your competition.**
+**Nurture your mind with great thoughts, for you will never go any higher than you think.**
 
-John Assaraf
+Benjamin Disraeli
