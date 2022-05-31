@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hardships often prepare ordinary people for an extraordinary destiny.**
+**Nurture your mind with great thoughts, for you will never go any higher than you think.**
 
-C.S. Lewis
+Benjamin Disraeli
