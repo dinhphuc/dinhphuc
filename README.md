@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest discovery of all time is that a person can change their future by merely changing their attitude.**
+**I compete only with myself, and I try to become a better human being. This is my goal.**
 
-Oprah Winfrey
+Sri Chinmoy
