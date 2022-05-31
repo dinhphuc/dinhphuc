@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Wake up every morning with the thought that something wonderful is about to happen.**
+**The greatest discovery of all time is that a person can change their future by merely changing their attitude.**
 
-Anonymous
+Oprah Winfrey
