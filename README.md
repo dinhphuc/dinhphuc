@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I compete only with myself, and I try to become a better human being. This is my goal.**
+**Hardships often prepare ordinary people for an extraordinary destiny.**
 
-Sri Chinmoy
+C.S. Lewis
