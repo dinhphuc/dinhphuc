@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Challenges are what make life interesting and overcoming them is what makes life meaningful.**
+**Every next level of your life will demand a different version of you.**
 
-Joshua Marine
+Anonymous
