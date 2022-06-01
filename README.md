@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Deep doubts, deep wisdom; small doubts, small wisdom.**
+**Limitations live only in our minds. But if we use our imaginations, our possibilities become limitless.**
 
-Chinese Proverb
+Jamie Paolinetti
