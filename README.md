@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The best way to predict your future is to create it.**
+**Until you're broken, you don't know what you're made of.**
 
-Peter F. Drucker
+Anonymous
