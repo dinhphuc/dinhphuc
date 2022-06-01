@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Great minds discuss ideas; average minds discuss events; small minds discuss people.**
+**You have brains in your head. You have feet in your shoes. You can steer yourself any direction you choose.**
 
-Eleanor Roosevelt
+Dr. Seuss
