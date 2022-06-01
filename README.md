@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength doesn't come from what you can do. It comes from overcoming the things you once thought you couldn't.**
+**Never stop believing in hope because miracles happen everyday.**
 
-Rikki Rogers
+Anonymous
