@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The marathon can humble you.**
+**Don't worry about failure; you only have to be right once.**
 
-Bill Rodgers
+Drew Houston
