@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's the repetition of affirmations that leads to belief. And once that belief becomes a deep conviction, things begin to happen.**
+**Limitations live only in our minds. But if we use our imaginations, our possibilities become limitless.**
 
-Muhammad Ali
+Jamie Paolinetti
