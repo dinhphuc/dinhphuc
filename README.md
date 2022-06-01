@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Ask yourself: Can I give more? The answer is usually: Yes.**
+**Be happy not because everything is good, but because you can see the good side of everything.**
 
-Paul Tergat
+Anonymous
