@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't worry about failure; you only have to be right once.**
+**Everyone wants happiness. No one wants pain. But you can't have a rainbow, without a little rain.**
 
-Drew Houston
+Anonymous
