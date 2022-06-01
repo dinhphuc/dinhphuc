@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember that not getting what you want is sometimes a wonderful stroke of luck.**
+**When you stop chasing the wrong things you give the right things a chance to catch you.**
 
-Dalai Lama
+Anonymous
