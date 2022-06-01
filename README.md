@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You have brains in your head. You have feet in your shoes. You can steer yourself any direction you choose.**
+**Ask yourself: Can I give more? The answer is usually: Yes.**
 
-Dr. Seuss
+Paul Tergat
