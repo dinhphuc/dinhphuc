@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is not final, failure is not fatal: it is the courage to continue that counts.**
+**Every day may not be good... but there's something good in every day.**
 
-Winston Churchill
+Alice Morse Earle
