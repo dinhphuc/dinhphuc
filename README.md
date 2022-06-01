@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Give up on being perfect and start working on becoming yourself.**
+**Remember that not getting what you want is sometimes a wonderful stroke of luck.**
 
-Anna Quindlen
+Dalai Lama
