@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you stop chasing the wrong things you give the right things a chance to catch you.**
+**Whatever you do, do with all your might.**
 
-Anonymous
+Marcus Tullius Cicero
