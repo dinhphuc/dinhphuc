@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never stop believing in hope because miracles happen everyday.**
+**Don't worry about failure; you only have to be right once.**
 
-Anonymous
+Drew Houston
