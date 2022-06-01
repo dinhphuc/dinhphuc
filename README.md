@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The best way to predict your future is to create it.**
+**Shared joy is a double joy; shared sorrow is half a sorrow.**
 
-Peter F. Drucker
+Swedish Proverb
