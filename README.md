@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be happy not because everything is good, but because you can see the good side of everything.**
+**Your true success in life begins only when you make the commitment to become excellent at what you do.**
 
-Anonymous
+Brian Tracy
