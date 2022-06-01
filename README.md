@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't waste a minute not being happy. If one door closes, run to the next window - or break down a door.**
+**Success is not final, failure is not fatal: it is the courage to continue that counts.**
 
-Brooke Shields
+Winston Churchill
