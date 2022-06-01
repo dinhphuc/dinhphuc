@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you do, do with all your might.**
+**Until you're broken, you don't know what you're made of.**
 
-Marcus Tullius Cicero
+Anonymous
