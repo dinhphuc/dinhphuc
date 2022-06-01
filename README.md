@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every day may not be good... but there's something good in every day.**
+**Great minds discuss ideas; average minds discuss events; small minds discuss people.**
 
-Alice Morse Earle
+Eleanor Roosevelt
