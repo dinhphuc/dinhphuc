@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't worry about failure; you only have to be right once.**
+**Change your thoughts and you change your world.**
 
-Drew Houston
+Norman Vincent Peale
