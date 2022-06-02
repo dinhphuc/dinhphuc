@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once we accept our limits, we go beyond them.**
+**I am in charge of how I feel and today I am choosing happiness.**
 
-Albert Einstein
+Anonymous
