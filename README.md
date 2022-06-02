@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The purpose of our lives is to be happy.**
+**No matter how you feel, get up, dress up, show up and never give up.**
 
-Dalai Lama
+Anonymous
