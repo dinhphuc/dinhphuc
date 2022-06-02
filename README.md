@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once we accept our limits, we go beyond them.**
+**The secret of getting ahead is getting started.**
 
-Albert Einstein
+Mark Twain
