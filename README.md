@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how you feel, get up, dress up, show up and never give up.**
+**How wonderful it is that nobody need wait a single moment before starting to improve the world.**
 
-Anonymous
+Anne Frank
