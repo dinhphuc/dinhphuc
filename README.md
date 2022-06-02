@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We can't help everyone, but everyone can help someone.**
+**No matter how you feel, get up, dress up, show up and never give up.**
 
-Ronald Reagan
+Anonymous
