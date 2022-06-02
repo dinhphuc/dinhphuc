@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You miss 100% of the shots you don't take.**
+**Blessings sometimes show up in unrecognizable disguises.**
 
-Wayne Gretzky
+Janette Oke
