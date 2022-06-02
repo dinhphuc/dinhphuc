@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We love life, not because we are used to living but because we are used to loving.**
+**It's not about perfect. It's about effort.**
 
-Friedrich Nietzsche
+Jillian Michaels
