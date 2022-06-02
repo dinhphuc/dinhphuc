@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Positive anything is better than negative nothing.**
+**You will face many defeats in life, but never let yourself be defeated.**
 
-Elbert Hubbard
+Maya Angelou
