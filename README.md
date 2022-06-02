@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Blessings sometimes show up in unrecognizable disguises.**
+**The secret of getting ahead is getting started.**
 
-Janette Oke
+Mark Twain
