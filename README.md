@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot propel yourself forward by patting yourself on the back.**
+**It's easy to stand in the crowd but it takes courage to stand alone.**
 
-Steve Prefontaine
+Mahatma Gandhi
