@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't get discouraged by what you're going through. Your time is coming. Where you are is not where you're going to stay.**
+**Good judgment comes from experience, and a lot of that comes from bad judgment.**
 
-Anonymous
+Will Rogers
