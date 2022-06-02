@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hate. It has caused a lot of problems in this world but has not solved one yet.**
+**The beginning is the most important part of the work.**
 
-Maya Angelou
+Plato
