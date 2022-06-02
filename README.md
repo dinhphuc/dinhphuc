@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of getting ahead is getting started.**
+**Don't just glov, dazzle.**
 
-Mark Twain
+Anonymous
