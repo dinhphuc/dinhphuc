@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Change your thoughts and you change your world.**
+**Hate. It has caused a lot of problems in this world but has not solved one yet.**
 
-Norman Vincent Peale
+Maya Angelou
