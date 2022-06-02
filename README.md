@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not about perfect. It's about effort.**
+**No matter how much it hurts, hold your head up and keep going.**
 
-Jillian Michaels
+Anonymous
