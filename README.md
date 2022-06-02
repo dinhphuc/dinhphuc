@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will face many defeats in life, but never let yourself be defeated.**
+**Use your smile to change the world; don't let the world change your smile.**
 
-Maya Angelou
+Chinese proverb
