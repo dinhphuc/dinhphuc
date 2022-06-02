@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good judgment comes from experience, and a lot of that comes from bad judgment.**
+**It's not about perfect. It's about effort.**
 
-Will Rogers
+Jillian Michaels
