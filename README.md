@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Use your smile to change the world; don't let the world change your smile.**
+**You cannot propel yourself forward by patting yourself on the back.**
 
-Chinese proverb
+Steve Prefontaine
