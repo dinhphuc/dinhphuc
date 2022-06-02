@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't just glov, dazzle.**
+**It is not how much we have, but how much we enjoy, that makes happiness.**
 
-Anonymous
+Charles Spurgeon
