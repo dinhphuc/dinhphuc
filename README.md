@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how much it hurts, hold your head up and keep going.**
+**You miss 100% of the shots you don't take.**
 
-Anonymous
+Wayne Gretzky
