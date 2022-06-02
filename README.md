@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength is the product of struggle. You must do what others don't to achieve what others wont.**
+**An inch of gold can't buy an inch of time.**
 
-Henry Rollins
+Chinese Proverb
