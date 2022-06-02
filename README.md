@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not about perfect. It's about effort.**
+**We can't help everyone, but everyone can help someone.**
 
-Jillian Michaels
+Ronald Reagan
