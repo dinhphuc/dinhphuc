@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**How wonderful it is that nobody need wait a single moment before starting to improve the world.**
+**Strength is the product of struggle. You must do what others don't to achieve what others wont.**
 
-Anne Frank
+Henry Rollins
