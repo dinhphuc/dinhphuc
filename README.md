@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not how much we have, but how much we enjoy, that makes happiness.**
+**Stop beating yourself up. You are a work in progress which means you get there a little at a time, not all at once.**
 
-Charles Spurgeon
+Anonymous
