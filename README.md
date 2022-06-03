@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.**
+**The very best thing you can do for the whole world is to make the best of yourself.**
 
-Samuel Beckett
+Anonymous
