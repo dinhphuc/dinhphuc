@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Impossible is nothing.**
+**The positive thinker sees the invisible, feels the intangible, and achieves the impossible.**
 
-Muhammad Ali
+Winston Churchill
