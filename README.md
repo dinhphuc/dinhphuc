@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When it's pouring rain and you're bowling along through the wet, there's satisfaction in knowing you're out there and the others aren't.**
+**Successful people are not gifted; they just work hard, then succeed on purpose.**
 
-Peter Snell
+G.K. Nielson
