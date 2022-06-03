@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Climb the mountains to see lowlands.**
+**Confidence is something you create in yourself by believing in who you are.**
 
-Chinese Proverb
+Anonymous
