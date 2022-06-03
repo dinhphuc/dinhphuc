@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Make each day your masterpiece.**
+**Live life to the fullest and focus on the positive.**
 
-John Wooden
+Matt Cameron
