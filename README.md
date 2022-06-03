@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**With confidence you have won before you have started.**
+**Success seems to be connected with action. Successful people keep moving. They make mistakes, but they don't quit.**
 
-Marcus Garvey
+Conrad Hilton
