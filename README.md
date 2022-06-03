@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't downgrade your dream just to fit your reality. Upgrade your conviction to match your destiny.**
+**Obstacles don't have to stop you. If you run into a wall, don't turn around and give up. Figure out how to climb it, go through it, or work around it.**
 
-John Assaraf
+Michael Jordan
