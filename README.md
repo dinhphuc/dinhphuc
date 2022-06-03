@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only thing worse than starting something and failing... is not starting something.**
+**With confidence you have won before you have started.**
 
-Seth Godin
+Marcus Garvey
