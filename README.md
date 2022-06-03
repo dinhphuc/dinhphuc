@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Make each day your masterpiece.**
+**You are wonderfully made.**
 
-John Wooden
+Anonymous
