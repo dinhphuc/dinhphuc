@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you feel like giving up, just look back on how far you are already.**
+**Do or do not. There is no try.**
 
-Anonymous
+Yoda
