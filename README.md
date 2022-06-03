@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live life to the fullest and focus on the positive.**
+**If you feel like giving up, just look back on how far you are already.**
 
-Matt Cameron
+Anonymous
