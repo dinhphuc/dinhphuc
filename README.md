@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The positive thinker sees the invisible, feels the intangible, and achieves the impossible.**
+**The only thing worse than starting something and failing... is not starting something.**
 
-Winston Churchill
+Seth Godin
