@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success seems to be connected with action. Successful people keep moving. They make mistakes, but they don't quit.**
+**If you can't find the opportunities you're looking for...create them.**
 
-Conrad Hilton
+Anonymous
