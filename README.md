@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always deliver more than expected.**
+**Only a life lived for others is a life worthwhile.**
 
-Larry Page
+Albert Einstein
