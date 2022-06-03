@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If your dreams don't scare you, they aren't big enough.**
+**Climb the mountains to see lowlands.**
 
-Muhammad Ali
+Chinese Proverb
