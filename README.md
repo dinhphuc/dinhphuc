@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do or do not. There is no try.**
+**Impossible is nothing.**
 
-Yoda
+Muhammad Ali
