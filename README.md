@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't love what you do, you won't do it with much conviction or passion.**
+**Keep your face always toward the sunshine - and shadows will fall behind you.**
 
-Mia Hamm
+Walt Whitman
