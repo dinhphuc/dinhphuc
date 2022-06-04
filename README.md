@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not human nature to enjoy what we get with no effort.**
+**It feels good when you can put a smile on someone's face by simply being yourself.**
 
-Sri Chinmoy
+Anonymous
