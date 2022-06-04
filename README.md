@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Spread love everywhere you go. Let no one ever come to you without leaving happier.**
+**Words may inspire but only action creates change.**
 
-Mother Teresa
+Simon Sinek
