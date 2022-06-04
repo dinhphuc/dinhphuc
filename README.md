@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Work hard in silence. Let success make the noise.**
+**You can't always control what goes on outside, but you can always control what goes on inside.**
 
-Anonymous
+Wayne Dyer
