@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If one dream should fall and break into a thousand pieces, never be afraid to pick one of those pieces up and begin again.**
+**Some people dream of success... while others wake up and work hard at it.**
 
-Flavia Weedn
+Anonymous
