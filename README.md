@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Ask yourself: Can I give more? The answer is usually: Yes.**
+**Words may inspire but only action creates change.**
 
-Paul Tergat
+Simon Sinek
