@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't always control what goes on outside, but you can always control what goes on inside.**
+**If you feel like giving up, just look back on how far you are already.**
 
-Wayne Dyer
+Anonymous
