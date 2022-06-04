@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep your face always toward the sunshine - and shadows will fall behind you.**
+**You may encounter many defeats, but you must not be defeated.**
 
-Walt Whitman
+Maya Angelou
