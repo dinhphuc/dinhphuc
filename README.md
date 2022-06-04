@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing is impossible, the word itself says "I'm possible"!**
+**There is only one corner of the universe you can be certain of improving, and that's your own self.**
 
-Audrey Hepburn
+Aldous Huxley
