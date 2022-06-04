@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure is not the falling down but the staying down.**
+**You cannot shake hands with a clenched fist.**
 
-Anonymous
+Indira Gandhi
