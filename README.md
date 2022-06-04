@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I have found that if you love life, life will love you back.**
+**Don't give up on yourself. You're worth it.**
 
-Arthur Rubinstein
+Anonymous
