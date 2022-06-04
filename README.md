@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure is not the falling down but the staying down.**
+**Work hard in silence. Let success make the noise.**
 
 Anonymous
