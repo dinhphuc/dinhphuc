@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**People will see you the way you see yourself.**
+**When we help ourselves, we find moments of happiness. When we help others, we find lasting fulfillment.**
 
-Sergio Diaz
+Simon Sinek
