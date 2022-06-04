@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Words may inspire but only action creates change.**
+**Hardships often prepare ordinary people for an extraordinary destiny.**
 
-Simon Sinek
+C.S. Lewis
