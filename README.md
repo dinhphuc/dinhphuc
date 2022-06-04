@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you feel like giving up, just look back on how far you are already.**
+**I have found that if you love life, life will love you back.**
 
-Anonymous
+Arthur Rubinstein
