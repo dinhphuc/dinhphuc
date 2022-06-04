@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't cry because it's over, smile because it happened.**
+**People will see you the way you see yourself.**
 
-Dr. Seuss
+Sergio Diaz
