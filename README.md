@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hardships often prepare ordinary people for an extraordinary destiny.**
+**You matter.**
 
-C.S. Lewis
+Anonymous
