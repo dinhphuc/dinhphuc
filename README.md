@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't give up on yourself. You're worth it.**
+**Skill is only developed by hours and hours of work.**
 
-Anonymous
+Usain Bolt
