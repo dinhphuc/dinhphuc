@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Skill is only developed by hours and hours of work.**
+**It is not the strongest of the species that survive, nor the most intelligent, but the one most responsive to change.**
 
-Usain Bolt
+Charles Darwin
