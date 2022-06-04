@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Not all those who wander are lost.**
+**If you get tired, learn to rest, not quit.**
 
-J. R. R. Tolkien
+Anonymous
