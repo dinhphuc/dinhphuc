@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Some people dream of success... while others wake up and work hard at it.**
+**If you don't love what you do, you won't do it with much conviction or passion.**
 
-Anonymous
+Mia Hamm
