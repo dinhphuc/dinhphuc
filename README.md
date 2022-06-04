@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It feels good when you can put a smile on someone's face by simply being yourself.**
+**Not all those who wander are lost.**
 
-Anonymous
+J. R. R. Tolkien
