@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you get tired, learn to rest, not quit.**
+**Ask yourself: Can I give more? The answer is usually: Yes.**
 
-Anonymous
+Paul Tergat
