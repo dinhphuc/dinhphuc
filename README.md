@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You may encounter many defeats, but you must not be defeated.**
+**The more you praise and celebrate your life, the more there is in life to celebrate.**
 
-Maya Angelou
+Oprah Winfrey
