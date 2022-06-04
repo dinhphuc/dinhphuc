@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You matter.**
+**Failure is not the falling down but the staying down.**
 
 Anonymous
