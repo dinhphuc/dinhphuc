@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every champion was once a contender that refused to give up.**
+**To be willing is only half the task.**
 
-Rocky Balboa
+Armenian Proverb
