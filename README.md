@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Words may inspire but only action creates change.**
+**Easy choices, hard life. Hard choices, easy life.**
 
-Simon Sinek
+Jerzy Gregorek
