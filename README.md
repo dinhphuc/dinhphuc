@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Words may inspire but only action creates change.**
+**In a battle between elephants, the ants get squashed.**
 
-Simon Sinek
+Thai Proverb
