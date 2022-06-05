@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The best preparation for tomorrow is doing your best today.**
+**When written in Chinese the word "crisis" is composed of two characters - one represents danger and the other represents opportunity.**
 
-H. Jackson Brown, Jr
+John F. Kennedy
