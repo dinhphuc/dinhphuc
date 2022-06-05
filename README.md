@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No one who can rise before dawn three hundred sixty days a year fails to make his family rich.**
+**A dream does not become reality through magic; it takes sweat, determination and hard work.**
 
-Malcolm Gladwell
+Colin Powell
