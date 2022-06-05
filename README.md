@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can alter mood by running.**
+**When you find your why, you find a way to make it happen.**
 
-Tumpal Sihombing
+Eric Thomas
