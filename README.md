@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We love life, not because we are used to living but because we are used to loving.**
+**The best preparation for tomorrow is doing your best today.**
 
-Friedrich Nietzsche
+H. Jackson Brown, Jr
