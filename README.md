@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Build your own dreams, or someone else will hire you to build theirs.**
+**Speed is irrelevant if you are going in the wrong direction.**
 
-Farrah Gray
+Mahatma Gandhi
