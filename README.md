@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want it, you'll find a way. If you don't, you'll find an excuse.**
+**You are your only limit.**
 
 Anonymous
