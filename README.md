@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When written in Chinese the word "crisis" is composed of two characters - one represents danger and the other represents opportunity.**
+**I'm too grateful to be hateful. I am too blessed to be stressed.**
 
-John F. Kennedy
+El DeBarge
