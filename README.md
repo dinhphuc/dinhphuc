@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A dream does not become reality through magic; it takes sweat, determination and hard work.**
+**We love life, not because we are used to living but because we are used to loving.**
 
-Colin Powell
+Friedrich Nietzsche
