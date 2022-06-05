@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In a battle between elephants, the ants get squashed.**
+**We love life, not because we are used to living but because we are used to loving.**
 
-Thai Proverb
+Friedrich Nietzsche
