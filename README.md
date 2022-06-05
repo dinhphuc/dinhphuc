@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter who you are, no matter what you did, no matter where you've come from, you can always change, and become a better version of yourself.**
+**Whoever loves much, performs much, and can accomplish much, and what is done in love is done well.**
 
-Madonna
+Vincent van Gogh
