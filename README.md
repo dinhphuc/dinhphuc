@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are two ways of spreading light: to be the candle, or the mirror that reflects it.**
+**Happy are those who take life day by day, complain very little, and are thankful for the little things in life.**
 
-Edith Wharton
+Anonymous
