@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good, better, best. Never let it rest. Until your good is better and your better is best.**
+**Never underestimate the power you have to take your life in a new direction.**
 
-Tim Duncan
+Germany Kent
