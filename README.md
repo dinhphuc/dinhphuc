@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I am happy because I'm grateful. I choose to be grateful. That gratitude allows me to be happy.**
+**Build your own dreams, or someone else will hire you to build theirs.**
 
-Will Arnett
+Farrah Gray
