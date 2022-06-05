@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm too grateful to be hateful. I am too blessed to be stressed.**
+**If you want it, you'll find a way. If you don't, you'll find an excuse.**
 
-El DeBarge
+Anonymous
