@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you find your why, you find a way to make it happen.**
+**Don't regret the past, just learn from it.**
 
-Eric Thomas
+Ben Ipock
