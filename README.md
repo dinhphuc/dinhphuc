@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To be willing is only half the task.**
+**No one who can rise before dawn three hundred sixty days a year fails to make his family rich.**
 
-Armenian Proverb
+Malcolm Gladwell
