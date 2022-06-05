@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to achieve greatness, stop asking for permission.**
+**No matter who you are, no matter what you did, no matter where you've come from, you can always change, and become a better version of yourself.**
 
-Anonymous
+Madonna
