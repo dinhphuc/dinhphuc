@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you find your why, you find a way to make it happen.**
+**Don't cry because it's over, smile because it happened.**
 
-Eric Thomas
+Dr. Seuss
