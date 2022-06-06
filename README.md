@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.**
+**Friends show their love in times of trouble, not in happiness.**
 
-Henry Ford
+Euripides
