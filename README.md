@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no greater miracle than our conscious efforts to become good human beings.**
+**What we achieve inwardly will change outer reality.**
 
-Sri Chinmoy
+Plutarch
