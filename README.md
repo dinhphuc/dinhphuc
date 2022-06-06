@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Are your excuses more important than your dreams?**
+**May you live all the days of your life.**
 
-Anonymous
+Jonathan Swift
