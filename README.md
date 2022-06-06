@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never underestimate the power you have to take your life in a new direction.**
+**Opportunities don't happen. You create them.**
 
-Germany Kent
+Chris Grosser
