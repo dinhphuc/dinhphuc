@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In this life we cannot do great things. We can only do small things with great love.**
+**Only a life lived for others is a life worthwhile.**
 
-Mother Teresa
+Albert Einstein
