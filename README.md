@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**May you live all the days of your life.**
+**You don't gain anything from stressing. Remember that.**
 
-Jonathan Swift
+Anonymous
