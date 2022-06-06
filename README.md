@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want light to come into your life, you need to stand where it is shining.**
+**When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.**
 
-Guy Finley
+Henry Ford
