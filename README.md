@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's a good day to be happy.**
+**A hero is an ordinary individual who finds the strength to persevere and endure in spite of overwhelming obstacles.**
 
-Anonymous
+Christopher Reeve
