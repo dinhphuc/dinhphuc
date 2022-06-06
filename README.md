@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Friends show their love in times of trouble, not in happiness.**
+**The only journey is the one within.**
 
-Euripides
+Rainer Maria Rilke
