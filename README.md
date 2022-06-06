@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be a voice not an echo.**
+**You need to spend time crawling alone through shadows to truly appreciate what it is to stand in the sun.**
 
-Anonymous
+Shaun Hick
