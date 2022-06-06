@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A hero is an ordinary individual who finds the strength to persevere and endure in spite of overwhelming obstacles.**
+**Shared joy is a double joy; shared sorrow is half a sorrow.**
 
-Christopher Reeve
+Swedish Proverb
