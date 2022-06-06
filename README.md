@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Opportunities don't happen. You create them.**
+**The real opportunity for success lies within the person and not in the job.**
 
-Chris Grosser
+Zig Ziglar
