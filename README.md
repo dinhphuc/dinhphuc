@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest glory in living lies not in never falling, but in rising every time we fall.**
+**There is no greater miracle than our conscious efforts to become good human beings.**
 
-Nelson Mandela
+Sri Chinmoy
