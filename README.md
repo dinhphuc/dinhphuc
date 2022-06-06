@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no cosmetic for beauty like happiness.**
+**Good friends are like stars. You don't always see them, but you know they're always there.**
 
-Maria Mitchell
+Christy Evans
