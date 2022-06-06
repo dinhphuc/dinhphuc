@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The real opportunity for success lies within the person and not in the job.**
+**It's a good day to be happy.**
 
-Zig Ziglar
+Anonymous
