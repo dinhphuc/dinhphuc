@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be happy not because everything is good, but because you can see the good side of everything.**
+**If you want light to come into your life, you need to stand where it is shining.**
 
-Anonymous
+Guy Finley
