@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only a life lived for others is a life worthwhile.**
+**It ain't as bad as you think. It will look better in the morning.**
 
-Albert Einstein
+Colin Powell
