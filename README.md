@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's better to light a candle than curse the darkness.**
+**Are your excuses more important than your dreams?**
 
-Chinese Proverb
+Anonymous
