@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good friends are like stars. You don't always see them, but you know they're always there.**
+**Happiness is not out there, it's in you.**
 
-Christy Evans
+Anonymous
