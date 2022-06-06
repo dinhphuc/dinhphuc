@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Who begins too much accomplishes little.**
+**There is no cosmetic for beauty like happiness.**
 
-German Proverb
+Maria Mitchell
