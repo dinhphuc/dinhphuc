@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is not out there, it's in you.**
+**In this life we cannot do great things. We can only do small things with great love.**
 
-Anonymous
+Mother Teresa
