@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It always seems impossible until it's done.**
+**Be happy not because everything is good, but because you can see the good side of everything.**
 
-Nelson Mandela
+Anonymous
