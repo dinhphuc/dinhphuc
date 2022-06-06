@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**None of us is as smart as all of us.**
+**You need to spend time crawling alone through shadows to truly appreciate what it is to stand in the sun.**
 
-Ken Blanchard
+Shaun Hick
