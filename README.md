@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What we achieve inwardly will change outer reality.**
+**Who begins too much accomplishes little.**
 
-Plutarch
+German Proverb
