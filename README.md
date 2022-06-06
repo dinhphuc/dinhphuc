@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You need to spend time crawling alone through shadows to truly appreciate what it is to stand in the sun.**
+**The greatest glory in living lies not in never falling, but in rising every time we fall.**
 
-Shaun Hick
+Nelson Mandela
