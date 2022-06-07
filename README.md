@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A leader is one who knows the way, goes the way, and shows the way.**
+**Float like a butterfly, sting like a bee.**
 
-John C. Maxwell
+Muhammad Ali
