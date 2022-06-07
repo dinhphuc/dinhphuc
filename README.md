@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In life, many things don't go according to plan. If you fall, get back up. If you stumble, regain your balance. Never give up.**
+**The difference between ordinary and extraordinary is that little extra.**
 
-Anonymous
+Jimmy Johnson
