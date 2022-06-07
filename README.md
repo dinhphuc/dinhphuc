@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Where love reigns, the impossible may be attained.**
+**Everytime you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**
 
-Indian Proverb
+Mother Teresa
