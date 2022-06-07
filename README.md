@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love cures people - both the ones who give it and the ones who receive it.**
+**We are what we repeatedly do. Excellence, then, is not an act, but a habit.**
 
-Karl A. Menninger
+Aristotle
