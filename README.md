@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When I hear somebody sigh, 'Life is hard,' I am always tempted to ask, 'Compared to what?'**
+**In a dark place we find ourselves, and a little more knowledge lights our way.**
 
-Sydney Harris
+Yoda
