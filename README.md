@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**May the Force be with you.**
+**A leader is one who knows the way, goes the way, and shows the way.**
 
-Yoda
+John C. Maxwell
