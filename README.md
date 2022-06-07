@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Surround yourself with people who get you.**
+**Don't let the past steal your present.**
 
-Anonymous
+Terri Guillemets
