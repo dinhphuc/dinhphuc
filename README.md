@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your body is made to move so move it.**
+**Be gentle with yourself. You're doing the best you can.**
 
-Toni Sorenson
+Anonymous
