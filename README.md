@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep smiling. It makes people wonder what you are up to.**
+**May the Force be with you.**
 
-Anonymous
+Yoda
