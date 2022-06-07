@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Shared joy is a double joy; shared sorrow is half a sorrow.**
+**The only impossible journey is the one you never begin.**
 
-Swedish Proverb
+Tony Robbins
