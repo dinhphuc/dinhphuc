@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whoever gossips to you will gossip about you.**
+**Speed is irrelevant if you are going in the wrong direction.**
 
-Spanish Proverb
+Mahatma Gandhi
