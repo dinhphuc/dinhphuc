@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We are what we repeatedly do. Excellence, then, is not an act, but a habit.**
+**Success is the sum of small efforts repeated day-in and day-out.**
 
-Aristotle
+Robert Collier
