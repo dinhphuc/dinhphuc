@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Even the smallest shift in perspective can bring about the greatest healing.**
+**Shine like the whole universe is yours.**
 
-Joshua Kai
+Rumi
