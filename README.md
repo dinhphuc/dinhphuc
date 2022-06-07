@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Passion first and everything will fall into place.**
+**When I hear somebody sigh, 'Life is hard,' I am always tempted to ask, 'Compared to what?'**
 
-Holly Holm
+Sydney Harris
