@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is the sum of small efforts repeated day-in and day-out.**
+**People who make you feel better about yourself when you're sad are so important.**
 
-Robert Collier
+Anonymous
