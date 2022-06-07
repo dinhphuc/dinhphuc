@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between ordinary and extraordinary is that little extra.**
+**Keep smiling. It makes people wonder what you are up to.**
 
-Jimmy Johnson
+Anonymous
