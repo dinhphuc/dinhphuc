@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Shine like the whole universe is yours.**
+**Where love reigns, the impossible may be attained.**
 
-Rumi
+Indian Proverb
