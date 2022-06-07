@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be gentle with yourself. You're doing the best you can.**
+**Whoever gossips to you will gossip about you.**
 
-Anonymous
+Spanish Proverb
