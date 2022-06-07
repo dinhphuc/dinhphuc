@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**My heart is always open to love.**
+**In life, many things don't go according to plan. If you fall, get back up. If you stumble, regain your balance. Never give up.**
 
 Anonymous
