@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Speed is irrelevant if you are going in the wrong direction.**
+**Gratitude turns what we have into enough.**
 
-Mahatma Gandhi
+Anonymous
