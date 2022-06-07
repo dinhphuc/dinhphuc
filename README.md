@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In a dark place we find ourselves, and a little more knowledge lights our way.**
+**Your body is made to move so move it.**
 
-Yoda
+Toni Sorenson
