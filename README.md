@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is about making an impact, not making an income.**
+**The only person who can pull me down is myself, and I'm not going to let myself pull me down anymore.**
 
-Kevin Kruse
+C. JoyBell C
