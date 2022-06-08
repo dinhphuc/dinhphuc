@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every morning you have a new opportunity to become a happier version of yourself.**
+**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
 
 Anonymous
