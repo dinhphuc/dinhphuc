@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be strong now, because things will get better. It might be stormy now, but it can't rain forever.**
+**Everything has beauty, but not everyone can see.**
 
-Anonymous
+Confucius
