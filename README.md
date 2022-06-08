@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't wait for opportunity. Create it.**
+**Life is about making an impact, not making an income.**
 
-Anonymous
+Kevin Kruse
