@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We are what we repeatedly do. Excellence, then, is not an act, but a habit.**
+**Spend more of your time on what gives you energy and less of your time on what takes it away.**
 
-Aristotle
+Anonymous
