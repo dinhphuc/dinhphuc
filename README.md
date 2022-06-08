@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I can and I will. Watch me.**
+**Look at this tree. I cannot make it blossom when it suits me, nor make it bear fruit before its time.**
 
-Carrie Green
+Master Oogway
