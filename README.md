@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Look at this tree. I cannot make it blossom when it suits me, nor make it bear fruit before its time.**
+**Believe with all of your heart that you will do what you were made to do.**
 
-Master Oogway
+Orison Swett Marden
