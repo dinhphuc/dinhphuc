@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The way I see it, if you want the rainbow, you gotta put up with the rain.**
+**Even if I knew that tomorrow the world would go to pieces, I would still plant my apple tree.**
 
-Dolly Parton
+Martin Luther
