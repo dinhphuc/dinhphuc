@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Look for something positive in each day, even if some days you have to look a little harder.**
+**Strength isn't about how much you can handle before you break. It's about how much you can endure after you've been broken.**
 
 Anonymous
