@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can't live longer, live deeper.**
+**Be strong now, because things will get better. It might be stormy now, but it can't rain forever.**
 
-Italian Proverb
+Anonymous
