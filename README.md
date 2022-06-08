@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only person who can pull me down is myself, and I'm not going to let myself pull me down anymore.**
+**Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence.**
 
-C. JoyBell C
+Helen Keller
