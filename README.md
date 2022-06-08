@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
+**The way I see it, if you want the rainbow, you gotta put up with the rain.**
 
-Anonymous
+Dolly Parton
