@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live life to the fullest and focus on the positive.**
+**Always plan for the fact that no plan ever goes according to plan.**
 
-Matt Cameron
+Simon Sinek
