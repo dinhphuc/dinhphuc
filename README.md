@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Choosing to be positive and having a grateful attitude is going to determine how you're going to live your life.**
+**Look for something positive in each day, even if some days you have to look a little harder.**
 
-Joel Osteen
+Anonymous
