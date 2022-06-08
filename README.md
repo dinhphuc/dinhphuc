@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Spend more of your time on what gives you energy and less of your time on what takes it away.**
+**Smaller in number are we, but larger in mind.**
 
-Anonymous
+Yoda
