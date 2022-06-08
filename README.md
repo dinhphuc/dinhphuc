@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want it, you'll find a way. If you don't, you'll find an excuse.**
+**Spend more of your time on what gives you energy and less of your time on what takes it away.**
 
 Anonymous
