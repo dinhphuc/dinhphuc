@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You were born to win. But to be a winner, you must plan to win, prepare to win, and expect to win.**
+**We are what we repeatedly do. Excellence, then, is not an act, but a habit.**
 
-Zig Ziglar
+Aristotle
