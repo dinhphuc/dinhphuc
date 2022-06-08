@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is about making an impact, not making an income.**
+**It's the repetition of affirmations that leads to belief. And once that belief becomes a deep conviction, things begin to happen.**
 
-Kevin Kruse
+Muhammad Ali
