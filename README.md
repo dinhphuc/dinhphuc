@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything has beauty, but not everyone can see.**
+**Live life to the fullest and focus on the positive.**
 
-Confucius
+Matt Cameron
