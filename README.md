@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No act of kindness, no matter how small, is ever wasted.**
+**Don't wish it were easier. Wish you were better.**
 
-Aesop
+Jim Rohn
