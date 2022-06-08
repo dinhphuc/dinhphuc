@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's the repetition of affirmations that leads to belief. And once that belief becomes a deep conviction, things begin to happen.**
+**Don't wait for opportunity. Create it.**
 
-Muhammad Ali
+Anonymous
