@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**With confidence you have won before you have started.**
+**Be strong when you are weak, brave when you are scared, and humble when you are victorious.**
 
-Marcus Garvey
+Anonymous
