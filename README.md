@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smaller in number are we, but larger in mind.**
+**Choosing to be positive and having a grateful attitude is going to determine how you're going to live your life.**
 
-Yoda
+Joel Osteen
