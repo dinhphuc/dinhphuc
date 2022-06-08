@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be strong when you are weak, brave when you are scared, and humble when you are victorious.**
+**I was angry that I had no shoes. Then I met a man who had no feet.**
 
-Anonymous
+Chinese Proverb
