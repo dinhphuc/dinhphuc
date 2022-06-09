@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be you. Do you. For you.**
+**You cannot propel yourself forward by patting yourself on the back.**
 
-Anonymous
+Steve Prefontaine
