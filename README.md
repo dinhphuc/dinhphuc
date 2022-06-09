@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't find will power, you create it.**
+**When it comes to success, there are no shortcuts.**
 
-Anonymous
+Bo Bennett
