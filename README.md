@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The positive thinker sees the invisible, feels the intangible, and achieves the impossible.**
+**A successful man is one who can lay a firm foundation with the bricks others have thrown at him.**
 
-Winston Churchill
+David Brinkley
