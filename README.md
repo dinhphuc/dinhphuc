@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot propel yourself forward by patting yourself on the back.**
+**Today you are you! That is truer than true! There is no one alive who is you-er than you!**
 
-Steve Prefontaine
+Dr. Seuss
