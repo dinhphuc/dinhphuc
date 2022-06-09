@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One of the simplest ways to be happy is letting go of the things that make you sad.**
+**You don't have to be great to start. But you do have to start to be great.**
 
-Anonymous
+Zig Ziglar
