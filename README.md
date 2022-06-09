@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't wish it were easier. Wish you were better.**
+**Be you. Do you. For you.**
 
-Jim Rohn
+Anonymous
