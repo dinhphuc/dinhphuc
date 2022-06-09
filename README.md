@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't have to be great to start. But you do have to start to be great.**
+**The positive thinker sees the invisible, feels the intangible, and achieves the impossible.**
 
-Zig Ziglar
+Winston Churchill
