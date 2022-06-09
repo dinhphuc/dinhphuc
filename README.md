@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When I hear somebody sigh, 'Life is hard,' I am always tempted to ask, 'Compared to what?'**
+**You cannot change the direction of the wind - only alter the angle of your sails.**
 
-Sydney Harris
+Anonymous
