@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to change the world, start with yourself.**
+**When I hear somebody sigh, 'Life is hard,' I am always tempted to ask, 'Compared to what?'**
 
-Mahatma Gandhi
+Sydney Harris
