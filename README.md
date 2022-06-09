@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't find will power, you create it.**
+**Whatever you decide to do, make sure it makes you happy.**
 
 Anonymous
