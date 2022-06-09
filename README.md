@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Some people ask me 'How to be happy' and my answer is always the same: just be happy!**
+**There's nothing that you can do that can't be done.**
 
-Anonymous
+The Beatles
