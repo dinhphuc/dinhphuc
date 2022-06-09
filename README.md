@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be aware as often as possible of the great transformation process you are going through.**
+**No matter where you are on your journey, that's exactly where you need to be.**
 
-Anonymous
+Oprah Winfrey
