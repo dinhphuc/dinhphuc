@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Before telling secrets on the road, look in the bushes.**
+**Spend more of your time on what gives you energy and less of your time on what takes it away.**
 
-Chinese Proverb
+Anonymous
