@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are stronger than you think.**
+**Be aware as often as possible of the great transformation process you are going through.**
 
 Anonymous
