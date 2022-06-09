@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A successful man is one who can lay a firm foundation with the bricks others have thrown at him.**
+**Life is about making an impact, not making an income.**
 
-David Brinkley
+Kevin Kruse
