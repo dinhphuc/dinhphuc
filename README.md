@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There's nothing that you can do that can't be done.**
+**You are stronger than you think.**
 
-The Beatles
+Anonymous
