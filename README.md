@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is about making an impact, not making an income.**
+**You don't find will power, you create it.**
 
-Kevin Kruse
+Anonymous
