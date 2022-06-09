@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can either spend your time or invest your time.**
+**Some people dream of success... while others wake up and work hard at it.**
 
-Chip Kelly
+Anonymous
