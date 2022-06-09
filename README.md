@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Today you are you! That is truer than true! There is no one alive who is you-er than you!**
+**Each time I thought I had achieved my life's purpose, I discovered it was only another step in my journey.**
 
-Dr. Seuss
+Muhammad Ali
