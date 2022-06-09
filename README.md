@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter where you are on your journey, that's exactly where you need to be.**
+**You can either spend your time or invest your time.**
 
-Oprah Winfrey
+Chip Kelly
