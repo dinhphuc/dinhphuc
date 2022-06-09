@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you decide to do, make sure it makes you happy.**
+**Once I realized the problem was not you but within me. I found inner peace and was able to harness the flow of the universe.**
 
-Anonymous
+Master Shifu
