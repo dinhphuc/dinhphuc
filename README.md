@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot change the direction of the wind - only alter the angle of your sails.**
+**Some people ask me 'How to be happy' and my answer is always the same: just be happy!**
 
 Anonymous
