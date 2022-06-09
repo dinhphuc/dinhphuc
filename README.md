@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whoever is happy will make others happy too.**
+**It's important to feel good about yourself. When you feel good about yourself, nothing negative can touch you.**
 
 Anonymous
