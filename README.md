@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Risk more than others think is safe. Dream more than others think is practical.**
+**Before telling secrets on the road, look in the bushes.**
 
-Anonymous
+Chinese Proverb
