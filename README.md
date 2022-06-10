@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Even the smallest shift in perspective can bring about the greatest healing.**
+**Think gold and never settle for silver.**
 
-Joshua Kai
+Jim Afremow
