@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Think gold and never settle for silver.**
+**Leadership is not about being in charge. Leadership is about taking care of those in your charge.**
 
-Jim Afremow
+Simon Sinek
