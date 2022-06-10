@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is short, and it is up to you to make it sweet.**
+**If you get tired, learn to rest, not quit.**
 
-Sarah Louise Delany
+Anonymous
