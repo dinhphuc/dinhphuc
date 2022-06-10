@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Focus on being productive instead of busy.**
+**Life is short, and it is up to you to make it sweet.**
 
-Tim Ferris
+Sarah Louise Delany
