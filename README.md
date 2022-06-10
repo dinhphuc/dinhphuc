@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never stop believing in hope because miracles happen everyday.**
+**Whatever you do, do with all your might.**
 
-Anonymous
+Marcus Tullius Cicero
