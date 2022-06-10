@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You only live once, but if you do it right, once is enough.**
+**You cannot propel yourself forward by patting yourself on the back.**
 
-Mae West
+Steve Prefontaine
