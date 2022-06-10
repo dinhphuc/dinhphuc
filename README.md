@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will face many defeats in life, but never let yourself be defeated.**
+**As we express our gratitude, we must never forget that the highest appreciation is not to utter words, but to live by them.**
 
-Maya Angelou
+John F. Kennedy
