@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot propel yourself forward by patting yourself on the back.**
+**The harder the battle. The sweeter the victory.**
 
-Steve Prefontaine
+Les Brown
