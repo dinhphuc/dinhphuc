@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Replace those thoughts of worry with thoughts of hope, faith, and victory.**
+**It is not how much we have, but how much we enjoy, that makes happiness.**
 
-Joel Osteen
+Charles Spurgeon
