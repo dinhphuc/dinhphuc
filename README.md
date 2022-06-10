@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once you choose hope, anything's possible.**
+**Choose kindness and laugh often.**
 
-Christopher Reeve
+Anonymous
