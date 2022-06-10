@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The harder the battle. The sweeter the victory.**
+**Be strong when you are weak, brave when you are scared, and humble when you are victorious.**
 
-Les Brown
+Anonymous
