@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be afraid of your fears. They're not there to scare you. They're there to let you know that something is worth it.**
+**Replace those thoughts of worry with thoughts of hope, faith, and victory.**
 
-C. JoyBell C
+Joel Osteen
