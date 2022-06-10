@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live as if you were to die tomorrow. Learn as if you were to live forever.**
+**If it doesn't challenge you, it won't change you.**
 
-Mahatma Gandhi
+Anonymous
