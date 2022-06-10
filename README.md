@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The more you praise and celebrate your life, the more there is in life to celebrate.**
+**The reason we race isn't so much to beat each other,... but to be with each other.**
 
-Oprah Winfrey
+Christopher McDougall
