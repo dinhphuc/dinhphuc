@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The reason we race isn't so much to beat each other,... but to be with each other.**
+**Even the smallest shift in perspective can bring about the greatest healing.**
 
-Christopher McDougall
+Joshua Kai
