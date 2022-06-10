@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is a magical ride. Enjoy every moment.**
+**Runners just do it - they run for the finish line even if someone else has reached it first.**
 
-Anonymous
+Unknown
