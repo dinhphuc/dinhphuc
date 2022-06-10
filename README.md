@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be strong when you are weak, brave when you are scared, and humble when you are victorious.**
+**Live as if you were to die tomorrow. Learn as if you were to live forever.**
 
-Anonymous
+Mahatma Gandhi
