@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you do, do with all your might.**
+**Focus on being productive instead of busy.**
 
-Marcus Tullius Cicero
+Tim Ferris
