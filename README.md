@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Leadership is not about being in charge. Leadership is about taking care of those in your charge.**
+**Life is a magical ride. Enjoy every moment.**
 
-Simon Sinek
+Anonymous
