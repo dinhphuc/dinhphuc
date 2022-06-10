@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Push yourself because no one else is going to do it for you.**
+**You will face many defeats in life, but never let yourself be defeated.**
 
-Anonymous
+Maya Angelou
