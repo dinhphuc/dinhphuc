@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Runners just do it - they run for the finish line even if someone else has reached it first.**
+**You only live once, but if you do it right, once is enough.**
 
-Unknown
+Mae West
