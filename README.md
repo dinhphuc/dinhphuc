@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Focus on being productive instead of busy.**
+**Whether you think you can or can't, you're right.**
 
-Tim Ferris
+Henry Ford
