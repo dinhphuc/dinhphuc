@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not how much we have, but how much we enjoy, that makes happiness.**
+**Being happy is the greatest form of success.**
 
-Charles Spurgeon
+Anonymous
