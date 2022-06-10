@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Being happy is the greatest form of success.**
+**Push yourself because no one else is going to do it for you.**
 
 Anonymous
