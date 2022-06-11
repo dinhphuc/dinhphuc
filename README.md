@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your true success in life begins only when you make the commitment to become excellent at what you do.**
+**Push yourself because no one else is going to do it for you.**
 
-Brian Tracy
+Anonymous
