@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Who begins too much accomplishes little.**
+**The things you regret most in life are the risks you didn't take.**
 
-German Proverb
+Anonymous
