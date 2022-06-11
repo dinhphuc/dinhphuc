@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Continuous effort - not strength or intelligence - is the key to unlocking our potential.**
+**Goals may give focus, but dreams give power.**
 
-Liane Cardes
+John Maxwell
