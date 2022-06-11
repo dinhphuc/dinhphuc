@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You matter.**
+**Never give up. Keep going.**
 
 Anonymous
