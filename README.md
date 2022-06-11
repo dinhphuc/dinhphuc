@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your body is made to move so move it.**
+**Only those who risk going too far, can possibly find out how far one can go.**
 
-Toni Sorenson
+T.S. Elliot
