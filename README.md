@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hate. It has caused a lot of problems in this world but has not solved one yet.**
+**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
 
-Maya Angelou
+Anonymous
