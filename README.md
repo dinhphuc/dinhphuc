@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no cosmetic for beauty like happiness.**
+**Strength grows in the moments when you think you can't go on but you keep going anyway.**
 
-Maria Mitchell
+Anonymous
