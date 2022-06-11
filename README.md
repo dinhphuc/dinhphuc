@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only those who risk going too far, can possibly find out how far one can go.**
+**Hard times don't create heroes. It is during the hard times when the 'hero' within us is revealed.**
 
-T.S. Elliot
+Bob Riley
