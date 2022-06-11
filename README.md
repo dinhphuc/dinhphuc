@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're going through hell, keep going.**
+**Continuous effort - not strength or intelligence - is the key to unlocking our potential.**
 
-Winston Churchill
+Liane Cardes
