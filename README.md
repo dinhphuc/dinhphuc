@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Goals may give focus, but dreams give power.**
+**Build your own dreams, or someone else will hire you to build theirs.**
 
-John Maxwell
+Farrah Gray
