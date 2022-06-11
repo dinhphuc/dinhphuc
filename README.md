@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Build your own dreams, or someone else will hire you to build theirs.**
+**Your body is made to move so move it.**
 
-Farrah Gray
+Toni Sorenson
