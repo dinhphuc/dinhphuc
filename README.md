@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Build your own dreams, or someone else will hire you to build theirs.**
+**Working hard for something we don't care about is called stress; working hard for somthing we love is called passion.**
 
-Farrah Gray
+Simon Sinek
