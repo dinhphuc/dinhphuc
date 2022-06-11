@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Work hard in silence. Let success make the noise.**
+**Victory is always possible for the person who refuses to stop fighting.**
 
-Anonymous
+Napoleon Hill
