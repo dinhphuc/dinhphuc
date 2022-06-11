@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The biggest adventure you can take is to live the life of your dreams.**
+**There is nothing on this earth more to be prized than true friendship.**
 
-Oprah Winfrey
+Thomas Aquinas
