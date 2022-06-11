@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is nothing on this earth more to be prized than true friendship.**
+**It does not matter how slowly you go as long as you do not stop.**
 
-Thomas Aquinas
+Confucius
