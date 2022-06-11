@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Dream without fear. Love without limits.**
+**Build your own dreams, or someone else will hire you to build theirs.**
 
-Dilip Bathija
+Farrah Gray
