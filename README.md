@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hard times don't create heroes. It is during the hard times when the 'hero' within us is revealed.**
+**Your true success in life begins only when you make the commitment to become excellent at what you do.**
 
-Bob Riley
+Brian Tracy
