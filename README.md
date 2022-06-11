@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Victory is always possible for the person who refuses to stop fighting.**
+**There is no cosmetic for beauty like happiness.**
 
-Napoleon Hill
+Maria Mitchell
