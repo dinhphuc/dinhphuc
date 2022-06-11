@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up. Keep going.**
+**The biggest adventure you can take is to live the life of your dreams.**
 
-Anonymous
+Oprah Winfrey
