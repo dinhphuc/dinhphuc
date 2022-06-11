@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Education is the most powerful weapon which you can use to change the world.**
+**Continuous effort - not strength or intelligence - is the key to unlocking our potential.**
 
-Nelson Mandela
+Liane Cardes
