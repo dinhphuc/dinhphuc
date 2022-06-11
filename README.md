@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If it doesn't challenge you, it won't change you.**
+**Dream without fear. Love without limits.**
 
-Anonymous
+Dilip Bathija
