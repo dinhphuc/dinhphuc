@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Learning never exhausts the mind.**
+**Who begins too much accomplishes little.**
 
-Leonardo da Vinci
+German Proverb
