@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Age is whatever you think it is. You are as old as you think you are.**
+**Hate. It has caused a lot of problems in this world but has not solved one yet.**
 
-Muhammad Ali
+Maya Angelou
