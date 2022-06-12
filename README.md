@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody said it would be easy, so don't ever give up when it gets hard.**
+**One small positive thought in the morning can change your whole day.**
 
 Anonymous
