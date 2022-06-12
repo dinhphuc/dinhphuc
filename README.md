@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can't live longer, live deeper.**
+**Happiness is not something ready made. It comes from your own actions.**
 
-Italian Proverb
+Dalai Lama
