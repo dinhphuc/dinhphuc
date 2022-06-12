@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Instead of worrying about what you cannot control, shift your energy to what you can create.**
+**If you really look closely, most overnight successes took a long time.**
 
-Roy T. Bennett
+Steve Jobs
