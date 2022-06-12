@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Set a goal so big that you can't achieve it until you grow into the person who can.**
+**If you can't live longer, live deeper.**
 
-Anonymous
+Italian Proverb
