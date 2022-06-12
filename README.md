@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success doesn't just come and find you, you have to go out and get it.**
+**Set a goal that makes you want to jump out of bed in the morning.**
 
 Anonymous
