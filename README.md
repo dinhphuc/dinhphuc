@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't fear moving slowly forward...fear standing still.**
+**What keeps me going is goals.**
 
-Kathleen Harris
+Muhammad Ali
