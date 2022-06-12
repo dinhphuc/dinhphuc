@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No one controls how I feel about myself, but me.**
+**You can't blame gravity for falling in love.**
 
-Anonymous
+Albert Einstein
