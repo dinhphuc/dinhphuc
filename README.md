@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Set a goal that makes you want to jump out of bed in the morning.**
+**We are made to persist. That's how we find out who we are.**
 
-Anonymous
+Tobias Wolff
