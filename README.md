@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One often meets his destiny on the road he takes to avoid it.**
+**When you want to talk about who made me, you talk to me. Who made me is ME.**
 
-Master Oogway
+Muhammad Ali
