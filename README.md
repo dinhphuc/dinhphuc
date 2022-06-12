@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What keeps me going is goals.**
+**One often meets his destiny on the road he takes to avoid it.**
 
-Muhammad Ali
+Master Oogway
