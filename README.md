@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The best feeling of happiness is when you're happy because you've made somebody else happy.**
+**Hope never abandons you, you abandon it.**
 
-Anonymous
+George Weinberg
