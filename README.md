@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One small positive thought in the morning can change your whole day.**
+**Set a goal so big that you can't achieve it until you grow into the person who can.**
 
 Anonymous
