@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Kindness is free. Sprinkle that stuff everywhere.**
+**Once you choose hope, anything's possible.**
 
-Anonymous
+Christopher Reeve
