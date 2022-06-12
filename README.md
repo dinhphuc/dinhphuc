@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you want to talk about who made me, you talk to me. Who made me is ME.**
+**Always remember you are braver than you believe, stronger than you seem, and smarter than you think.**
 
-Muhammad Ali
+Christopher Robin
