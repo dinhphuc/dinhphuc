@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The question isn't who is going to let me; it's who is going to stop me.**
+**What keeps me going is goals.**
 
-Ayn Rand
+Muhammad Ali
