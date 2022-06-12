@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you really look closely, most overnight successes took a long time.**
+**The question isn't who is going to let me; it's who is going to stop me.**
 
-Steve Jobs
+Ayn Rand
