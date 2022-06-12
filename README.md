@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success seems to be connected with action. Successful people keep moving. They make mistakes, but they don't quit.**
+**The difference between the impossible and the possible lies in a person's determination.**
 
-Conrad Hilton
+Tommy Lasorda
