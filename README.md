@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not in the stars to hold our destiny but in ourselves.**
+**You can't blame gravity for falling in love.**
 
-William Shakespeare
+Albert Einstein
