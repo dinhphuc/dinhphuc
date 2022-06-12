@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between the impossible and the possible lies in a person's determination.**
+**No one controls how I feel about myself, but me.**
 
-Tommy Lasorda
+Anonymous
