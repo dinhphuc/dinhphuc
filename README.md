@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Working hard for something we don't care about is called stress; working hard for somthing we love is called passion.**
+**Success seems to be connected with action. Successful people keep moving. They make mistakes, but they don't quit.**
 
-Simon Sinek
+Conrad Hilton
