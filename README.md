@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is not something ready made. It comes from your own actions.**
+**The best feeling of happiness is when you're happy because you've made somebody else happy.**
 
-Dalai Lama
+Anonymous
