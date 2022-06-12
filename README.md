@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You've never lived this day before, and you never will again. Make the most of it!**
+**Life's a journey not a race.**
 
-Anonymous
+Meir Ezra
