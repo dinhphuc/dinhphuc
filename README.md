@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**For every minute you are angry you lose sixty seconds of happiness.**
+**A house is made of bricks and beams. A home is made of hopes and dreams.**
 
-Ralph Waldo Emerson
+Anonymous
