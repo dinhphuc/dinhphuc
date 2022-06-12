@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not in the stars to hold our destiny but in ourselves.**
+**It's not whether you get knocked down. It's whether you get back up.**
 
-William Shakespeare
+Vince Lombardi
