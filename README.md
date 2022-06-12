@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hope never abandons you, you abandon it.**
+**For every minute you are angry you lose sixty seconds of happiness.**
 
-George Weinberg
+Ralph Waldo Emerson
