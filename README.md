@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest discovery of all time is that a person can change their future by merely changing their attitude.**
+**Strive not to be a success, but rather to be of value.**
 
-Oprah Winfrey
+Albert Einstein
