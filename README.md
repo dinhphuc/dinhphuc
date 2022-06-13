@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Make sure your worst enemy doesn't live between your own two ears.**
+**Be strong when you are weak, brave when you are scared, and humble when you are victorious.**
 
-Laird Hamilton
+Anonymous
