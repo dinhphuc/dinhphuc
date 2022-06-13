@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always find opportunities to make someone smile, and to offer random acts of kindness in everyday life.**
+**Confidence is not 'They will like me'. Confidence is 'I'll be fine if they don't'.**
 
-Roy T. Bennett
+Anonymous
