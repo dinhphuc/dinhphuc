@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once you choose hope, anything's possible.**
+**What you choose to focus on expands and grows.**
 
-Christopher Reeve
+Anonymous
