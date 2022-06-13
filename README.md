@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The goal is not to be perfect by the end. The goal is to be better today.**
+**The secret of change is to focus all of your energy, not on fighting the old, but on building the new.**
 
-Simon Sinek
+Socrates
