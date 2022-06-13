@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always two there are, no more, no less. A master and an apprentice.**
+**Whether you think you can or can't, you're right.**
 
-Yoda
+Henry Ford
