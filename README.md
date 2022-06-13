@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We must embrace pain and burn it as fuel for our journey.**
+**Life's most persistent and urgent question is, 'What are you doing for others?'**
 
-Kenji Miyazawa
+Martin Luther King
