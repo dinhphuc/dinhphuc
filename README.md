@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be so happy that when others look at you they become happy too.**
+**The one who falls and gets up is so much stronger than the one who never fell.**
 
 Anonymous
