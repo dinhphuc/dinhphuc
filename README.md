@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence is not 'They will like me'. Confidence is 'I'll be fine if they don't'.**
+**I know I have unlimited potential to create the life of my dreams.**
 
 Anonymous
