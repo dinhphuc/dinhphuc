@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Certain things catch your eye, but pursue only those that capture the heart.**
+**When you are enthusiastic about what you do, you feel this positive energy. It's very simple.**
 
-Ancient Indian Proverb
+Paulo Coelho
