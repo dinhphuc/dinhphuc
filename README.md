@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**My heart is always open to love.**
+**The goal is not to be perfect by the end. The goal is to be better today.**
 
-Anonymous
+Simon Sinek
