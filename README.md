@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure is not the falling down but the staying down.**
+**Make sure your worst enemy doesn't live between your own two ears.**
 
-Anonymous
+Laird Hamilton
