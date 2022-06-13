@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I know I have unlimited potential to create the life of my dreams.**
+**I think that the good and the great are only separated by the willingness to sacrifice.**
 
-Anonymous
+Kareem Abdul-Jabbar
