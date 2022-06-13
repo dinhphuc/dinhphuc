@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you choose to focus on expands and grows.**
+**Dream without fear. Love without limits.**
 
-Anonymous
+Dilip Bathija
