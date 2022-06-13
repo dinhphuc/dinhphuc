@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be strong when you are weak, brave when you are scared, and humble when you are victorious.**
+**Each time I thought I had achieved my life's purpose, I discovered it was only another step in my journey.**
 
-Anonymous
+Muhammad Ali
