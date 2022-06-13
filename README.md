@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Dream without fear. Love without limits.**
+**The greatest discovery of all time is that a person can change their future by merely changing their attitude.**
 
-Dilip Bathija
+Oprah Winfrey
