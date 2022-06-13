@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The marathon can humble you.**
+**The goal is not to be perfect by the end. The goal is to be better today.**
 
-Bill Rodgers
+Simon Sinek
