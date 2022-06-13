@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile at strangers and you just might change a life.**
+**Are your excuses more important than your dreams?**
 
-Steve Maraboli
+Anonymous
