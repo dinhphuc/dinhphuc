@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whether you think you can or can't, you're right.**
+**Be so happy that when others look at you they become happy too.**
 
-Henry Ford
+Anonymous
