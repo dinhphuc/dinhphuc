@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I will not follow where the path may lead, but I will go where there is no path, and I will leave a trail.**
+**A leader is one who knows the way, goes the way, and shows the way.**
 
-Muriel Strode
+John C. Maxwell
