@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A leader is one who knows the way, goes the way, and shows the way.**
+**Confidence comes from discipline and training.**
 
-John C. Maxwell
+Robert Kiyosaki
