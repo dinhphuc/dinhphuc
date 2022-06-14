@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you feel like giving up, that's when you need to dig deep and push through your self doubt and weaknesses.**
+**You will be exactly as happy as you decide to be.**
 
 Anonymous
