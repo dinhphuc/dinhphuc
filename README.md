@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you are enthusiastic about what you do, you feel this positive energy. It's very simple.**
+**When a new day begins, dare to smile gratefully.**
 
-Paulo Coelho
+Steve Maraboli
