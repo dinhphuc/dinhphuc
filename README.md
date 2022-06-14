@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence comes from discipline and training.**
+**Your hardest times often lead to the greatest moments of your life. Keep going. Tough situations build strong people in the end.**
 
-Robert Kiyosaki
+Roy T. Bennett
