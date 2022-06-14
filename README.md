@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will be exactly as happy as you decide to be.**
+**The supreme art of war is to subdue the enemy without fighting.**
 
-Anonymous
+Sun Tzu
