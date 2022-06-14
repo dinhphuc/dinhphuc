@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All that matters is how you see yourself.**
+**The reason we race isn't so much to beat each other,... but to be with each other.**
 
-Conor McGregor
+Christopher McDougall
