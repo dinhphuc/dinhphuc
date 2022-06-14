@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The reason we race isn't so much to beat each other,... but to be with each other.**
+**If you only do what you can do, you will never be more than you are now.**
 
-Christopher McDougall
+Master Oogway
