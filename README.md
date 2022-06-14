@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be gentle with yourself. You're doing the best you can.**
+**There is nothing permanent except change.**
 
-Anonymous
+Heraclitus
