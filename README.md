@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The harder the battle. The sweeter the victory.**
+**If you only do what you can do, you will never be more than you are now.**
 
-Les Brown
+Master Oogway
