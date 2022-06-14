@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When a new day begins, dare to smile gratefully.**
+**I have learned over the years that when one's mind is made up, this diminishes fear.**
 
-Steve Maraboli
+Rosa Parks
