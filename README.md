@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It takes courage to grow up and become who you really are.**
+**There are two days in the year that we can not do anything, yesterday and tomorrow.**
 
-E.E. Cummings
+Mahatma Gandhi
