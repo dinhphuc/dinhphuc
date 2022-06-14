@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You may be disappointed if you fail, but you are doomed if you don't try.**
+**It takes courage to grow up and become who you really are.**
 
-Beverly Sills
+E.E. Cummings
