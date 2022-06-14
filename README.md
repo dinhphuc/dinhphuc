@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you only do what you can do, you will never be more than you are now.**
+**You may be disappointed if you fail, but you are doomed if you don't try.**
 
-Master Oogway
+Beverly Sills
