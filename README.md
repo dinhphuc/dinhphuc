@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to change the world, start with yourself.**
+**Be gentle with yourself. You're doing the best you can.**
 
-Mahatma Gandhi
+Anonymous
