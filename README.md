@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I have learned over the years that when one's mind is made up, this diminishes fear.**
+**Walk on with hope in your heart, and you'll never walk alone.**
 
-Rosa Parks
+Shah Rukh Khan
