@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are two days in the year that we can not do anything, yesterday and tomorrow.**
+**You will face many defeats in life, but never let yourself be defeated.**
 
-Mahatma Gandhi
+Maya Angelou
