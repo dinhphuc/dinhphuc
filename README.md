@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile, and let the world wonder why.**
+**If you want to change the world, start with yourself.**
 
-Minnie Mouse
+Mahatma Gandhi
