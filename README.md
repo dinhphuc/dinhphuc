@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you believe it will work out, you'll see opportunities. If you believe it won't, you will see obstacles.**
+**The people who make you smile from just seeing them, those are my favorite people.**
 
-Wayne Dyer
+Koi Fresco
