@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will face many defeats in life, but never let yourself be defeated.**
+**Just one smile, immensely increases the beauty, of the universe.**
 
-Maya Angelou
+Sri Chinmoy
