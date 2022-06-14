@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All that matters is how you see yourself.**
+**Control, control, you must learn control!**
 
-Conor McGregor
+Yoda
