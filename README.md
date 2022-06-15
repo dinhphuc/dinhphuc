@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I am an ordinary man who worked hard to develop the talent I was given. I believed in myself, and I believe in the goodness of others.**
+**Obstacles don't have to stop you. If you run into a wall, don't turn around and give up. Figure out how to climb it, go through it, or work around it.**
 
-Muhammad Ali
+Michael Jordan
