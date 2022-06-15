@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest teacher, failure is.**
+**More smiling, less worrying. More compassion, less judgment. More blessed, less stressed. More love, less hate.**
 
-Yoda
+Roy T. Bennett
