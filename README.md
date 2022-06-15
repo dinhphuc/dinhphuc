@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can't live longer, live deeper.**
+**Train yourself to let go of everything you fear to lose.**
 
-Italian Proverb
+Yoda
