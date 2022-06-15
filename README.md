@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**More smiling, less worrying. More compassion, less judgment. More blessed, less stressed. More love, less hate.**
+**If you really look closely, most overnight successes took a long time.**
 
-Roy T. Bennett
+Steve Jobs
