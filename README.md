@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No one controls how I feel about myself, but me.**
+**Everything you can imagine is real.**
 
-Anonymous
+Pablo Picasso
