@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It always seems impossible until it's done.**
+**Pain is inevitable. Suffering is optional.**
 
-Nelson Mandela
+Anonymous
