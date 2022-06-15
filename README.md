@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**At first they'll ask you why you're doing it. Later they'll ask how you did it.**
+**It's not what you look at that matters, it's what you see.**
 
-Anonymous
+Henry David Thoreau
