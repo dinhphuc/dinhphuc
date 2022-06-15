@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pain is inevitable. Suffering is optional.**
+**The greatest teacher, failure is.**
 
-Anonymous
+Yoda
