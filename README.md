@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Think gold and never settle for silver.**
+**May you live all the days of your life.**
 
-Jim Afremow
+Jonathan Swift
