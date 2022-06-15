@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I don't aspire to be like other driver. I aspire to be unique.**
+**I am an ordinary man who worked hard to develop the talent I was given. I believed in myself, and I believe in the goodness of others.**
 
-Lewis Hamilton
+Muhammad Ali
