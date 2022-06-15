@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Train yourself to let go of everything you fear to lose.**
+**Think gold and never settle for silver.**
 
-Yoda
+Jim Afremow
