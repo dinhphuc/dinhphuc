@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Attitude is everything. New day, new strength, new thoughts.**
+**I've failed over and over and over again in my life and that is why I succeed.**
 
-Anonymous
+Michael Jordan
