@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**May you live all the days of your life.**
+**You came into the world to do something; So... do something!**
 
-Jonathan Swift
+Johnnie Dent Jr
