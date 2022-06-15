@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No man can paddle two canoes at the same time.**
+**Train like a silver medalist, compete like a gold.**
 
-Bantu Proverb
+Anonymous
