@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I alone cannot change the world, but I can cast a stone across the water to create many ripples.**
+**I don't aspire to be like other driver. I aspire to be unique.**
 
-Mother Teresa
+Lewis Hamilton
