@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To fall in love with yourself is the first secret to happiness.**
+**Limitations live only in our minds. But if we use our imaginations, our possibilities become limitless.**
 
-Robert Morley
+Jamie Paolinetti
