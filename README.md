@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Train like a silver medalist, compete like a gold.**
+**If you can't live longer, live deeper.**
 
-Anonymous
+Italian Proverb
