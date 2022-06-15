@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not what you look at that matters, it's what you see.**
+**We all make mistakes, but the winner knows that success comes from perseverance: trying, failing, learning, and doing it again until he succeeds.**
 
-Henry David Thoreau
+Judy Ford
