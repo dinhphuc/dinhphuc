@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you really look closely, most overnight successes took a long time.**
+**At first they'll ask you why you're doing it. Later they'll ask how you did it.**
 
-Steve Jobs
+Anonymous
