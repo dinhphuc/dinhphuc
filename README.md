@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every accomplishment begins with the decision to try.**
+**Train yourself to let go of everything you fear to lose.**
 
-Anonymous
+Yoda
