@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You came into the world to do something; So... do something!**
+**Instead of worrying about what you cannot control, shift your energy to what you can create.**
 
-Johnnie Dent Jr
+Roy T. Bennett
