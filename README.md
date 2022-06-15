@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Just one smile, immensely increases the beauty, of the universe.**
+**The struggle you're in today is developing the strength you need tomorrow.**
 
-Sri Chinmoy
+Robert Tew
