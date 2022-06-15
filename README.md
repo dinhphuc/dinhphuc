@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The best way to gain self-confidence is to do what you are afraid to do.**
+**Almost every successful person begins their journey with two core beliefs: the future can be better than the present, and I have the power to make it so.**
 
-Swati Sharma
+Anonymous
