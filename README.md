@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The struggle you're in today is developing the strength you need tomorrow.**
+**It always seems impossible until it's done.**
 
-Robert Tew
+Nelson Mandela
