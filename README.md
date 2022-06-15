@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Instead of worrying about what you cannot control, shift your energy to what you can create.**
+**Decide what matters most to you and do it.**
 
-Roy T. Bennett
+Anonymous
