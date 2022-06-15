@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You came into the world to do something; So... do something!**
+**Sometimes the bravest thing you can do is to keep going when you really feel like giving up.**
 
-Johnnie Dent Jr
+Anonymous
