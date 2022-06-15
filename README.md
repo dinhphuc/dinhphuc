@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Decide what matters most to you and do it.**
+**Attitude is everything. New day, new strength, new thoughts.**
 
 Anonymous
