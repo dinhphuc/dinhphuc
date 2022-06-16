@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up, stay focused, stay positive, stay strong.**
+**Losers quit when they're tired. Winners quit when they've won.**
 
 Anonymous
