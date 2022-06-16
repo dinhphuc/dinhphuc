@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The wise listens to her mind, the foolish to the mob.**
+**Remember the entrance to the sanctuary is inside you.**
 
-Chinese Proverb
+Rumi
