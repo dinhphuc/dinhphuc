@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Start doing things to make you happy.**
+**Enjoy the little things, for one day you may look back and realize they were the big things.**
 
-Reyna Biddy
+Robert Brault
