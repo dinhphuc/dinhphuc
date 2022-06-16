@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Positive anything is better than negative nothing.**
+**Remember the entrance to the sanctuary is inside you.**
 
-Elbert Hubbard
+Rumi
