@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In the end, it's not the years in your life that count. It's the life in your years.**
+**If you want to change the world, start with yourself.**
 
-Abraham Lincoln
+Mahatma Gandhi
