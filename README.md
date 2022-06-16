@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You were born to win. But to be a winner, you must plan to win, prepare to win, and expect to win.**
+**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
 
-Zig Ziglar
+Wayne Dyer
