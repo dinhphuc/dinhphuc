@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is what happens after you have survived all of your disappointments.**
+**Love is not running away or giving up, it is standing and fighting for every moment.**
 
-Anonymous
+M.F. Moonzajer
