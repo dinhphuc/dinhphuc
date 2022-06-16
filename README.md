@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Attitude is a choice. Happiness is a choice. Optimism is a choice. Kindness is a choice. Giving is a choice. Respect is a choice. Whatever choice you make makes you. Choose wisely.**
+**Learn to be thankful for what you already have, while you pursue all that you want.**
 
-Roy T. Bennett
+Jim Rohn
