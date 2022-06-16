@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is a succession of lessons which must be lived to be understood.**
+**Never give up, stay focused, stay positive, stay strong.**
 
-Ralph Waldo Emerson
+Anonymous
