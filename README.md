@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We last longer if we compete against ourselves for the good of others instead of competing against others for the good of ourselves.**
+**Try to be a rainbow in someone's cloud.**
 
-Simon Sinek
+Maya Angelou
