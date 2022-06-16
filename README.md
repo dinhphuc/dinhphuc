@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If only we'd stop trying to be happy we could have a pretty good time.**
+**Your body is made to move so move it.**
 
-Edith Wharton
+Toni Sorenson
