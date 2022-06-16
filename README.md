@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Leadership is not about being in charge. Leadership is about taking care of those in your charge.**
+**This a wonderful day. I've never seen this one before.**
 
-Simon Sinek
+Maya Angelou
