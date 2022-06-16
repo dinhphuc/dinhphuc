@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to change the world, start with yourself.**
+**Honesty is the first chapter in the book of wisdom.**
 
-Mahatma Gandhi
+Thomas Jefferson
