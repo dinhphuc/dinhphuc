@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**This a wonderful day. I've never seen this one before.**
+**Success is what happens after you have survived all of your disappointments.**
 
-Maya Angelou
+Anonymous
