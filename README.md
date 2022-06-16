@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Learn to be thankful for what you already have, while you pursue all that you want.**
+**Don't worry about failure; you only have to be right once.**
 
-Jim Rohn
+Drew Houston
