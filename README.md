@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure is not the falling down but the staying down.**
+**Start doing things to make you happy.**
 
-Anonymous
+Reyna Biddy
