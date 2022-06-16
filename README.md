@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember the entrance to the sanctuary is inside you.**
+**In the end, it's not the years in your life that count. It's the life in your years.**
 
-Rumi
+Abraham Lincoln
