@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't worry about failure; you only have to be right once.**
+**The future belongs to those who believe in the beauty of their dreams.**
 
-Drew Houston
+Franklin D. Roosevelt
