@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Try to be a rainbow in someone's cloud.**
+**If only we'd stop trying to be happy we could have a pretty good time.**
 
-Maya Angelou
+Edith Wharton
