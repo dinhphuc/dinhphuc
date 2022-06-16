@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love is not running away or giving up, it is standing and fighting for every moment.**
+**Life is a succession of lessons which must be lived to be understood.**
 
-M.F. Moonzajer
+Ralph Waldo Emerson
