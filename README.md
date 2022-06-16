@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**This a wonderful day. I've never seen this one before.**
+**Always find opportunities to make someone smile, and to offer random acts of kindness in everyday life.**
 
-Maya Angelou
+Roy T. Bennett
