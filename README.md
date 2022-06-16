@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The future belongs to those who believe in the beauty of their dreams.**
+**Leadership is not about being in charge. Leadership is about taking care of those in your charge.**
 
-Franklin D. Roosevelt
+Simon Sinek
