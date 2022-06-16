@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not how much we have, but how much we enjoy, that makes happiness.**
+**Cry. Forgive. Learn. Move on. Let your tears water the seeds of your future happiness.**
 
-Charles Spurgeon
+Steve Maraboli
