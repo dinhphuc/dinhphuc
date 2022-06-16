@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To fall in love with yourself is the first secret to happiness.**
+**It is not how much we have, but how much we enjoy, that makes happiness.**
 
-Robert Morley
+Charles Spurgeon
