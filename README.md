@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Losers quit when they're tired. Winners quit when they've won.**
+**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
 
-Anonymous
+Wayne Dyer
