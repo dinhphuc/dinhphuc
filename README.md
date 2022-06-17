@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**More smiling, less worrying. More compassion, less judgment. More blessed, less stressed. More love, less hate.**
+**There's nothing that you can do that can't be done.**
 
-Roy T. Bennett
+The Beatles
