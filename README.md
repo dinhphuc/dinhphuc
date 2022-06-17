@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure is not the opposite of success. Its part of success.**
+**Happy are those who take life day by day, complain very little, and are thankful for the little things in life.**
 
 Anonymous
