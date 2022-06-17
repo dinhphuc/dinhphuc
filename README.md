@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest weakness lies in giving up. The most certain way to succeed is to just try one more time.**
+**It is during our darkest moments that we must focus to see the light.**
 
-Thomas Edison
+Aristotle Onassis
