@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is during our darkest moments that we must focus to see the light.**
+**A dream does not become reality through magic; it takes sweat, determination and hard work.**
 
-Aristotle Onassis
+Colin Powell
