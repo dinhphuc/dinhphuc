@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Go confidently in the direction of your dreams! Live the life you've imagined.**
+**There are no mistakes, only lessons. Growth is a process of trial and error.**
 
-Henry David Thoreau
+Anonymous
