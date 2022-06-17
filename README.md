@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be a voice not an echo.**
+**If you're presenting yourself with confidence, you can pull off pretty much anything.**
 
-Anonymous
+Katy Perry
