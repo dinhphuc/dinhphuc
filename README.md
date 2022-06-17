@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you believe it, the mind can achieve it.**
+**Failure is not the opposite of success. Its part of success.**
 
-Ronnie Lott
+Anonymous
