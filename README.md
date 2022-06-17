@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**More smiling, less worrying. More compassion, less judgment. More blessed, less stressed. More love, less hate.**
+**Our greatest weakness lies in giving up. The most certain way to succeed is to just try one more time.**
 
-Roy T. Bennett
+Thomas Edison
