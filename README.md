@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A dream does not become reality through magic; it takes sweat, determination and hard work.**
+**A hero is an ordinary individual who finds the strength to persevere and endure in spite of overwhelming obstacles.**
 
-Colin Powell
+Christopher Reeve
