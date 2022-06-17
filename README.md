@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only in the darkness can you see the stars.**
+**This a wonderful day. I've never seen this one before.**
 
-Martin Luther King, Jr.
+Maya Angelou
