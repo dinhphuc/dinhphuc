@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are positive, you'll see opportunities instead of obstacles.**
+**Be a voice not an echo.**
 
-Widad Akrawi
+Anonymous
