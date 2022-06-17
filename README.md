@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody can bring you peace but yourself.**
+**Only in the darkness can you see the stars.**
 
-Ralph Waldo Emerson
+Martin Luther King, Jr.
