@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Just think how happy you would be if you lost everything you have right now, and then got it back again.**
+**Go confidently in the direction of your dreams! Live the life you've imagined.**
 
-Frances Rodman
+Henry David Thoreau
