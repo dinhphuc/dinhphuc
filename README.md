@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest weakness lies in giving up. The most certain way to succeed is to just try one more time.**
+**If you feel like giving up, just look back on how far you are already.**
 
-Thomas Edison
+Anonymous
