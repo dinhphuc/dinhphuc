@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love the life you live. Live the life you love.**
+**Nobody can bring you peace but yourself.**
 
-Bob Marley
+Ralph Waldo Emerson
