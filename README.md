@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Speed is irrelevant if you are going in the wrong direction.**
+**Only in the darkness can you see the stars.**
 
-Mahatma Gandhi
+Martin Luther King, Jr.
