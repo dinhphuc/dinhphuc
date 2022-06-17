@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**This a wonderful day. I've never seen this one before.**
+**If you believe it, the mind can achieve it.**
 
-Maya Angelou
+Ronnie Lott
