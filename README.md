@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Go confidently in the direction of your dreams! Live the life you've imagined.**
+**There are only two mistakes one can make along the road to truth; not going all the way, and not starting.**
 
-Henry David Thoreau
+Buddha
