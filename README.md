@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
+**Only in the darkness can you see the stars.**
 
-Wayne Dyer
+Martin Luther King, Jr.
