@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only in the darkness can you see the stars.**
+**You have purpose.**
 
-Martin Luther King, Jr.
+Anonymous
