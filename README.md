@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are no mistakes, only lessons. Growth is a process of trial and error.**
+**Continuous effort - not strength or intelligence - is the key to unlocking our potential.**
 
-Anonymous
+Liane Cardes
