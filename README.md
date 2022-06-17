@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Continuous effort - not strength or intelligence - is the key to unlocking our potential.**
+**Love the life you live. Live the life you love.**
 
-Liane Cardes
+Bob Marley
