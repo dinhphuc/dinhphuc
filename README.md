@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happy are those who take life day by day, complain very little, and are thankful for the little things in life.**
+**If you are willing to do more than you are paid to do, eventually you will be paid to do more than you do.**
 
 Anonymous
