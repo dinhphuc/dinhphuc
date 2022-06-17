@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One of the simplest ways to be happy is letting go of the things that make you sad.**
+**Just think how happy you would be if you lost everything you have right now, and then got it back again.**
 
-Anonymous
+Frances Rodman
