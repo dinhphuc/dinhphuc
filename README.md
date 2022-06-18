@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only impossible journey is the one you never begin.**
+**Don't wish it were easier. Wish you were better.**
 
-Tony Robbins
+Jim Rohn
