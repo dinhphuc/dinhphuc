@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you are, be a good one.**
+**Today, give a stranger one of your smiles. It might be the only sunshine they see all day.**
 
-Abraham Lincoln
+H. Jackson Brown Jr
