@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Patience you must have, my young padawan.**
+**When you find an idea that you just can't stop thinking about, that's probably a good one to pursue.**
 
-Yoda
+Josh James
