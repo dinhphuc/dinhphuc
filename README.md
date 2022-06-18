@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will be exactly as happy as you decide to be.**
+**Be crazy. Be stupid. Be silly. Be weird. Be whatever. Because life is too short to be anything but happy.**
 
 Anonymous
