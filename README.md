@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing will work unless you do.**
+**Where love reigns, the impossible may be attained.**
 
-Maya Angelou
+Indian Proverb
