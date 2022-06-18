@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't always control what goes on outside, but you can always control what goes on inside.**
+**It is not the mountain we conquer, but ourselves.**
 
-Wayne Dyer
+Sir Edmund Hillary
