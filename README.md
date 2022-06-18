@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A leader is one who knows the way, goes the way, and shows the way.**
+**Our greatest glory is not in never falling, but in rising every time we fall.**
 
-John C. Maxwell
+Confucius
