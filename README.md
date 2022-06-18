@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot fail at being yourself.**
+**Inhale confidence. Exhale doubt.**
 
-Wayne Dyer
+Anonymous
