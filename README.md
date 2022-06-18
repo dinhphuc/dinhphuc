@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are no mistakes, only lessons. Growth is a process of trial and error.**
+**Whatever you are, be a good one.**
 
-Anonymous
+Abraham Lincoln
