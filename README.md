@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Where love reigns, the impossible may be attained.**
+**Be not afraid of life. Believe that life is worth living, and your belief will help create the fact.**
 
-Indian Proverb
+William James
