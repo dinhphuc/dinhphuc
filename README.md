@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be not afraid of life. Believe that life is worth living, and your belief will help create the fact.**
+**When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.**
 
-William James
+Henry Ford
