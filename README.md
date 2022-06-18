@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One small positive thought in the morning can change your whole day.**
+**To handle yourself, use your head; to handle others, use your heart.**
 
-Anonymous
+Eleanor Roosevelt
