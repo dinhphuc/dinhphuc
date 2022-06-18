@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To handle yourself, use your head; to handle others, use your heart.**
+**You can't always control what goes on outside, but you can always control what goes on inside.**
 
-Eleanor Roosevelt
+Wayne Dyer
