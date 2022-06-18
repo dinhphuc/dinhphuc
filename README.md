@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A hero is an ordinary individual who finds the strength to persevere and endure in spite of overwhelming obstacles.**
+**All things equal, people will do business with, and refer business to, people they know trust and like.**
 
-Christopher Reeve
+Bob Burg
