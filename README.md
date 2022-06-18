@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It only takes one person to make you happy and change your life: YOU.**
+**You can't always control what goes on outside, but you can always control what goes on inside.**
 
-Charles Orlando
+Wayne Dyer
