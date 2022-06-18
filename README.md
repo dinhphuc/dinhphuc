@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest glory is not in never falling, but in rising every time we fall.**
+**I ask not for a lighter burden, but for broader shoulders.**
 
-Confucius
+Jewish Proverb
