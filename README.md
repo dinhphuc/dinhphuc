@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I ask not for a lighter burden, but for broader shoulders.**
+**You don't want to look back and know you could have done better.**
 
-Jewish Proverb
+Anonymous
