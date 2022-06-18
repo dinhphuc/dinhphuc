@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Where love reigns, the impossible may be attained.**
+**A leader is one who knows the way, goes the way, and shows the way.**
 
-Indian Proverb
+John C. Maxwell
