@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To handle yourself, use your head; to handle others, use your heart.**
+**You are loved.**
 
-Eleanor Roosevelt
+Anonymous
