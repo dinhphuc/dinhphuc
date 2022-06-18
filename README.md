@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Sometimes the bravest thing you can do is to keep going when you really feel like giving up.**
+**You were born to win. But to be a winner, you must plan to win, prepare to win, and expect to win.**
 
-Anonymous
+Zig Ziglar
