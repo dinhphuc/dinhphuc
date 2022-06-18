@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You were born to win. But to be a winner, you must plan to win, prepare to win, and expect to win.**
+**You will be exactly as happy as you decide to be.**
 
-Zig Ziglar
+Anonymous
