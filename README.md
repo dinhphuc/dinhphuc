@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's better to light a candle than curse the darkness.**
+**Sometimes the bravest thing you can do is to keep going when you really feel like giving up.**
 
-Chinese Proverb
+Anonymous
