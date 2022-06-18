@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**So certain were you. Go back and closer you must look.**
+**The only impossible journey is the one you never begin.**
 
-Yoda
+Tony Robbins
