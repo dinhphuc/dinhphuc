@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't wish it were easier. Wish you were better.**
+**The people who make you smile from just seeing them, those are my favorite people.**
 
-Jim Rohn
+Koi Fresco
