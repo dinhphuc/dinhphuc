@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.**
+**So certain were you. Go back and closer you must look.**
 
-Henry Ford
+Yoda
