@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All things equal, people will do business with, and refer business to, people they know trust and like.**
+**It's better to light a candle than curse the darkness.**
 
-Bob Burg
+Chinese Proverb
