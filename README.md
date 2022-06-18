@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not the mountain we conquer, but ourselves.**
+**Where love reigns, the impossible may be attained.**
 
-Sir Edmund Hillary
+Indian Proverb
