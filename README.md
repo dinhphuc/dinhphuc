@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Just one smile, immensely increases the beauty, of the universe.**
+**Courage is the birthplace of confidence.**
 
-Sri Chinmoy
+Debbie Millman
