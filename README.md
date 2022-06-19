@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Anyone who has grown mentally, physically or spiritually knows that growth is not found in comfort.**
+**Self-belief and hard work will always earn you success.**
 
-Anonymous
+Virat Kohli
