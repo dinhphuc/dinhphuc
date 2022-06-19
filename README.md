@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Courage is the birthplace of confidence.**
+**Attitude is everything. New day, new strength, new thoughts.**
 
-Debbie Millman
+Anonymous
