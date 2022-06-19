@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Work hard and be nice to people.**
+**Before you score, you first must have a goal.**
 
-Anonymous
+Greek Proverb
