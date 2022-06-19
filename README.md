@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A team is not a group of people that work together. A team is a group of people that trust each other.**
+**Hard times don't create heroes. It is during the hard times when the 'hero' within us is revealed.**
 
-Simon Sinek
+Bob Riley
