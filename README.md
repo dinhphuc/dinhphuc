@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be strong when you are weak, brave when you are scared, and humble when you are victorious.**
+**Of all the things you wear, your expression is the most important.**
 
-Anonymous
+Janet Lane
