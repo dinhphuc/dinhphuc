@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you see in yourself is what you see in the world.**
+**If you don't sacrifice for what you want, what you wants becomes the sacrifice.**
 
-Afghan Proverb
+Anonymous
