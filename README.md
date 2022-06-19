@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever the mind can conceive and believe, it can achieve.**
+**Change your thoughts and you change your world.**
 
-Napoleon Hill
+Norman Vincent Peale
