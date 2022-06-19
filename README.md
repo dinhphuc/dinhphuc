@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only easy day was yesterday.**
+**Just one smile, immensely increases the beauty, of the universe.**
 
-Navy Seals
+Sri Chinmoy
