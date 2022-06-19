@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not whether you get knocked down. It's whether you get back up.**
+**You are so much more than what you are going through.**
 
-Vince Lombardi
+John Tew
