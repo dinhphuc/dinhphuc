@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hard times don't create heroes. It is during the hard times when the 'hero' within us is revealed.**
+**The greatest glory in living lies not in never falling, but in rising every time we fall.**
 
-Bob Riley
+Nelson Mandela
