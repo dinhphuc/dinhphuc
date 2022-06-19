@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Learning never exhausts the mind.**
+**Do not blame the world. Find a solution.**
 
-Leonardo da Vinci
+Sri Chinmoy
