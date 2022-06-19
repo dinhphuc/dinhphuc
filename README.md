@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Determination is doing what needs to be done even when you don't feel like doing it.**
+**Never let the fear of striking out keep you from playing the game.**
 
-Anonymous
+Babe Ruth
