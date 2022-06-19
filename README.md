@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do not blame the world. Find a solution.**
+**Success doesn't just come and find you, you have to go out and get it.**
 
-Sri Chinmoy
+Anonymous
