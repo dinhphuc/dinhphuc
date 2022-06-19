@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can't live longer, live deeper.**
+**Strength grows in the moments when you think you can't go on but you keep going anyway.**
 
-Italian Proverb
+Anonymous
