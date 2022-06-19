@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Of all the things you wear, your expression is the most important.**
+**Work hard and be nice to people.**
 
-Janet Lane
+Anonymous
