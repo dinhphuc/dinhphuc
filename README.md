@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength grows in the moments when you think you can't go on but you keep going anyway.**
+**Be strong when you are weak, brave when you are scared, and humble when you are victorious.**
 
 Anonymous
