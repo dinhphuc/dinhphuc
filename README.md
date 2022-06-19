@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All that matters is how you see yourself.**
+**The secret of change is to focus all of your energy, not on fighting the old, but on building the new.**
 
-Conor McGregor
+Socrates
