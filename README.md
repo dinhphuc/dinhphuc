@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life isn't about finding yourself. Life is about creating yourself.**
+**Be who you are and say what you feel because those who mind don't matter and those who matter don't mind.**
 
-George Bernard Shaw
+Dr. Seuss
