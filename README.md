@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't sacrifice for what you want, what you wants becomes the sacrifice.**
+**Determination is doing what needs to be done even when you don't feel like doing it.**
 
 Anonymous
