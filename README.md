@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are so much more than what you are going through.**
+**The only easy day was yesterday.**
 
-John Tew
+Navy Seals
