@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Before you score, you first must have a goal.**
+**A challenge lifelong it is, not to bend fear into anger.**
 
-Greek Proverb
+Yoda
