@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Self-belief and hard work will always earn you success.**
+**Whatever the mind can conceive and believe, it can achieve.**
 
-Virat Kohli
+Napoleon Hill
