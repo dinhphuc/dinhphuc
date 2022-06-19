@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't sacrifice for what you want, what you wants becomes the sacrifice.**
+**Life isn't about finding yourself. Life is about creating yourself.**
 
-Anonymous
+George Bernard Shaw
