@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never let the fear of striking out keep you from playing the game.**
+**Learning never exhausts the mind.**
 
-Babe Ruth
+Leonardo da Vinci
