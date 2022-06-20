@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A new command I give you: Love one another.**
+**Go after the things you want.**
 
-Jesus Christ
+Simon Sinek
