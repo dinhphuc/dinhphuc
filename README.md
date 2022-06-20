@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not in the stars to hold our destiny but in ourselves.**
+**Tough times don't last. Tough people do.**
 
-William Shakespeare
+Robert H. Schuller
