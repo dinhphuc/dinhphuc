@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Go after the things you want.**
+**Love has no age, no limit; and no death.**
 
-Simon Sinek
+John Galsworthy
