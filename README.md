@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Successful people have fear, successful people have doubts, and successful people have worries. They just don't let these feelings stop them.**
+**Faith is taking the first step even when you don't see the whole staircase.**
 
-T. Harv Eker
+Martin Luther King
