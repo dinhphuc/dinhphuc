@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A leader is one who knows the way, goes the way, and shows the way.**
+**Every champion was once a contender that refused to give up.**
 
-John C. Maxwell
+Rocky Balboa
