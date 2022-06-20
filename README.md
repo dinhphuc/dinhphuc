@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will be exactly as happy as you decide to be.**
+**Sometimes the bravest thing you can do is to keep going when you really feel like giving up.**
 
 Anonymous
