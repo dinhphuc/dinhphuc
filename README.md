@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love has no age, no limit; and no death.**
+**Pessimism leads to weakness, optimism to power.**
 
-John Galsworthy
+William James
