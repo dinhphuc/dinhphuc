@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you do, do with all your might.**
+**You will be exactly as happy as you decide to be.**
 
-Marcus Tullius Cicero
+Anonymous
