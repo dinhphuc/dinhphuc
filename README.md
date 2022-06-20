@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can either spend your time or invest your time.**
+**Start doing things to make you happy.**
 
-Chip Kelly
+Reyna Biddy
