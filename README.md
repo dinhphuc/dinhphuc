@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Even if I knew that tomorrow the world would go to pieces, I would still plant my apple tree.**
+**It is far better to be alone, than to be in bad company.**
 
-Martin Luther
+George Washington
