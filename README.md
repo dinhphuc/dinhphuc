@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Perseverance is the hard work you do after you get tired of doing the hard work you already did.**
+**Our greatest weakness lies in giving up. The most certain way to succeed is to just try one more time.**
 
-Newt Gingrich
+Thomas Edison
