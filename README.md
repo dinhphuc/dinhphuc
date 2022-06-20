@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is far better to be alone, than to be in bad company.**
+**It matters not what someone is born, but what they grow to be.**
 
-George Washington
+Master Oogway
