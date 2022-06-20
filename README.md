@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What we achieve inwardly will change outer reality.**
+**The only impossible journey is the one you never begin.**
 
-Plutarch
+Tony Robbins
