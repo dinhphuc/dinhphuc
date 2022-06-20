@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success trains. Failure complains.**
+**Perseverance is the hard work you do after you get tired of doing the hard work you already did.**
 
-Anonymous
+Newt Gingrich
