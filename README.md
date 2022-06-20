@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Friends show their love in times of trouble, not in happiness.**
+**The purpose of our lives is to be happy.**
 
-Euripides
+Dalai Lama
