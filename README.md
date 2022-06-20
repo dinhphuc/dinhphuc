@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only a life lived for others is a life worthwhile.**
+**A leader is one who knows the way, goes the way, and shows the way.**
 
-Albert Einstein
+John C. Maxwell
