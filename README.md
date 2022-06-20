@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Spend more of your time on what gives you energy and less of your time on what takes it away.**
+**Only a life lived for others is a life worthwhile.**
 
-Anonymous
+Albert Einstein
