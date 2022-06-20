@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pessimism leads to weakness, optimism to power.**
+**Whatever you do, do with all your might.**
 
-William James
+Marcus Tullius Cicero
