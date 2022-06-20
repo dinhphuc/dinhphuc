@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It matters not what someone is born, but what they grow to be.**
+**Friends show their love in times of trouble, not in happiness.**
 
-Master Oogway
+Euripides
