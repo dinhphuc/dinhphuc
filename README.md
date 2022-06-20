@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What we achieve inwardly will change outer reality.**
+**You can't use up creativity. The more you use, the more you have.**
 
-Plutarch
+Maya Angelou
