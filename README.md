@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every champion was once a contender that refused to give up.**
+**Success trains. Failure complains.**
 
-Rocky Balboa
+Anonymous
