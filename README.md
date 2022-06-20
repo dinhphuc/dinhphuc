@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The sweat. The time. The devotion. It pays off.**
+**It is not in the stars to hold our destiny but in ourselves.**
 
-Anonymous
+William Shakespeare
