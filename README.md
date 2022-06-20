@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Tough times don't last. Tough people do.**
+**You can either spend your time or invest your time.**
 
-Robert H. Schuller
+Chip Kelly
