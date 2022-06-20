@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The purpose of our lives is to be happy.**
+**What we achieve inwardly will change outer reality.**
 
-Dalai Lama
+Plutarch
