@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Faith is taking the first step even when you don't see the whole staircase.**
+**Spend more of your time on what gives you energy and less of your time on what takes it away.**
 
-Martin Luther King
+Anonymous
