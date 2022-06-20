@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Yesterday is not ours to recover, but tomorrow is ours to win or lose.**
+**The sweat. The time. The devotion. It pays off.**
 
-Lyndon B. Johnson
+Anonymous
