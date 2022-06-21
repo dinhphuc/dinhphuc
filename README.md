@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is either a daring adventure or nothing at all.**
+**You don't find will power, you create it.**
 
-Helen Keller
+Anonymous
