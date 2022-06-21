@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't find will power, you create it.**
+**The only impossible journey is the one you never begin.**
 
-Anonymous
+Tony Robbins
