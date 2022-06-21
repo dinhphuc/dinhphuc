@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never stop believing in hope because miracles happen everyday.**
+**A little progress each day adds up to big results.**
 
-Anonymous
+Satya Nani
