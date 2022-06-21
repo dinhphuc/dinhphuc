@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you think of yourself is much more important than what people think of you.**
+**Doing what you like is freedom. Liking what you do is happiness.**
 
 Anonymous
