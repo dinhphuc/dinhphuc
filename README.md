@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I attribute my success to this: I never gave or took any excuse.**
+**Life is not a problem to be solved, but a reality to be experienced.**
 
-Florence Nightingale
+Soren Kierkegaard
