@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can if you think you can.**
+**You cannot afford to live in potential for the rest of your life; at some point, you have to unleash the potential and make your move.**
 
-George Reeves
+Eric Thomas
