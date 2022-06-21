@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We either make ourselves miserable or we make ourselves strong. The amount of work is the same.**
+**Be so happy that when others look at you they become happy too.**
 
-Carlos Costaneda
+Anonymous
