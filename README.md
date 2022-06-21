@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be so happy that when others look at you they become happy too.**
+**I attribute my success to this: I never gave or took any excuse.**
 
-Anonymous
+Florence Nightingale
