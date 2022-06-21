@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing will work unless you do.**
+**You can if you think you can.**
 
-Maya Angelou
+George Reeves
