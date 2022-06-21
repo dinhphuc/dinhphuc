@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We are made to persist. That's how we find out who we are.**
+**A hero is an ordinary individual who finds the strength to persevere and endure in spite of overwhelming obstacles.**
 
-Tobias Wolff
+Christopher Reeve
