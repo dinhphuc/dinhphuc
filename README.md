@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can either spend your time or invest your time.**
+**The happiness of your life depends upon the quality of your thoughts.**
 
-Chip Kelly
+Marcus Aurelius
