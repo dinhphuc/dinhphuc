@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success usually comes to those who are too busy to be looking for it.**
+**Nothing will work unless you do.**
 
-Henry David Thoreau
+Maya Angelou
