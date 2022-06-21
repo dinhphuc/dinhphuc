@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Doing what you like is freedom. Liking what you do is happiness.**
+**If you can't stop thinking about it, don't stop working for it.**
 
 Anonymous
