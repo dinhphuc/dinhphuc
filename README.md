@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Make sure your worst enemy doesn't live between your own two ears.**
+**We are made to persist. That's how we find out who we are.**
 
-Laird Hamilton
+Tobias Wolff
