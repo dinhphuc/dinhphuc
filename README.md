@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't find will power, you create it.**
+**The only person who can pull me down is myself, and I'm not going to let myself pull me down anymore.**
 
-Anonymous
+C. JoyBell C
