@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A little progress each day adds up to big results.**
+**Happiness can be found, even in the darkest of times, if one only remembers to turn on the light.**
 
-Satya Nani
+Anonymous
