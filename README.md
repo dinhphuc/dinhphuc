@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Sometimes your joy is the source of your smile, but sometimes your smile can be the source of your joy.**
+**Keep your eyes on the stars, and your feet on the ground.**
 
-Thich Nhat Hanh
+Theodore Roosevelt
