@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can't stop thinking about it, don't stop working for it.**
+**Never stop believing in hope because miracles happen everyday.**
 
 Anonymous
