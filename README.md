@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot afford to live in potential for the rest of your life; at some point, you have to unleash the potential and make your move.**
+**Good judgment comes from experience, and a lot of that comes from bad judgment.**
 
-Eric Thomas
+Will Rogers
