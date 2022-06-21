@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The happiness of your life depends upon the quality of your thoughts.**
+**Do all things with love.**
 
-Marcus Aurelius
+Og Mandino
