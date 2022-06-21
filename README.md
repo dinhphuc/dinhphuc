@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only impossible journey is the one you never begin.**
+**What you think of yourself is much more important than what people think of you.**
 
-Tony Robbins
+Anonymous
