@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is not a problem to be solved, but a reality to be experienced.**
+**You can either spend your time or invest your time.**
 
-Soren Kierkegaard
+Chip Kelly
