@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good judgment comes from experience, and a lot of that comes from bad judgment.**
+**Make sure your worst enemy doesn't live between your own two ears.**
 
-Will Rogers
+Laird Hamilton
