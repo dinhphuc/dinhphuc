@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can either spend your time or invest your time.**
+**Train like a silver medalist, compete like a gold.**
 
-Chip Kelly
+Anonymous
