@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness can be found, even in the darkest of times, if one only remembers to turn on the light.**
+**Sometimes your joy is the source of your smile, but sometimes your smile can be the source of your joy.**
 
-Anonymous
+Thich Nhat Hanh
