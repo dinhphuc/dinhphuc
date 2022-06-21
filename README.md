@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep your eyes on the stars, and your feet on the ground.**
+**We either make ourselves miserable or we make ourselves strong. The amount of work is the same.**
 
-Theodore Roosevelt
+Carlos Costaneda
