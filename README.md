@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A hero is an ordinary individual who finds the strength to persevere and endure in spite of overwhelming obstacles.**
+**Life is either a daring adventure or nothing at all.**
 
-Christopher Reeve
+Helen Keller
