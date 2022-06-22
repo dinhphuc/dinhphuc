@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good friends are like stars. You don't always see them, but you know they're always there.**
+**There is always something more to learn. Even for a master.**
 
-Christy Evans
+Master Oogway
