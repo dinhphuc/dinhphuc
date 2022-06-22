@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Float like a butterfly, sting like a bee.**
+**Successful people are not gifted; they just work hard, then succeed on purpose.**
 
-Muhammad Ali
+G.K. Nielson
