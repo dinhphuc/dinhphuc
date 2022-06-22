@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pain is temporary. Quitting lasts forever.**
+**I don't make excuses. I make results.**
 
-Lance Armstrong
+Anonymous
