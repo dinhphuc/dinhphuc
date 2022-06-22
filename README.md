@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Successful people are not gifted; they just work hard, then succeed on purpose.**
+**You are what you do, not what you say you'll do.**
 
-G.K. Nielson
+Anonymous
