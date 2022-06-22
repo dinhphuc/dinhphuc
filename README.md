@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There's no shortage of remarkable ideas, what's missing is the will to execute them.**
+**The starting point of all achievement is desire.**
 
-Seth Godin
+Napoleon Hill
