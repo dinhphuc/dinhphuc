@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life becomes easier and more beautiful when we can see the good in other people.**
+**When will you realize, the more you take, the less you have.**
 
-Roy T. Bennett
+Master Oogway
