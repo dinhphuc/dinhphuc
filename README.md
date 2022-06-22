@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are somebody's reason to smile.**
+**Appreciate the people who make you smile.**
 
 Anonymous
