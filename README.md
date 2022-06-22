@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A runner must run with dreams in his heart.**
+**Someone who is busier than you is running right now.**
 
-Emil Zatopek
+Nike
