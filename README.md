@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are what you do, not what you say you'll do.**
+**You're allowed to scream. You're allowed to cry. But don't give up.**
 
 Anonymous
