@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Wherever you go, go with all your heart.**
+**What you think of yourself is much more important than what people think of you.**
 
-Confucius
+Anonymous
