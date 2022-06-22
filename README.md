@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is always something more to learn. Even for a master.**
+**There's no shortage of remarkable ideas, what's missing is the will to execute them.**
 
-Master Oogway
+Seth Godin
