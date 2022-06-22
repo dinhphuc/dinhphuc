@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do all things with love.**
+**Control, control, you must learn control!**
 
-Og Mandino
+Yoda
