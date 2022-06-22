@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Focus on your goal. Don't look in any direction but ahead.**
+**Life is not a problem to be solved, but a reality to be experienced.**
 
-Anonymous
+Soren Kierkegaard
