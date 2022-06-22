@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Control, control, you must learn control!**
+**I am in charge of how I feel and today I am choosing happiness.**
 
-Yoda
+Anonymous
