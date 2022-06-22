@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is not a problem to be solved, but a reality to be experienced.**
+**Runners just do it - they run for the finish line even if someone else has reached it first.**
 
-Soren Kierkegaard
+Unknown
