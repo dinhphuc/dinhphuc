@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Runners just do it - they run for the finish line even if someone else has reached it first.**
+**The journey of a thousand miles begins with one step.**
 
-Unknown
+Lao Tzu
