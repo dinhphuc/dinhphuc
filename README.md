@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Age is whatever you think it is. You are as old as you think you are.**
+**Wherever you go, go with all your heart.**
 
-Muhammad Ali
+Confucius
