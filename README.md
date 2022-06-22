@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Two wrongs don't make a right.**
+**Life becomes easier and more beautiful when we can see the good in other people.**
 
-English Proverb
+Roy T. Bennett
