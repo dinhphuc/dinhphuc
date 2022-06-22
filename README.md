@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The starting point of all achievement is desire.**
+**Pain is temporary. Quitting lasts forever.**
 
-Napoleon Hill
+Lance Armstrong
