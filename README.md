@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I don't make excuses. I make results.**
+**Focus on your goal. Don't look in any direction but ahead.**
 
 Anonymous
