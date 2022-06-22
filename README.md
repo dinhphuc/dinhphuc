@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you decide to do, make sure it makes you happy.**
+**Age is whatever you think it is. You are as old as you think you are.**
 
-Anonymous
+Muhammad Ali
