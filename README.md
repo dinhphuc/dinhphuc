@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I am in charge of how I feel and today I am choosing happiness.**
+**A smile is the beauty of the soul.**
 
-Anonymous
+Lailah Gifty
