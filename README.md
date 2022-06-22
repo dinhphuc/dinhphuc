@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Someone who is busier than you is running right now.**
+**Your life does not get better by chance, it gets better by change.**
 
-Nike
+Anonymous
