@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A smile is the beauty of the soul.**
+**Successful people are not gifted; they just work hard, then succeed on purpose.**
 
-Lailah Gifty
+G.K. Nielson
