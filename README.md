@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The critics only made me work harder.**
+**Every day may not be good... but there's something good in every day.**
 
-Muhammad Ali
+Alice Morse Earle
