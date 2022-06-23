@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be happy. It really annoys negative people.**
+**I find that the harder I work, the more luck I seem to have.**
 
-Ricky Gervais
+Thomas Jefferson
