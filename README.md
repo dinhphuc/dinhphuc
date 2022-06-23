@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There may be people that have more talent than you, but theres no excuse for anyone to work harder than you.**
+**Don't waste a minute not being happy. If one door closes, run to the next window - or break down a door.**
 
-Derek Jeter
+Brooke Shields
