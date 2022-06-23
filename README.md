@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every day may not be good... but there's something good in every day.**
+**No matter how tough it may get, never give up on yourself or you will look back and regret it.**
 
-Alice Morse Earle
+Anonymous
