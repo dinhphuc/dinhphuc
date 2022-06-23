@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Inhale confidence. Exhale doubt.**
+**Think well of all, be patient with all, and try to find the good in all.**
 
-Anonymous
+Muhammad Ali
