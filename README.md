@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Rock bottom became the solid foundation on which I rebuilt my life.**
+**There may be people that have more talent than you, but theres no excuse for anyone to work harder than you.**
 
-J.K. Rowling
+Derek Jeter
