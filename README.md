@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only person who can pull me down is myself, and I'm not going to let myself pull me down anymore.**
+**The greatest victory in life is to rise above the material things that we once valued most.**
 
-C. JoyBell C
+Muhammad Ali
