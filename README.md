@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest victory in life is to rise above the material things that we once valued most.**
+**When you are enthusiastic about what you do, you feel this positive energy. It's very simple.**
 
-Muhammad Ali
+Paulo Coelho
