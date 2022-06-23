@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Impossible is nothing.**
+**Practice 'gratitude' each day and your relationship will last forever.**
 
-Muhammad Ali
+Anonymous
