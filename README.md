@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Measure a thousand times and cut once.**
+**Rock bottom became the solid foundation on which I rebuilt my life.**
 
-Turkish Proverb
+J.K. Rowling
