@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Think well of all, be patient with all, and try to find the good in all.**
+**Be happy. It really annoys negative people.**
 
-Muhammad Ali
+Ricky Gervais
