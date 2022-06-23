@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It feels good when you can put a smile on someone's face by simply being yourself.**
+**It makes a big difference in your life when you stay positive.**
 
-Anonymous
+Ellen DeGeneres
