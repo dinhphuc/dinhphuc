@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Practice 'gratitude' each day and your relationship will last forever.**
+**The critics only made me work harder.**
 
-Anonymous
+Muhammad Ali
