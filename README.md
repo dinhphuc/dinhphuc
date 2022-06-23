@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I find that the harder I work, the more luck I seem to have.**
+**When will you realize, the more you take, the less you have.**
 
-Thomas Jefferson
+Master Oogway
