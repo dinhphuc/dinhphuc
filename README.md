@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Focus on being productive instead of busy.**
+**Setting goals is the first step into turning the invisible into the visible.**
 
-Tim Ferris
+Tony Robbins
