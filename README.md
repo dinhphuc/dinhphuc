@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The way to get started is to quit talking and begin doing.**
+**It takes but one positive thought when given a chance to survive and thrive to overpower an entire army of negative thoughts.**
 
-Walt Disney
+Robert H. Schuller
