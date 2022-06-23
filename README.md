@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All that matters is how you see yourself.**
+**Focus on being productive instead of busy.**
 
-Conor McGregor
+Tim Ferris
