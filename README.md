@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live life to the fullest and focus on the positive.**
+**Believe in yourself, take on your challenges, dig deep within yourself to conquer fears. Never let anyone bring you down. You got to keep going.**
 
-Matt Cameron
+Chantal Sutherland
