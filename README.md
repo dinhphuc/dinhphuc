@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.**
+**I compete only with myself, and I try to become a better human being. This is my goal.**
 
-Napoleon Hill
+Sri Chinmoy
