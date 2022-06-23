@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Where love reigns, the impossible may be attained.**
+**Impossible is nothing.**
 
-Indian Proverb
+Muhammad Ali
