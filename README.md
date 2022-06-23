@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It makes a big difference in your life when you stay positive.**
+**The only person who can pull me down is myself, and I'm not going to let myself pull me down anymore.**
 
-Ellen DeGeneres
+C. JoyBell C
