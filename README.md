@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It takes but one positive thought when given a chance to survive and thrive to overpower an entire army of negative thoughts.**
+**Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.**
 
-Robert H. Schuller
+Napoleon Hill
