@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What we achieve inwardly will change outer reality.**
+**It feels good when you can put a smile on someone's face by simply being yourself.**
 
-Plutarch
+Anonymous
