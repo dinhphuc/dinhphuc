@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When will you realize, the more you take, the less you have.**
+**All that matters is how you see yourself.**
 
-Master Oogway
+Conor McGregor
