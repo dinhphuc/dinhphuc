@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Faith is taking the first step even when you don't see the whole staircase.**
+**Work hard and be nice to people.**
 
-Martin Luther King
+Anonymous
