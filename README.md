@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**People who make you feel better about yourself when you're sad are so important.**
+**There may be people that have more talent than you, but theres no excuse for anyone to work harder than you.**
 
-Anonymous
+Derek Jeter
