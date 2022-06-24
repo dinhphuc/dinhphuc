@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There may be people that have more talent than you, but theres no excuse for anyone to work harder than you.**
+**Success is what happens after you have survived all of your disappointments.**
 
-Derek Jeter
+Anonymous
