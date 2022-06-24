@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Work hard and be nice to people.**
+**Always two there are, no more, no less. A master and an apprentice.**
 
-Anonymous
+Yoda
