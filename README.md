@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I compete only with myself, and I try to become a better human being. This is my goal.**
+**Opportunities don't happen. You create them.**
 
-Sri Chinmoy
+Chris Grosser
