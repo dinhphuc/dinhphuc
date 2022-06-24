@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Move fast and break things. If you are not breaking things, you are not moving fast enough.**
+**Often it isn't the mountains ahead that wear you out, it's the little pebble in your shoe.**
 
-Mark Zuckerberg
+Muhammad Ali
