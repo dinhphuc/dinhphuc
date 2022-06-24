@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A winner never stops trying.**
+**You need to spend time crawling alone through shadows to truly appreciate what it is to stand in the sun.**
 
-Tom Landry
+Shaun Hick
