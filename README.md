@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Often it isn't the mountains ahead that wear you out, it's the little pebble in your shoe.**
+**Of all the things you wear, your expression is the most important.**
 
-Muhammad Ali
+Janet Lane
