@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be patient, good things are coming your way.**
+**Your path you must decide.**
 
-Anonymous
+Yoda
