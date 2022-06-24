@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Just think how happy you would be if you lost everything you have right now, and then got it back again.**
+**Success is the sum of small efforts repeated day-in and day-out.**
 
-Frances Rodman
+Robert Collier
