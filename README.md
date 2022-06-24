@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hardships often prepare ordinary people for an extraordinary destiny.**
+**Faith is taking the first step even when you don't see the whole staircase.**
 
-C.S. Lewis
+Martin Luther King
