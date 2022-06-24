@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One of the simplest ways to be happy is letting go of the things that make you sad.**
+**Be happy, be yourself, and if others don't like it, let them be. Your happiness is a choice. Life isn't about pleasing everybody, so do you.**
 
 Anonymous
