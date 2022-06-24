@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always two there are, no more, no less. A master and an apprentice.**
+**One of the simplest ways to be happy is letting go of the things that make you sad.**
 
-Yoda
+Anonymous
