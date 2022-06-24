@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Opportunities don't happen. You create them.**
+**If you only do what you can do, you will never be more than you are now.**
 
-Chris Grosser
+Master Oogway
