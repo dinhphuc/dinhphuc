@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You need to spend time crawling alone through shadows to truly appreciate what it is to stand in the sun.**
+**Move fast and break things. If you are not breaking things, you are not moving fast enough.**
 
-Shaun Hick
+Mark Zuckerberg
