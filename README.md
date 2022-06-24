@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I find that the harder I work, the more luck I seem to have.**
+**Good people are like candles; they burn themselves up to give others light.**
 
-Thomas Jefferson
+Anonymous
