@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A truly rich man is one whose children run into his arms when his hands are empty.**
+**Just think how happy you would be if you lost everything you have right now, and then got it back again.**
 
-Unknown
+Frances Rodman
