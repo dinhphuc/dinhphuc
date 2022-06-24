@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good people are like candles; they burn themselves up to give others light.**
+**Spend more of your time on what gives you energy and less of your time on what takes it away.**
 
 Anonymous
