@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is what happens after you have survived all of your disappointments.**
+**Life is either a daring adventure or nothing at all.**
 
-Anonymous
+Helen Keller
