@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is the sum of small efforts repeated day-in and day-out.**
+**You are a masterpiece.**
 
-Robert Collier
+Anonymous
