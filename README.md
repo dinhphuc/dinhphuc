@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your path you must decide.**
+**I find that the harder I work, the more luck I seem to have.**
 
-Yoda
+Thomas Jefferson
