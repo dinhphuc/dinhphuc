@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you only do what you can do, you will never be more than you are now.**
+**The one who falls and gets up is so much stronger than the one who never fell.**
 
-Master Oogway
+Anonymous
