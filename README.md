@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The one who falls and gets up is so much stronger than the one who never fell.**
+**A truly rich man is one whose children run into his arms when his hands are empty.**
 
-Anonymous
+Unknown
