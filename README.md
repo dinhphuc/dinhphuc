@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The positive thinker sees the invisible, feels the intangible, and achieves the impossible.**
+**Yesterday is history, tomorrow is a mystery, today is a gift of God, which is why we call it the present.**
 
-Winston Churchill
+Bill Keane
