@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is either a daring adventure or nothing at all.**
+**Hardships often prepare ordinary people for an extraordinary destiny.**
 
-Helen Keller
+C.S. Lewis
