@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I knew that if I failed I wouldn't regret that. But I would regret not trying.**
+**Whatever you do, do with all your might.**
 
-Jeff Bezos
+Marcus Tullius Cicero
