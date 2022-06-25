@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you get tired, learn to rest, not quit.**
+**Choose kindness and laugh often.**
 
 Anonymous
