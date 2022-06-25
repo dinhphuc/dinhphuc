@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Start doing things to make you happy.**
+**You can have everything you want in life if you just help enough people get what they want in life.**
 
-Reyna Biddy
+Zig Ziglar
