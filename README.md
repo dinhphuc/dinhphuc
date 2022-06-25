@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We are made to persist. That's how we find out who we are.**
+**Look in the mirror. That's your competition.**
 
-Tobias Wolff
+John Assaraf
