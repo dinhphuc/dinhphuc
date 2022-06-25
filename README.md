@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Choose kindness and laugh often.**
+**The sun itself is weak when it first rises, and gathers strength and courage as the day gets on.**
 
-Anonymous
+Charles Dickens
