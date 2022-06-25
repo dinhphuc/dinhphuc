@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your life does not get better by chance, it gets better by change.**
+**You came into the world to do something; So... do something!**
 
-Anonymous
+Johnnie Dent Jr
