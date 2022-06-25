@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to achieve greatness, stop asking for permission.**
+**Once you're beat mentally, you might as well not even go to the starting line.**
 
-Anonymous
+Todd Williams
