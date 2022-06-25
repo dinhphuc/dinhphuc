@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Make each day your masterpiece.**
+**Be so good they can't ignore you.**
 
-John Wooden
+Steve Martin
