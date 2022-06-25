@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whether you think you can or can't, you're right.**
+**A challenge lifelong it is, not to bend fear into anger.**
 
-Henry Ford
+Yoda
