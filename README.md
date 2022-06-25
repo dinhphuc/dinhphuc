@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A challenge lifelong it is, not to bend fear into anger.**
+**Make each day your masterpiece.**
 
-Yoda
+John Wooden
