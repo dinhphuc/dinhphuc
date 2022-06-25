@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I knew that if I failed I wouldn't regret that. But I would regret not trying.**
+**Love isn't something you find. Love is something that finds you.**
 
-Jeff Bezos
+Loretta Young
