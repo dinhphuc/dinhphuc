@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure is not the falling down but the staying down.**
+**If you want to achieve greatness, stop asking for permission.**
 
 Anonymous
