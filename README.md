@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No one who can rise before dawn three hundred sixty days a year fails to make his family rich.**
+**The man who views the world at 50 the same as he did at 20 has wasted 30 years of his life.**
 
-Malcolm Gladwell
+Muhammad Ali
