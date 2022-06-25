@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love isn't something you find. Love is something that finds you.**
+**Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching.**
 
-Loretta Young
+Satchel Paige
