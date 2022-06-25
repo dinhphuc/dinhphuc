@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be helpful. When you see a person without a smile, give them yours.**
+**A difficult time can be more readily endured if we retain the conviction that our existence holds a purpose - a cause to pursue, a person to love, a goal to achieve.**
 
-Zig Ziglar
+John Maxwell
