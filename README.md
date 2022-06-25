@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Look in the mirror. That's your competition.**
+**I knew that if I failed I wouldn't regret that. But I would regret not trying.**
 
-John Assaraf
+Jeff Bezos
