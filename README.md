@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching.**
+**As I look back on my life, I realize that every time I thought I was being rejected from something good, I was actually being re-directed to something better.**
 
-Satchel Paige
+Anonymous
