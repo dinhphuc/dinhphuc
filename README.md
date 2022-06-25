@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Look at this tree. I cannot make it blossom when it suits me, nor make it bear fruit before its time.**
+**We are made to persist. That's how we find out who we are.**
 
-Master Oogway
+Tobias Wolff
