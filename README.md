@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once you're beat mentally, you might as well not even go to the starting line.**
+**Motivation is what gets you started. Habit is what keeps you going.**
 
-Todd Williams
+Jim Rohn
