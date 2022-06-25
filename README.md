@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is far better to be alone, than to be in bad company.**
+**Start doing things to make you happy.**
 
-George Washington
+Reyna Biddy
