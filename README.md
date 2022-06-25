@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A runner must run with dreams in his heart.**
+**Whether you think you can or can't, you're right.**
 
-Emil Zatopek
+Henry Ford
