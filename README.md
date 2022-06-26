@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be not afraid of life. Believe that life is worth living, and your belief will help create the fact.**
+**You may say I'm a dreamer but I'm not the only one.**
 
-William James
+John Lennon
