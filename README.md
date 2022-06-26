@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our own self-esteem is something we can actually twist in whatever way we want.**
+**Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching.**
 
-Stephen Richards
+Satchel Paige
