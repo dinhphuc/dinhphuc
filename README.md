@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Wherever you go, no matter what the weather, always bring your own sunshine.**
+**The happiness of your life depends upon the quality of your thoughts.**
 
-Anthony J. D'Angelo
+Marcus Aurelius
