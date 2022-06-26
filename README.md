@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure will never overtake me if my determination to succeed is strong enough.**
+**Shine like the whole universe is yours.**
 
-Og Mandino
+Rumi
