@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One day I'll be at the place I always wanted to be.**
+**Today is a beautiful day and I will attract good things into my life.**
 
 Anonymous
