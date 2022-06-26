@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness can be found, even in the darkest of times, if one only remembers to turn on the light.**
+**Our own self-esteem is something we can actually twist in whatever way we want.**
 
-Anonymous
+Stephen Richards
