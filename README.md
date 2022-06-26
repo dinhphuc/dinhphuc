@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Today is a beautiful day and I will attract good things into my life.**
+**Successful people have fear, successful people have doubts, and successful people have worries. They just don't let these feelings stop them.**
 
-Anonymous
+T. Harv Eker
