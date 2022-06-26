@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Shine like the whole universe is yours.**
+**Tough times don't last. Tough people do.**
 
-Rumi
+Robert H. Schuller
