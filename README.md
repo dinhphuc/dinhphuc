@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot prevent the birds of sadness from passing over your head, but you can prevent their making a nest in your hair.**
+**Great works are performed, not by strength, but by perseverance.**
 
-Chinese Proverb
+Samuel Johnson
