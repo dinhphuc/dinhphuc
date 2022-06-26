@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A successful man is one who can lay a firm foundation with the bricks others have thrown at him.**
+**Failure will never overtake me if my determination to succeed is strong enough.**
 
-David Brinkley
+Og Mandino
