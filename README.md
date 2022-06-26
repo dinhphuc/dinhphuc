@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Great works are performed, not by strength, but by perseverance.**
+**Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.**
 
-Samuel Johnson
+Napoleon Hill
