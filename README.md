@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't try to be perfect. Just try to be better than you were yesterday.**
+**Sometimes your joy is the source of your smile, but sometimes your smile can be the source of your joy.**
 
-Anonymous
+Thich Nhat Hanh
