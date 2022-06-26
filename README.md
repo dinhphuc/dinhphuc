@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You may say I'm a dreamer but I'm not the only one.**
+**You were born to win. But to be a winner, you must plan to win, prepare to win, and expect to win.**
 
-John Lennon
+Zig Ziglar
