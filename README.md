@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're offered a seat on a rocket ship, don't ask what seat! Just get on.**
+**Life isn't about finding yourself. Life is about creating yourself.**
 
-Sheryl Sandberg
+George Bernard Shaw
