@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**'Thank you' is the best prayer that anyone could say.**
+**You may be disappointed if you fail, but you are doomed if you don't try.**
 
-Alice Walker
+Beverly Sills
