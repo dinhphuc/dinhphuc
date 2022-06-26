@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You were born to win. But to be a winner, you must plan to win, prepare to win, and expect to win.**
+**Don't try to be perfect. Just try to be better than you were yesterday.**
 
-Zig Ziglar
+Anonymous
