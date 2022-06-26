@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Skill is only developed by hours and hours of work.**
+**'Thank you' is the best prayer that anyone could say.**
 
-Usain Bolt
+Alice Walker
