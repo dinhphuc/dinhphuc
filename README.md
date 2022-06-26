@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Successful people have fear, successful people have doubts, and successful people have worries. They just don't let these feelings stop them.**
+**Happiness can be found, even in the darkest of times, if one only remembers to turn on the light.**
 
-T. Harv Eker
+Anonymous
