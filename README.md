@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be not afraid of life. Believe that life is worth living, and your belief will help create the fact.**
+**When you know what you want, and want it bad enough, you'll find a way to get it.**
 
-William James
+Jim Rohn
