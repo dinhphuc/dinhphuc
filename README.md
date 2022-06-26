@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A difficult time can be more readily endured if we retain the conviction that our existence holds a purpose - a cause to pursue, a person to love, a goal to achieve.**
+**We last longer if we compete against ourselves for the good of others instead of competing against others for the good of ourselves.**
 
-John Maxwell
+Simon Sinek
