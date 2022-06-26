@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once we accept our limits, we go beyond them.**
+**A difficult time can be more readily endured if we retain the conviction that our existence holds a purpose - a cause to pursue, a person to love, a goal to achieve.**
 
-Albert Einstein
+John Maxwell
