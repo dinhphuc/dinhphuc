@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We last longer if we compete against ourselves for the good of others instead of competing against others for the good of ourselves.**
+**Wherever you go, no matter what the weather, always bring your own sunshine.**
 
-Simon Sinek
+Anthony J. D'Angelo
