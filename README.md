@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You may be disappointed if you fail, but you are doomed if you don't try.**
+**You cannot prevent the birds of sadness from passing over your head, but you can prevent their making a nest in your hair.**
 
-Beverly Sills
+Chinese Proverb
