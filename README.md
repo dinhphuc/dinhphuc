@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The happiness of your life depends upon the quality of your thoughts.**
+**Skill is only developed by hours and hours of work.**
 
-Marcus Aurelius
+Usain Bolt
