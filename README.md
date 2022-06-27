@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Difficult roads always lead to beautiful destinations.**
+**What you're thinking is what you're becoming.**
 
-Zig Ziglar
+Muhammad Ali
