@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**My attitude is if you push me towards a weakness, I will turn that weakness into a strength.**
+**We should never change our minds about where we are going, but always be curious about different ways to get there.**
 
-Michael Jordan
+Simon Sinek
