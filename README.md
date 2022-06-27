@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Even the smallest shift in perspective can bring about the greatest healing.**
+**You don't find will power, you create it.**
 
-Joshua Kai
+Anonymous
