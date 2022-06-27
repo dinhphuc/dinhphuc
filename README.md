@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe with all of your heart that you will do what you were made to do.**
+**The secret of change is to focus all of your energy, not on fighting the old, but on building the new.**
 
-Orison Swett Marden
+Socrates
