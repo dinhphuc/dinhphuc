@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't find will power, you create it.**
+**Believe with all of your heart that you will do what you were made to do.**
 
-Anonymous
+Orison Swett Marden
