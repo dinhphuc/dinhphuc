@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't count the days, make the days count.**
+**We become what we think about.**
 
-Muhammad Ali
+Earl Nightingale
