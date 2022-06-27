@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You deserve to be happy. You deserve to live a life you are excited about. Don't let others make you forget that.**
+**You don't find will power, you create it.**
 
 Anonymous
