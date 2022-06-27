@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Who begins too much accomplishes little.**
+**Nothing will work unless you do.**
 
-German Proverb
+Maya Angelou
