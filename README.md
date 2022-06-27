@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe with all of your heart that you will do what you were made to do.**
+**Like the morning sun, you too shall rise and continue to shine.**
 
-Orison Swett Marden
+Anonymous
