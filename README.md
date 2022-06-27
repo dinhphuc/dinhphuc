@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**An inch of gold can't buy an inch of time.**
+**You are stronger than you think.**
 
-Chinese Proverb
+Anonymous
