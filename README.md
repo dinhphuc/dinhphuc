@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is a habit - cultivate it.**
+**Difficult roads always lead to beautiful destinations.**
 
-Elbert Hubbard
+Zig Ziglar
