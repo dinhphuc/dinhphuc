@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you're thinking is what you're becoming.**
+**Deep doubts, deep wisdom; small doubts, small wisdom.**
 
-Muhammad Ali
+Chinese Proverb
