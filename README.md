@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are stronger than you think.**
+**Who begins too much accomplishes little.**
 
-Anonymous
+German Proverb
