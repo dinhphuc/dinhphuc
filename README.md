@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In life, many things do not go according to plan. If you fall, get back up.**
+**The one who falls and gets up is so much stronger than the one who never fell.**
 
 Anonymous
