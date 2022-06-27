@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Shared joy is a double joy; shared sorrow is half a sorrow.**
+**It's not whether you get knocked down. It's whether you get back up.**
 
-Swedish Proverb
+Vince Lombardi
