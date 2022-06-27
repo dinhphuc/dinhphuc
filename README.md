@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We become what we think about.**
+**I'm stronger because I had to be, I'm smarter because of my mistakes, happier because of the sadness I've known, and now wiser because I learned.**
 
-Earl Nightingale
+Anonymous
