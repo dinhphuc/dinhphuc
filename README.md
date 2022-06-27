@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Even the smallest shift in perspective can bring about the greatest healing.**
+**The reputation of a thousand years may be determined by the conduct of one hour.**
 
-Joshua Kai
+Japanese Proverb
