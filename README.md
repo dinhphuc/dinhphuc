@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The one who falls and gets up is so much stronger than the one who never fell.**
+**Success is the sum of small efforts repeated day-in and day-out.**
 
-Anonymous
+Robert Collier
