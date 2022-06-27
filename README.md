@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Measure a thousand times and cut once.**
+**You will be exactly as happy as you decide to be.**
 
-Turkish Proverb
+Anonymous
