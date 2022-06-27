@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If I have the belief that I can do it, I shall surely acquire the capacity to do it even if I may not have it at the beginning.**
+**Even the smallest shift in perspective can bring about the greatest healing.**
 
-Gandhi
+Joshua Kai
