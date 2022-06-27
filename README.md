@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm stronger because I had to be, I'm smarter because of my mistakes, happier because of the sadness I've known, and now wiser because I learned.**
+**An inch of gold can't buy an inch of time.**
 
-Anonymous
+Chinese Proverb
