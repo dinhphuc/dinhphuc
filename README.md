@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is the sum of small efforts repeated day-in and day-out.**
+**You can have everything you want in life if you just help enough people get what they want in life.**
 
-Robert Collier
+Zig Ziglar
