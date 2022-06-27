@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Deep doubts, deep wisdom; small doubts, small wisdom.**
+**Shared joy is a double joy; shared sorrow is half a sorrow.**
 
-Chinese Proverb
+Swedish Proverb
