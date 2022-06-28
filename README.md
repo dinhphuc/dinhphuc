@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A fault confessed is half redressed.**
+**If you go to a donkey's house, don't talk about ears.**
 
-Zulu Proverb
+Jamaican Proverb
