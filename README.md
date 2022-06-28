@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to lift yourself up, lift up someone else.**
+**Use your smile to change the world; don't let the world change your smile.**
 
-Booker T. Washington
+Chinese proverb
