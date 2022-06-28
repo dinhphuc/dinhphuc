@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The best way to gain self-confidence is to do what you are afraid to do.**
+**Take it all one day at a time and enjoy the journey.**
 
-Swati Sharma
+Kristi Bartlett
