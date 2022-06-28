@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You were born to win. But to be a winner, you must plan to win, prepare to win, and expect to win.**
+**Success isn't just about what you accomplish in life. It's about what you inspire others to do.**
 
-Zig Ziglar
+Anonymous
