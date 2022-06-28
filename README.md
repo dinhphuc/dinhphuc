@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Stay strong. You never know who you are inspiring.**
+**You will find only what you bring in.**
 
-Anonymous
+Yoda
