@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always be yourself and have faith in yourself. Do not go out and look for a successful personality and try to duplicate it.**
+**Always two there are, no more, no less. A master and an apprentice.**
 
-Bruce Lee
+Yoda
