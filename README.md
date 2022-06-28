@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If I have the belief that I can do it, I shall surely acquire the capacity to do it even if I may not have it at the beginning.**
+**Each time I thought I had achieved my life's purpose, I discovered it was only another step in my journey.**
 
-Gandhi
+Muhammad Ali
