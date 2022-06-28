@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't blame gravity for falling in love.**
+**You have brains in your head. You have feet in your shoes. You can steer yourself any direction you choose.**
 
-Albert Einstein
+Dr. Seuss
