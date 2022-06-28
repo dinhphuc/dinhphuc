@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**This a wonderful day. I've never seen this one before.**
+**Today you are you! That is truer than true! There is no one alive who is you-er than you!**
 
-Maya Angelou
+Dr. Seuss
