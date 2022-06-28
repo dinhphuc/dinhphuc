@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Today you are you! That is truer than true! There is no one alive who is you-er than you!**
+**No one is perfect - that's why pencils have erasers.**
 
-Dr. Seuss
+Wolfgang Riebe
