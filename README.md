@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will find only what you bring in.**
+**Your positive action combined with positive thinking results in success.**
 
-Yoda
+Anonymous
