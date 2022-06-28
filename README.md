@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be a voice not an echo.**
+**If you're offered a seat on a rocket ship, don't ask what seat! Just get on.**
 
-Anonymous
+Sheryl Sandberg
