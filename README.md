@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Float like a butterfly, sting like a bee. The hands can't hit what the eyes can't see.**
+**You were born to win. But to be a winner, you must plan to win, prepare to win, and expect to win.**
 
-Muhammad Ali
+Zig Ziglar
