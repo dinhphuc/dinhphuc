@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To give anything less than your best is to sacrifice the gift.**
+**If you want to lift yourself up, lift up someone else.**
 
-Steve Prefontaine
+Booker T. Washington
