@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Take it all one day at a time and enjoy the journey.**
+**A fault confessed is half redressed.**
 
-Kristi Bartlett
+Zulu Proverb
