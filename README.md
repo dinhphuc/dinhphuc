@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love the life you live. Live the life you love.**
+**You can't blame gravity for falling in love.**
 
-Bob Marley
+Albert Einstein
