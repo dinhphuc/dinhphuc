@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Each time I thought I had achieved my life's purpose, I discovered it was only another step in my journey.**
+**Stay strong. You never know who you are inspiring.**
 
-Muhammad Ali
+Anonymous
