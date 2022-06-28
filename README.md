@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your positive action combined with positive thinking results in success.**
+**Float like a butterfly, sting like a bee. The hands can't hit what the eyes can't see.**
 
-Anonymous
+Muhammad Ali
