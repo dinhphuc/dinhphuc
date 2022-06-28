@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're offered a seat on a rocket ship, don't ask what seat! Just get on.**
+**Sometimes you face difficulties not because you're doing something wrong but because you're doing something right.**
 
-Sheryl Sandberg
+Anonymous
