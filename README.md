@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success isn't just about what you accomplish in life. It's about what you inspire others to do.**
+**Love the life you live. Live the life you love.**
 
-Anonymous
+Bob Marley
