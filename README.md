@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Use your smile to change the world; don't let the world change your smile.**
+**When a new day begins, dare to smile gratefully.**
 
-Chinese proverb
+Steve Maraboli
