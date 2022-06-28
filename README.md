@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The things you regret most in life are the risks you didn't take.**
+**Always two there are, no more, no less. A master and an apprentice.**
 
-Anonymous
+Yoda
