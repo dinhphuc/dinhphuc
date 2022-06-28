@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You have brains in your head. You have feet in your shoes. You can steer yourself any direction you choose.**
+**Happiness resides not in possessions, and not in gold, happiness dwells in the soul.**
 
-Dr. Seuss
+Democritus
