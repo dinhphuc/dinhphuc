@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your time is limited, so don't waste it living someone else's life.**
+**The way I see it, if you want the rainbow, you gotta put up with the rain.**
 
-Steve Jobs
+Dolly Parton
