@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The best way to make your dreams come true is to wake up.**
+**If you want to lift yourself up, lift up someone else.**
 
-Paul Valery
+Booker T. Washington
