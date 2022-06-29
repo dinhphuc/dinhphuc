@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It matters not what someone is born, but what they grow to be.**
+**Whatever you are, be a good one.**
 
-Master Oogway
+Abraham Lincoln
