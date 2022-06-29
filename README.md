@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Not all those who wander are lost.**
+**Confidence comes from discipline and training.**
 
-J. R. R. Tolkien
+Robert Kiyosaki
