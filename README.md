@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In the end, it's not the years in your life that count. It's the life in your years.**
+**Learn to be thankful for what you already have, while you pursue all that you want.**
 
-Abraham Lincoln
+Jim Rohn
