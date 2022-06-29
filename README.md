@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be yourself. An original is so much better than a copy.**
+**Work hard in silence. Let success make the noise.**
 
 Anonymous
