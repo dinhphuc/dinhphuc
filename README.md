@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are willing to do more than you are paid to do, eventually you will be paid to do more than you do.**
+**In the end, it's not the years in your life that count. It's the life in your years.**
 
-Anonymous
+Abraham Lincoln
