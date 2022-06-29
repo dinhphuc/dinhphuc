@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do all things with love.**
+**If you want to go fast, go alone. If you want to go far, go together.**
 
-Og Mandino
+African Proverb
