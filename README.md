@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Forgiving yourself, believing in yourself and choosing to love yourself are the best gifts one could receive.**
+**It matters not what someone is born, but what they grow to be.**
 
-Brittany Burgunder
+Master Oogway
