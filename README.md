@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Impossible is nothing.**
+**Forgiving yourself, believing in yourself and choosing to love yourself are the best gifts one could receive.**
 
-Muhammad Ali
+Brittany Burgunder
