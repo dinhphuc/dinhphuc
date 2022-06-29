@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to go fast, go alone. If you want to go far, go together.**
+**Being deeply loved by someone gives you strength, while loving someone deeply gives you courage.**
 
-African Proverb
+Lao-Tzu
