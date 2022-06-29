@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only those who dare to fail greatly can ever achieve greatly.**
+**Speed is irrelevant if you are going in the wrong direction.**
 
-Robert F. Kennedy
+Mahatma Gandhi
