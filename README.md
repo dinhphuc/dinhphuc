@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Speed is irrelevant if you are going in the wrong direction.**
+**Open your eyes and notice the beauty of this wonderful world.**
 
-Mahatma Gandhi
+Anonymous
