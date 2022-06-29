@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Work hard in silence. Let success make the noise.**
+**Your life does not get better by chance, it gets better by change.**
 
 Anonymous
