@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you go to a donkey's house, don't talk about ears.**
+**The best way to make your dreams come true is to wake up.**
 
-Jamaican Proverb
+Paul Valery
