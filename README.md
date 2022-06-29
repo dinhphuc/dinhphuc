@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love the life you live. Live the life you love.**
+**'Thank you' is the best prayer that anyone could say.**
 
-Bob Marley
+Alice Walker
