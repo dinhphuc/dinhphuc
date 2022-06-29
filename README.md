@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When it comes to success, there are no shortcuts.**
+**Words may inspire but only action creates change.**
 
-Bo Bennett
+Simon Sinek
