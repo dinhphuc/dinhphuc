@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to lift yourself up, lift up someone else.**
+**Be yourself. An original is so much better than a copy.**
 
-Booker T. Washington
+Anonymous
