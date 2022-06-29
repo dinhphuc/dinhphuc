@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence comes from discipline and training.**
+**Love the life you live. Live the life you love.**
 
-Robert Kiyosaki
+Bob Marley
