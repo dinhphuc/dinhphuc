@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**'Thank you' is the best prayer that anyone could say.**
+**When it comes to success, there are no shortcuts.**
 
-Alice Walker
+Bo Bennett
