@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your life does not get better by chance, it gets better by change.**
+**Wherever you go, go with all your heart.**
 
-Anonymous
+Confucius
