@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Wherever you go, go with all your heart.**
+**If you are willing to do more than you are paid to do, eventually you will be paid to do more than you do.**
 
-Confucius
+Anonymous
