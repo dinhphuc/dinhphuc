@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you are, be a good one.**
+**Only those who dare to fail greatly can ever achieve greatly.**
 
-Abraham Lincoln
+Robert F. Kennedy
