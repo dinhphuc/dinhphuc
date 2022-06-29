@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Being deeply loved by someone gives you strength, while loving someone deeply gives you courage.**
+**Start where you are. Use what you have. Do what you can.**
 
-Lao-Tzu
+Arthur Ashe
