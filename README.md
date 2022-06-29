@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Start where you are. Use what you have. Do what you can.**
+**Not all those who wander are lost.**
 
-Arthur Ashe
+J. R. R. Tolkien
