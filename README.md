@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you are, be a good one.**
+**Where love reigns, the impossible may be attained.**
 
-Abraham Lincoln
+Indian Proverb
