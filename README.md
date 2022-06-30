@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe in yourself, take on your challenges, dig deep within yourself to conquer fears. Never let anyone bring you down. You got to keep going.**
+**I alone cannot change the world, but I can cast a stone across the water to create many ripples.**
 
-Chantal Sutherland
+Mother Teresa
