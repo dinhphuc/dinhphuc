@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm not telling you it is going to be easy, I'm telling you it's going to be worth it.**
+**The things you regret most in life are the risks you didn't take.**
 
-Art Williams
+Anonymous
