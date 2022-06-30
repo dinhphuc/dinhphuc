@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter where you are on your journey, that's exactly where you need to be.**
+**It's not what you look at that matters, it's what you see.**
 
-Oprah Winfrey
+Henry David Thoreau
