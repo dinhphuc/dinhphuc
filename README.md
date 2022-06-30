@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Trust yourself. You know more than you think you do.**
+**The trick is to enjoy life. Don't wish away your days, waiting for better ones ahead.**
 
-Dr. Benjamin Spock
+Marjorie Pay Hinckley
