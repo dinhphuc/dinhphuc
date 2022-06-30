@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You walk through life much easier with a smile on your face.**
+**Learning never exhausts the mind.**
 
-Sweet Paul
+Leonardo da Vinci
