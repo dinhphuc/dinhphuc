@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not what you look at that matters, it's what you see.**
+**It's not whether you get knocked down. It's whether you get back up.**
 
-Henry David Thoreau
+Vince Lombardi
