@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A hero is an ordinary individual who finds the strength to persevere and endure in spite of overwhelming obstacles.**
+**I'm not telling you it is going to be easy, I'm telling you it's going to be worth it.**
 
-Christopher Reeve
+Art Williams
