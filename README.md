@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Being optimistic really has nothing to do with happiness, it's just taking whatever life chucks at you and not letting it break you down.**
+**You walk through life much easier with a smile on your face.**
 
-Anonymous
+Sweet Paul
