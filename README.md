@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A house is made of bricks and beams. A home is made of hopes and dreams.**
+**Just when the caterpillar thought the world was ending, it turned into a butterfly.**
 
 Anonymous
