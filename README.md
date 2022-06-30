@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot change the direction of the wind - only alter the angle of your sails.**
+**Being optimistic really has nothing to do with happiness, it's just taking whatever life chucks at you and not letting it break you down.**
 
 Anonymous
