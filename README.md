@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be gentle with yourself. You're doing the best you can.**
+**Love cures people - both the ones who give it and the ones who receive it.**
 
-Anonymous
+Karl A. Menninger
