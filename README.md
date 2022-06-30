@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Learning never exhausts the mind.**
+**All souls are lost until they are found.**
 
-Leonardo da Vinci
+Kate McGahan
