@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Just when the caterpillar thought the world was ending, it turned into a butterfly.**
+**Whatever happens, just keep smiling and lose yourself in love.**
 
-Anonymous
+Rumi
