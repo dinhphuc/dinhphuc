@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up. Great things take time. Be patient.**
+**A house is made of bricks and beams. A home is made of hopes and dreams.**
 
 Anonymous
