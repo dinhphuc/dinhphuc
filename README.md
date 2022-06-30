@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Luck is what happens when preparation meets opportunity.**
+**Never give up. Great things take time. Be patient.**
 
-Seneca
+Anonymous
