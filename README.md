@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The things you regret most in life are the risks you didn't take.**
+**If you're going through hell, keep going.**
 
-Anonymous
+Winston Churchill
