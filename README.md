@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The trick is to enjoy life. Don't wish away your days, waiting for better ones ahead.**
+**Everything you've ever wanted is on the other side of fear.**
 
-Marjorie Pay Hinckley
+George Addair
