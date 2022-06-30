@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love cures people - both the ones who give it and the ones who receive it.**
+**Trust yourself. You know more than you think you do.**
 
-Karl A. Menninger
+Dr. Benjamin Spock
