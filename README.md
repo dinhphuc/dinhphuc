@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All souls are lost until they are found.**
+**Luck is what happens when preparation meets opportunity.**
 
-Kate McGahan
+Seneca
