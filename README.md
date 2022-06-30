@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're going through hell, keep going.**
+**No matter where you are on your journey, that's exactly where you need to be.**
 
-Winston Churchill
+Oprah Winfrey
