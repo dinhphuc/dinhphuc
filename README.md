@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The start is what stops most people.**
+**Yesterday is history, tomorrow is a mystery, today is a gift of God, which is why we call it the present.**
 
-Don Shula
+Bill Keane
