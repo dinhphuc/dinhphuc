@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There's never enough time to do everything, but there's always enough time to do the most important thing.**
+**A new command I give you: Love one another.**
 
-Dean Bokhari
+Jesus Christ
