@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can dream it, then you can achieve it.**
+**Surround yourself with people who get you.**
 
-Zig Ziglar
+Anonymous
