@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A dream does not become reality through magic; it takes sweat, determination and hard work.**
+**If you go to a donkey's house, don't talk about ears.**
 
-Colin Powell
+Jamaican Proverb
