@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Stay strong. You never know who you are inspiring.**
+**Alone, we can do so little; together we can do so much.**
 
-Anonymous
+Helen Keller
