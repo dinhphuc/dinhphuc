@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Positive anything is better than negative nothing.**
+**Look for something positive in each day, even if some days you have to look a little harder.**
 
-Elbert Hubbard
+Anonymous
