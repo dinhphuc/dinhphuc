@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Start by doing what's necessary; then do what's possible; and suddenly you are doing the impossible.**
+**A dream does not become reality through magic; it takes sweat, determination and hard work.**
 
-Francis of Assisi
+Colin Powell
