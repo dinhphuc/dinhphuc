@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything will work out in the end. You don't need to know how. You just have to trust that it will.**
+**Our problems don't stem from our ignorance so much as our disobedience of that which we know to be right.**
 
-Anonymous
+Stephen Covey
