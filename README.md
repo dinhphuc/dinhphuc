@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you go to a donkey's house, don't talk about ears.**
+**Positive anything is better than negative nothing.**
 
-Jamaican Proverb
+Elbert Hubbard
