@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Alone, we can do so little; together we can do so much.**
+**There's never enough time to do everything, but there's always enough time to do the most important thing.**
 
-Helen Keller
+Dean Bokhari
