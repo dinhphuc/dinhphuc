@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Surround yourself with people who get you.**
+**Push yourself because no one else is going to do it for you.**
 
 Anonymous
