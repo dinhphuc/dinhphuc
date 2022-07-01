@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Results happen over time, not overnight. Work hard, stay consistent, and be patient.**
+**The greatest teacher, failure is.**
 
-Anonymous
+Yoda
