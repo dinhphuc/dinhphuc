@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A new command I give you: Love one another.**
+**Risk more than others think is safe. Dream more than others think is practical.**
 
-Jesus Christ
+Anonymous
