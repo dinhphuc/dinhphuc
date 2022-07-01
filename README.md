@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Friends show their love in times of trouble, not in happiness.**
+**If you can dream it, then you can achieve it.**
 
-Euripides
+Zig Ziglar
