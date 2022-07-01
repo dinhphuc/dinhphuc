@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always two there are, no more, no less. A master and an apprentice.**
+**Stay strong. You never know who you are inspiring.**
 
-Yoda
+Anonymous
