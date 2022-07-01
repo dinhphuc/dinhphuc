@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Being happy is the greatest form of success.**
+**Friends show their love in times of trouble, not in happiness.**
 
-Anonymous
+Euripides
