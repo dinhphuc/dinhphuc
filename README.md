@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's the repetition of affirmations that leads to belief. And once that belief becomes a deep conviction, things begin to happen.**
+**Even the smallest shift in perspective can bring about the greatest healing.**
 
-Muhammad Ali
+Joshua Kai
