@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Staying positive does not mean that things will turn out okay. Rather it is knowing that you will be okay no matter how things turn out.**
+**The start is what stops most people.**
 
-Anonymous
+Don Shula
