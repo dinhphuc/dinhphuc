@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Even the smallest shift in perspective can bring about the greatest healing.**
+**Results happen over time, not overnight. Work hard, stay consistent, and be patient.**
 
-Joshua Kai
+Anonymous
