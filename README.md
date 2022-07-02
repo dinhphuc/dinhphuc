@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I am not a product of my circumstances. I am a product of my decisions.**
+**There is always something more to learn. Even for a master.**
 
-Stephen Covey
+Master Oogway
