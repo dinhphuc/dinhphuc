@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is always something more to learn. Even for a master.**
+**Good friends are all that matter.**
 
-Master Oogway
+Anonymous
