@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you find your why, you find a way to make it happen.**
+**You are enough, just as you are.**
 
-Eric Thomas
+Anonymous
