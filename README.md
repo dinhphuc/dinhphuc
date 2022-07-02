@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are never too old to set another goal or dream a new dream.**
+**You will be blessed the moment you realize you already are.**
 
-Les Brown
+Bryant Mcgill
