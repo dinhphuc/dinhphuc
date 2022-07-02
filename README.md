@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only in the darkness can you see the stars.**
+**Don't judge each day by the harvest you reap but by the seeds that you plant.**
 
-Martin Luther King, Jr.
+Robert Louis Stevenson
