@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't judge each day by the harvest you reap but by the seeds that you plant.**
+**Don't be afraid to start over. It's a brand new opportunity to rebuild what you truly want.**
 
-Robert Louis Stevenson
+Anonymous
