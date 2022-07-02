@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't go up to the top, you grow up to the top.**
+**You will be blessed the moment you realize you already are.**
 
-John C. Maxwell
+Bryant Mcgill
