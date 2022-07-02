@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are only two options regarding commitment. You're either IN or you're OUT. There is no such thing as life in-between.**
+**Only in the darkness can you see the stars.**
 
-Pat Riley
+Martin Luther King, Jr.
