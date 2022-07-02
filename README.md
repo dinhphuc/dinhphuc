@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Inhale confidence. Exhale doubt.**
+**Good friends are all that matter.**
 
 Anonymous
