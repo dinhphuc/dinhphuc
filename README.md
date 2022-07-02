@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good friends are all that matter.**
+**It does not matter how slowly you go as long as you do not stop.**
 
-Anonymous
+Confucius
