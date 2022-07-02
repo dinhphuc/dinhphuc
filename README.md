@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember, most of your stress comes from the way you respond, not the way life is.**
+**It's a good day to be happy.**
 
 Anonymous
