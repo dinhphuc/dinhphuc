@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be afraid to start over. It's a brand new opportunity to rebuild what you truly want.**
+**I am not a product of my circumstances. I am a product of my decisions.**
 
-Anonymous
+Stephen Covey
