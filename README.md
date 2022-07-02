@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**As we express our gratitude, we must never forget that the highest appreciation is not to utter words, but to live by them.**
+**If you go to a donkey's house, don't talk about ears.**
 
-John F. Kennedy
+Jamaican Proverb
