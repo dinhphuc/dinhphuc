@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is not something you postpone for the future; it is something you design for the present.**
+**Nothing is more beautiful than the smile that has struggled through the tears.**
 
-Jim Rohn
+Demi Lovato
