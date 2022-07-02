@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is only real when shared.**
+**Remember, most of your stress comes from the way you respond, not the way life is.**
 
-Jon Krakauer
+Anonymous
