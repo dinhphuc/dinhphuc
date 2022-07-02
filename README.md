@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't always control what goes on outside, but you can always control what goes on inside.**
+**There may be people that have more talent than you, but theres no excuse for anyone to work harder than you.**
 
-Wayne Dyer
+Derek Jeter
