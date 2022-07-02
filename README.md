@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you see in yourself is what you see in the world.**
+**You can't always control what goes on outside, but you can always control what goes on inside.**
 
-Afghan Proverb
+Wayne Dyer
