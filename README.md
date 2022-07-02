@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good friends are all that matter.**
+**Happiness is not something you postpone for the future; it is something you design for the present.**
 
-Anonymous
+Jim Rohn
