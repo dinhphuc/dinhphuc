@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest ability as humans is not to change the world; but to change ourselves.**
+**Always two there are, no more, no less. A master and an apprentice.**
 
-Mahatma Gandhi
+Yoda
