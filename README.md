@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you go to a donkey's house, don't talk about ears.**
+**The only person who can pull me down is myself, and I'm not going to let myself pull me down anymore.**
 
-Jamaican Proverb
+C. JoyBell C
