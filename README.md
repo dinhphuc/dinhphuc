@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I am not a product of my circumstances. I am a product of my decisions.**
+**Happiness is only real when shared.**
 
-Stephen Covey
+Jon Krakauer
