@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There may be people that have more talent than you, but theres no excuse for anyone to work harder than you.**
+**If you don't like something, change it. If you can't change it, change your attitude.**
 
-Derek Jeter
+Maya Angelou
