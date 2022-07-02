@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Change your thoughts and you change your world.**
+**You are never too old to set another goal or dream a new dream.**
 
-Norman Vincent Peale
+Les Brown
