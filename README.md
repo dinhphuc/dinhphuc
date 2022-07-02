@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing is more beautiful than the smile that has struggled through the tears.**
+**I am not a product of my circumstances. I am a product of my decisions.**
 
-Demi Lovato
+Stephen Covey
