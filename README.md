@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't like something, change it. If you can't change it, change your attitude.**
+**When obstacles arise, you change your direction to reach your goal, you do not change your decision to get there.**
 
-Maya Angelou
+Zig Ziglar
