@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It does not matter how slowly you go as long as you do not stop.**
+**A truly happy person is one who can enjoy the scenery when they have made a wrong turn.**
 
-Confucius
+Anonymous
