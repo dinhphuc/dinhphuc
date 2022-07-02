@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's a good day to be happy.**
+**When you find your why, you find a way to make it happen.**
 
-Anonymous
+Eric Thomas
