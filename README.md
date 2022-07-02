@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Yesterday is history, tomorrow is a mystery, today is a gift of God, which is why we call it the present.**
+**What you see in yourself is what you see in the world.**
 
-Bill Keane
+Afghan Proverb
