@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is short, and it is up to you to make it sweet.**
+**Courage is one step ahead of fear.**
 
-Sarah Louise Delany
+Coleman Young
