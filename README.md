@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Make the most of yourself....for that is all there is of you.**
+**If you cannot do great things, do small things in a great way.**
 
-Ralph Waldo Emerson
+Napoleon Hill
