@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be yourself. An original is so much better than a copy.**
+**Every accomplishment begins with the decision to try.**
 
 Anonymous
