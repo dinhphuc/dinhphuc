@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Trust the process of life.**
+**We are made to persist. That's how we find out who we are.**
 
-Anonymous
+Tobias Wolff
