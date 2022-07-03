@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strive not to be a success, but rather to be of value.**
+**Make the most of yourself....for that is all there is of you.**
 
-Albert Einstein
+Ralph Waldo Emerson
