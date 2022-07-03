@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Go fast enough to get there, but slow enough to see.**
+**Life is short, and it is up to you to make it sweet.**
 
-Jimmy Buffett
+Sarah Louise Delany
