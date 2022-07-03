@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Faith is taking the first step even when you don't see the whole staircase.**
+**Strive not to be a success, but rather to be of value.**
 
-Martin Luther King
+Albert Einstein
