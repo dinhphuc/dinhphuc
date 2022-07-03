@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every accomplishment begins with the decision to try.**
+**There is no cosmetic for beauty like happiness.**
 
-Anonymous
+Maria Mitchell
