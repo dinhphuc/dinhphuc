@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Being deeply loved by someone gives you strength, while loving someone deeply gives you courage.**
+**Strength doesn't come from what you can do. It comes from overcoming the things you once thought you couldn't.**
 
-Lao-Tzu
+Rikki Rogers
