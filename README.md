@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Learn to be thankful for what you already have, while you pursue all that you want.**
+**A house is made of bricks and beams. A home is made of hopes and dreams.**
 
-Jim Rohn
+Anonymous
