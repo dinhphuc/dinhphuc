@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Courage is one step ahead of fear.**
+**It's not bragging if you can back it up.**
 
-Coleman Young
+Muhammed Ali
