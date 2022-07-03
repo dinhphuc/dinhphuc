@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything will work out in the end. You don't need to know how. You just have to trust that it will.**
+**There are two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle.**
 
-Anonymous
+Albert Einstein
