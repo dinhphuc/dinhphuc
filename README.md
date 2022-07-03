@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you have exhausted all possibilities, remember this: you haven't.**
+**Learn to be thankful for what you already have, while you pursue all that you want.**
 
-Thomas Edison
+Jim Rohn
