@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will be blessed the moment you realize you already are.**
+**Pessimism leads to weakness, optimism to power.**
 
-Bryant Mcgill
+William James
