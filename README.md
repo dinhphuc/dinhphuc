@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A house is made of bricks and beams. A home is made of hopes and dreams.**
+**Deep doubts, deep wisdom; small doubts, small wisdom.**
 
-Anonymous
+Chinese Proverb
