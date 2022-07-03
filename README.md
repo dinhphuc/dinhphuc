@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not bragging if you can back it up.**
+**Doubt kills more dreams than failure ever will.**
 
-Muhammed Ali
+Suzy Kassem
