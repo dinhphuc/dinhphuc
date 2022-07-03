@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We can be who we are without the pleasures but we could not be who we are not without the hardships.**
+**The vision of a champion is someone who is bent over, drenched in sweat, at the point of exhaustion when no one else is watching.**
 
-Anonymous
+Jim Afremow
