@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pessimism leads to weakness, optimism to power.**
+**Go fast enough to get there, but slow enough to see.**
 
-William James
+Jimmy Buffett
