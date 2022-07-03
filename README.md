@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no cosmetic for beauty like happiness.**
+**Everything will work out in the end. You don't need to know how. You just have to trust that it will.**
 
-Maria Mitchell
+Anonymous
