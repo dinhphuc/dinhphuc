@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The starting point of all achievement is desire.**
+**As long as we have hope, we have direction, the energy to move, and the map to move by.**
 
-Napoleon Hill
+Lao Tzu
