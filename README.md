@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Trust the process of life.**
+**Love who you are, embrace who you are. Love yourself.**
 
-Anonymous
+Lilly Singh
