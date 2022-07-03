@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Doubt kills more dreams than failure ever will.**
+**Smaller in number are we, but larger in mind.**
 
-Suzy Kassem
+Yoda
