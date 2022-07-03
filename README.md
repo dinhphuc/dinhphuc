@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember, most of your stress comes from the way you respond, not the way life is.**
+**The difference between stumbling blocks and stepping stones is how you use them.**
 
 Anonymous
