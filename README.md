@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Deep doubts, deep wisdom; small doubts, small wisdom.**
+**Faith is taking the first step even when you don't see the whole staircase.**
 
-Chinese Proverb
+Martin Luther King
