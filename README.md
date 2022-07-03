@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The vision of a champion is someone who is bent over, drenched in sweat, at the point of exhaustion when no one else is watching.**
+**Being deeply loved by someone gives you strength, while loving someone deeply gives you courage.**
 
-Jim Afremow
+Lao-Tzu
