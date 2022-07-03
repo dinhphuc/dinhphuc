@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you cannot do great things, do small things in a great way.**
+**We can be who we are without the pleasures but we could not be who we are not without the hardships.**
 
-Napoleon Hill
+Anonymous
