@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smaller in number are we, but larger in mind.**
+**Remember, most of your stress comes from the way you respond, not the way life is.**
 
-Yoda
+Anonymous
