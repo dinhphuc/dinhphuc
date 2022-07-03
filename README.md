@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**As long as we have hope, we have direction, the energy to move, and the map to move by.**
+**When you have exhausted all possibilities, remember this: you haven't.**
 
-Lao Tzu
+Thomas Edison
