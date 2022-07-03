@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between stumbling blocks and stepping stones is how you use them.**
+**The starting point of all achievement is desire.**
 
-Anonymous
+Napoleon Hill
