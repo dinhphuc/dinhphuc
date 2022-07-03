@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We are made to persist. That's how we find out who we are.**
+**Be yourself. An original is so much better than a copy.**
 
-Tobias Wolff
+Anonymous
