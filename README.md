@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Wake up every morning with the thought that something wonderful is about to happen.**
+**At the end of the day, you can either focus on what's tearing you apart, or you can focus on what's keeping you together.**
 
 Anonymous
