@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Laugh. It's free medicine you don't need insurance for.**
+**There may be people that have more talent than you, but theres no excuse for anyone to work harder than you.**
 
-Anonymous
+Derek Jeter
