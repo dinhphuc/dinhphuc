@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Set a goal so big that you can't achieve it until you grow into the person who can.**
+**Life is never fair, and perhaps it is a good thing for most of us that it is not.**
 
-Anonymous
+Oscar Wilde
