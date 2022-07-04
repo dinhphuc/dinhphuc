@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not who you are that holds you back, it's who you think you're not.**
+**Don't think about what might go wrong. Think about what might go right.**
 
 Anonymous
