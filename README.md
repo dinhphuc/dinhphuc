@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You miss 100% of the shots you don't take.**
+**Positive thinking will let you do everything better than negative thinking will.**
 
-Wayne Gretzky
+Zig Ziglar
