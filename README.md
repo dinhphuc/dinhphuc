@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We know what we are, but know not what we may be.**
+**Happens to every guy sometimes this does.**
 
-William Shakespeare
+Yoda
