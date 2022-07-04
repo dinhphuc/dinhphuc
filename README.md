@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Learning never exhausts the mind.**
+**Some people dream of success... while others wake up and work hard at it.**
 
-Leonardo da Vinci
+Anonymous
