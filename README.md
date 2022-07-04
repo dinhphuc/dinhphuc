@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Positive thinking will let you do everything better than negative thinking will.**
+**Keep your face always toward the sunshine - and shadows will fall behind you.**
 
-Zig Ziglar
+Walt Whitman
