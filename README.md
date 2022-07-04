@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The marathon can humble you.**
+**You have purpose.**
 
-Bill Rodgers
+Anonymous
