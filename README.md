@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep your face always toward the sunshine - and shadows will fall behind you.**
+**Smile, and let the world wonder why.**
 
-Walt Whitman
+Minnie Mouse
