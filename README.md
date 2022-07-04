@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is never fair, and perhaps it is a good thing for most of us that it is not.**
+**We know what we are, but know not what we may be.**
 
-Oscar Wilde
+William Shakespeare
