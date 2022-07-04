@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are only two options regarding commitment. You're either IN or you're OUT. There is no such thing as life in-between.**
+**Smaller in number are we, but larger in mind.**
 
-Pat Riley
+Yoda
