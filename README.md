@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is nothing on this earth more to be prized than true friendship.**
+**Our greatest weakness lies in giving up. The most certain way to succeed is to just try one more time.**
 
-Thomas Aquinas
+Thomas Edison
