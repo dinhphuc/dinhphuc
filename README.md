@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile, and let the world wonder why.**
+**Don't sail out farther than you can row back.**
 
-Minnie Mouse
+Danish Proverb
