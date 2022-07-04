@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once you're beat mentally, you might as well not even go to the starting line.**
+**It's not who you are that holds you back, it's who you think you're not.**
 
-Todd Williams
+Anonymous
