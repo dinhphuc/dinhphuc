@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A champion is someone who gets up when they can't.**
+**Set a goal so big that you can't achieve it until you grow into the person who can.**
 
-Jack Dempsey
+Anonymous
