@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't think about what might go wrong. Think about what might go right.**
+**Do more of what lights you up and makes you feel alive. The world needs your spark.**
 
 Anonymous
