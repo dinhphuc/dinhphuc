@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happens to every guy sometimes this does.**
+**You don't get what you wish for. You get what you work for.**
 
-Yoda
+Anonymous
