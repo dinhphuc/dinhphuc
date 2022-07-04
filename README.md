@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smaller in number are we, but larger in mind.**
+**A champion is someone who gets up when they can't.**
 
-Yoda
+Jack Dempsey
