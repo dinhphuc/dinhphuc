@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest weakness lies in giving up. The most certain way to succeed is to just try one more time.**
+**Once you're beat mentally, you might as well not even go to the starting line.**
 
-Thomas Edison
+Todd Williams
