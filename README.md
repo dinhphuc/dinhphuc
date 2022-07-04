@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always believe that something wonderful is about to happen.**
+**The marathon can humble you.**
 
-Anonymous
+Bill Rodgers
