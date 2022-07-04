@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't sail out farther than you can row back.**
+**Push yourself because no one else is going to do it for you.**
 
-Danish Proverb
+Anonymous
