@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Beauty lies in the eye of the beholder.**
+**Think gold and never settle for silver.**
 
-English Proverb
+Jim Afremow
