@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing will work unless you do.**
+**The secret of success is to do the common thing uncommonly well.**
 
-Maya Angelou
+John D. Rockefeller Jr
