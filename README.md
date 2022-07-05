@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Think gold and never settle for silver.**
+**Happens to every guy sometimes this does.**
 
-Jim Afremow
+Yoda
