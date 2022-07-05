@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Many of the truths that we cling to depend on our point of view.**
+**Float like a butterfly, sting like a bee. The hands can't hit what the eyes can't see.**
 
-Yoda
+Muhammad Ali
