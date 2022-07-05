@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When I hear somebody sigh, 'Life is hard,' I am always tempted to ask, 'Compared to what?'**
+**Peace begins When expectation ends.**
 
-Sydney Harris
+Sri Chinmoy
