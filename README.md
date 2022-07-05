@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be strong enough to let go and patient enough to wait for what you deserve.**
+**Whatever you do, be different. If you're different, you will stand out.**
 
-Anonymous
+Anita Roddick
