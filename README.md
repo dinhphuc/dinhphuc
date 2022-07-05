@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be patient, good things are coming your way.**
+**In the end, it's not the years in your life that count. It's the life in your years.**
 
-Anonymous
+Abraham Lincoln
