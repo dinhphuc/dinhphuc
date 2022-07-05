@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The more grateful I am, the more beauty I see.**
+**One day you will wake up and there won't be any time to do the things you've always wanted to do. Do it now.**
 
-Mary Davis
+Paulo Coelho
