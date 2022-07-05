@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Learn from the past, set vivid, detailed goals for the future, and live in the only moment of time over which you have any control: now.**
+**The greatest mistake you can make in life is to continually fear that you will make one.**
 
-Denis Waitley
+Elbert Hubbard
