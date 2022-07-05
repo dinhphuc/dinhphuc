@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everytime you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**
+**Many of the truths that we cling to depend on our point of view.**
 
-Mother Teresa
+Yoda
