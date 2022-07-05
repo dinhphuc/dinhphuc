@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up, stay focused, stay positive, stay strong.**
+**Determination is doing what needs to be done even when you don't feel like doing it.**
 
 Anonymous
