@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.**
+**Live your life for you.**
 
-Samuel Beckett
+Anonymous
