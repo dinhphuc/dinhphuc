@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's better to light a candle than curse the darkness.**
+**Everytime you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**
 
-Chinese Proverb
+Mother Teresa
