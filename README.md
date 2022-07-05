@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of success is to do the common thing uncommonly well.**
+**Never give up, stay focused, stay positive, stay strong.**
 
-John D. Rockefeller Jr
+Anonymous
