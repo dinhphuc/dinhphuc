@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you do, be different. If you're different, you will stand out.**
+**Love the life you live. Live the life you love.**
 
-Anita Roddick
+Bob Marley
