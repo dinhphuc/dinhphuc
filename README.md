@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Ask yourself: Can I give more? The answer is usually: Yes.**
+**Nothing will work unless you do.**
 
-Paul Tergat
+Maya Angelou
