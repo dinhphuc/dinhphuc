@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live your life for you.**
+**The greatest victory in life is to rise above the material things that we once valued most.**
 
-Anonymous
+Muhammad Ali
