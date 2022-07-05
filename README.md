@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest victory in life is to rise above the material things that we once valued most.**
+**Be strong enough to let go and patient enough to wait for what you deserve.**
 
-Muhammad Ali
+Anonymous
