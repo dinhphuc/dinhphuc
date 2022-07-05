@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Words may inspire but only action creates change.**
+**Stop doubting yourself. Work hard and make it happen.**
 
-Simon Sinek
+Anonymous
