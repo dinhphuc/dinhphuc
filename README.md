@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Stop doubting yourself. Work hard and make it happen.**
+**One day you will wake up and there won't be any time to do the things you've always wanted to do. Do it now.**
 
-Anonymous
+Paulo Coelho
