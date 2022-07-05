@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Determination is doing what needs to be done even when you don't feel like doing it.**
+**It's better to light a candle than curse the darkness.**
 
-Anonymous
+Chinese Proverb
