@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Peace begins When expectation ends.**
+**Be patient, good things are coming your way.**
 
-Sri Chinmoy
+Anonymous
