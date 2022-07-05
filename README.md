@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Losers quit when they're tired. Winners quit when they've won.**
+**Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.**
 
-Anonymous
+Samuel Beckett
