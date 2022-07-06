@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not so much that I began to run, but that I continued.**
+**Life is too short to spend it at war with yourself.**
 
-Hal Higdon
+Anonymous
