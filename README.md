@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you do, do with all your might.**
+**For every minute you are angry you lose sixty seconds of happiness.**
 
-Marcus Tullius Cicero
+Ralph Waldo Emerson
