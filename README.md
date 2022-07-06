@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Forgiving yourself, believing in yourself and choosing to love yourself are the best gifts one could receive.**
+**The people who make you smile from just seeing them, those are my favorite people.**
 
-Brittany Burgunder
+Koi Fresco
