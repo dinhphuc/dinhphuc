@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always remember you are braver than you believe, stronger than you seem, and smarter than you think.**
+**A truly rich man is one whose children run into his arms when his hands are empty.**
 
-Christopher Robin
+Unknown
