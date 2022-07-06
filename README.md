@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your relationship with yourself sets the tone for every other relationship you have.**
+**A dream does not become reality through magic; it takes sweat, determination and hard work.**
 
-Anonymous
+Colin Powell
