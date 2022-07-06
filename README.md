@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You're allowed to scream. You're allowed to cry. But don't give up.**
+**Don't criticize, condemn or complain.**
 
-Anonymous
+Dale Carnegie
