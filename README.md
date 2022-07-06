@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**For every minute you are angry you lose sixty seconds of happiness.**
+**It's not so much that I began to run, but that I continued.**
 
-Ralph Waldo Emerson
+Hal Higdon
