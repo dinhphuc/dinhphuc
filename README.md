@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**My heart is always open to love.**
+**Change yourself and fortune will change.**
 
-Anonymous
+Portuguese Proverb
