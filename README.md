@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is too short to spend it at war with yourself.**
+**Faith is taking the first step even when you don't see the whole staircase.**
 
-Anonymous
+Martin Luther King
