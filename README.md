@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Faith is taking the first step even when you don't see the whole staircase.**
+**You cannot fail at being yourself.**
 
-Martin Luther King
+Wayne Dyer
