@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength does not come from physical capacity. It comes from an indomitable will.**
+**Winning is fun, but those moments that you can touch someone's life in a very positive way are better.**
 
-Mahatma Gandhi
+Tim Howard
