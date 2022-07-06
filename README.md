@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Each time I thought I had achieved my life's purpose, I discovered it was only another step in my journey.**
+**Don't ask what the world needs. Ask what makes you come alive and go do it. Because what the world needs is more people who have come alive.**
 
-Muhammad Ali
+Howard Thurman
