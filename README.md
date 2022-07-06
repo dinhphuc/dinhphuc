@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest mistake you can make in life is to continually fear that you will make one.**
+**Forgiving yourself, believing in yourself and choosing to love yourself are the best gifts one could receive.**
 
-Elbert Hubbard
+Brittany Burgunder
