@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Winning is fun, but those moments that you can touch someone's life in a very positive way are better.**
+**Always remember you are braver than you believe, stronger than you seem, and smarter than you think.**
 
-Tim Howard
+Christopher Robin
