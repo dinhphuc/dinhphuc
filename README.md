@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't criticize, condemn or complain.**
+**My heart is always open to love.**
 
-Dale Carnegie
+Anonymous
