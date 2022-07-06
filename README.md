@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Change yourself and fortune will change.**
+**The greatest mistake you can make in life is to continually fear that you will make one.**
 
-Portuguese Proverb
+Elbert Hubbard
