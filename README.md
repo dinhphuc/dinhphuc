@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The start is what stops most people.**
+**Every morning you have a new opportunity to become a happier version of yourself.**
 
-Don Shula
+Anonymous
