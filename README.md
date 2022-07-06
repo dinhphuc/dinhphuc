@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One small positive thought in the morning can change your whole day.**
+**Whatever you do, do with all your might.**
 
-Anonymous
+Marcus Tullius Cicero
