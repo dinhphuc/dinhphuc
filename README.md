@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't sail out farther than you can row back.**
+**Your body is made to move so move it.**
 
-Danish Proverb
+Toni Sorenson
