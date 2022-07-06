@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest mistake you can make in life is to continually fear that you will make one.**
+**Courage doesn't always roar, sometimes it's the quiet voice at the end of the day whispering 'I will try again tomorrow'.**
 
-Elbert Hubbard
+Mary Anne Radmacher
