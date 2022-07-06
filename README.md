@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To be willing is only half the task.**
+**One small positive thought in the morning can change your whole day.**
 
-Armenian Proverb
+Anonymous
