@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A dream does not become reality through magic; it takes sweat, determination and hard work.**
+**You may say I'm a dreamer but I'm not the only one.**
 
-Colin Powell
+John Lennon
