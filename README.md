@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The hardest thing to find in life is happiness - money is only hard to find because it gets wasted trying to find happiness.**
+**Strength does not come from physical capacity. It comes from an indomitable will.**
 
-Unknown
+Mahatma Gandhi
