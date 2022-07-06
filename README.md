@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot fail at being yourself.**
+**Your relationship with yourself sets the tone for every other relationship you have.**
 
-Wayne Dyer
+Anonymous
