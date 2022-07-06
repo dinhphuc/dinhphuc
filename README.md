@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every morning you have a new opportunity to become a happier version of yourself.**
+**It's not bragging if you can back it up.**
 
-Anonymous
+Muhammed Ali
