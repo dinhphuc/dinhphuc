@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I've never let anyone talk me into not believing in myself.**
+**What you see in yourself is what you see in the world.**
 
-Muhammad Ali
+Afghan Proverb
