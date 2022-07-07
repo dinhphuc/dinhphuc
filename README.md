@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are two things a person should never be angry at: what they can help, and what they cannot.**
+**It's lack of faith that makes people afraid of meeting challenges, and I believed in myself.**
 
-Plato
+Muhammad Ali
