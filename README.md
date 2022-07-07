@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously.**
+**Each time I thought I had achieved my life's purpose, I discovered it was only another step in my journey.**
 
-Steve Maraboli
+Muhammad Ali
