@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Winning doesn't always mean being first. Winning means you're doing better than you've done before.**
+**When you are enthusiastic about what you do, you feel this positive energy. It's very simple.**
 
-Bonnie Blair
+Paulo Coelho
