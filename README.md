@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you go to a donkey's house, don't talk about ears.**
+**The people who make you smile from just seeing them, those are my favorite people.**
 
-Jamaican Proverb
+Koi Fresco
