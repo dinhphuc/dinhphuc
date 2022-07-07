@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest glory is not in never falling, but in rising every time we fall.**
+**Life only comes around once, so do whatever makes you happy, and be with whoever makes you smile.**
 
-Confucius
+Anonymous
