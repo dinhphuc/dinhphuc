@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Count your age by friends, not years. Count your life by smiles, not tears.**
+**Our greatest glory is not in never falling, but in rising every time we fall.**
 
-John Lennon
+Confucius
