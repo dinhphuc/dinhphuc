@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile at strangers and you just might change a life.**
+**Winning doesn't always mean being first. Winning means you're doing better than you've done before.**
 
-Steve Maraboli
+Bonnie Blair
