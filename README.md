@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not bragging if you can back it up.**
+**Our greatest glory is not in never falling, but in rising every time we fall.**
 
-Muhammed Ali
+Confucius
