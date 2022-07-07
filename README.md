@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life only comes around once, so do whatever makes you happy, and be with whoever makes you smile.**
+**Where love reigns, the impossible may be attained.**
 
-Anonymous
+Indian Proverb
