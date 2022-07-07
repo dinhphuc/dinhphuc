@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**With virtue, you can't be completely poor; without it, you can't be truly rich.**
+**You don't manifest dreams without taking chances.**
 
-Chinese Proverb
+Stephen Richards
