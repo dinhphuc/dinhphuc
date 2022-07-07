@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everyone is breakable, but not everyone is aware that it's a choice to stay broken.**
+**There are two things a person should never be angry at: what they can help, and what they cannot.**
 
-Stanley Behrman
+Plato
