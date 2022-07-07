@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Gratitude is the sweetest thing in a seeker's life- in all human life. If there is gratitude in your heart, then there will be tremendous sweetness in your eyes.**
+**When you know what you want, and want it bad enough, you'll find a way to get it.**
 
-Sri Chinmoy
+Jim Rohn
