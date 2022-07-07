@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you see in yourself is what you see in the world.**
+**Smile at strangers and you just might change a life.**
 
-Afghan Proverb
+Steve Maraboli
