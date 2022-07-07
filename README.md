@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You may say I'm a dreamer but I'm not the only one.**
+**The starting point of all achievement is desire.**
 
-John Lennon
+Napoleon Hill
