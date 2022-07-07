@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A leader is one who knows the way, goes the way, and shows the way.**
+**With virtue, you can't be completely poor; without it, you can't be truly rich.**
 
-John C. Maxwell
+Chinese Proverb
