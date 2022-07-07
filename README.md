@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't manifest dreams without taking chances.**
+**If no mistake have you made, yet losing you are... a different game you should play.**
 
-Stephen Richards
+Yoda
