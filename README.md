@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest glory is not in never falling, but in rising every time we fall.**
+**If you go to a donkey's house, don't talk about ears.**
 
-Confucius
+Jamaican Proverb
