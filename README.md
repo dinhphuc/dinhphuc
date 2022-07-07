@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you are enthusiastic about what you do, you feel this positive energy. It's very simple.**
+**You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously.**
 
-Paulo Coelho
+Steve Maraboli
