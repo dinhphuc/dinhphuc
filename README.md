@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's lack of faith that makes people afraid of meeting challenges, and I believed in myself.**
+**Starting today, I need to forget what's gone. Appreciate what still remains and look forward to what's coming next.**
 
-Muhammad Ali
+Anonymous
