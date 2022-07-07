@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest ability as humans is not to change the world; but to change ourselves.**
+**It's easy to stand in the crowd but it takes courage to stand alone.**
 
 Mahatma Gandhi
