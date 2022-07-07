@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember that not getting what you want is sometimes a wonderful stroke of luck.**
+**A leader is one who knows the way, goes the way, and shows the way.**
 
-Dalai Lama
+John C. Maxwell
