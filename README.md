@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Examine what is said, not who speaks.**
+**Remember that not getting what you want is sometimes a wonderful stroke of luck.**
 
-Arab Proverb
+Dalai Lama
