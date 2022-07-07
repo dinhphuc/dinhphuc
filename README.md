@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It takes courage to grow up and become who you really are.**
+**Examine what is said, not who speaks.**
 
-E.E. Cummings
+Arab Proverb
