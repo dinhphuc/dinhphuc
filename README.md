@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The more you praise and celebrate your life, the more there is in life to celebrate.**
+**Everyone is breakable, but not everyone is aware that it's a choice to stay broken.**
 
-Oprah Winfrey
+Stanley Behrman
