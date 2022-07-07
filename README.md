@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's easy to stand in the crowd but it takes courage to stand alone.**
+**Count your age by friends, not years. Count your life by smiles, not tears.**
 
-Mahatma Gandhi
+John Lennon
