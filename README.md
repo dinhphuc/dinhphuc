@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not in the stars to hold our destiny but in ourselves.**
+**I've never let anyone talk me into not believing in myself.**
 
-William Shakespeare
+Muhammad Ali
