@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest discovery of all time is that a person can change their future by merely changing their attitude.**
+**Winning isn't everything, but wanting to win is.**
 
-Oprah Winfrey
+Vince Lombardi
