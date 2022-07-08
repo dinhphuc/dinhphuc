@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You may say I'm a dreamer but I'm not the only one.**
+**I am happy because I choose to be happy no matter what the situation is.**
 
-John Lennon
+Anonymous
