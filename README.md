@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hardships often prepare ordinary people for an extraordinary destiny.**
+**You are your only limit.**
 
-C.S. Lewis
+Anonymous
