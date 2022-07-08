@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are your only limit.**
+**Don't just glov, dazzle.**
 
 Anonymous
