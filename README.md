@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Winning isn't everything, but wanting to win is.**
+**There may be people that have more talent than you, but theres no excuse for anyone to work harder than you.**
 
-Vince Lombardi
+Derek Jeter
