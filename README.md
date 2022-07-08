@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Leadership is not about being in charge. Leadership is about taking care of those in your charge.**
+**The hardest thing to find in life is happiness - money is only hard to find because it gets wasted trying to find happiness.**
 
-Simon Sinek
+Unknown
