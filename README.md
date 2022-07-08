@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**For every minute you are angry you lose sixty seconds of happiness.**
+**The greatest danger for most of us is not that our aim is too high and we miss it, but that it is too low and we reach it.**
 
-Ralph Waldo Emerson
+Michaelangelo
