@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always be yourself and have faith in yourself. Do not go out and look for a successful personality and try to duplicate it.**
+**The greatest discovery of all time is that a person can change their future by merely changing their attitude.**
 
-Bruce Lee
+Oprah Winfrey
