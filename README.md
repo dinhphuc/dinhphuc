@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A teacher is better than two books.**
+**Always be yourself and have faith in yourself. Do not go out and look for a successful personality and try to duplicate it.**
 
-German Proverb
+Bruce Lee
