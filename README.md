@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The starting point of all achievement is desire.**
+**It's hard to beat a person who never gives up.**
 
-Napoleon Hill
+Anonymous
