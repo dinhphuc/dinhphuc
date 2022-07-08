@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Before you score, you first must have a goal.**
+**Our greatest glory is not in never falling, but in rising every time we fall.**
 
-Greek Proverb
+Confucius
