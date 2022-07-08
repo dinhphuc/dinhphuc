@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There may be people that have more talent than you, but theres no excuse for anyone to work harder than you.**
+**It's better to light a candle than curse the darkness.**
 
-Derek Jeter
+Chinese Proverb
