@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Many of the truths that we cling to depend on our point of view.**
+**A teacher is better than two books.**
 
-Yoda
+German Proverb
