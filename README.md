@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Build your own dreams, or someone else will hire you to build theirs.**
+**Every day may not be good... but there's something good in every day.**
 
-Farrah Gray
+Alice Morse Earle
