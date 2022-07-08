@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is far better to be alone, than to be in bad company.**
+**Leadership is not about being in charge. Leadership is about taking care of those in your charge.**
 
-George Washington
+Simon Sinek
