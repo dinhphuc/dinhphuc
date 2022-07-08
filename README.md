@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep your face always toward the sunshine - and shadows will fall behind you.**
+**Hardships often prepare ordinary people for an extraordinary destiny.**
 
-Walt Whitman
+C.S. Lewis
