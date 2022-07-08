@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't judge each day by the harvest you reap but by the seeds that you plant.**
+**Many of the truths that we cling to depend on our point of view.**
 
-Robert Louis Stevenson
+Yoda
