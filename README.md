@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of success is to do the common thing uncommonly well.**
+**Keep your face always toward the sunshine - and shadows will fall behind you.**
 
-John D. Rockefeller Jr
+Walt Whitman
