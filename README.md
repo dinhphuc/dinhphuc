@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The more you praise and celebrate your life, the more there is in life to celebrate.**
+**A new command I give you: Love one another.**
 
-Oprah Winfrey
+Jesus Christ
