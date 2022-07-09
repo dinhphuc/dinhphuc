@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When someone told me I lived in a fantasy land, I nearly fell off my unicorn.**
+**Smile, it is the key that fits the lock of everybody's heart.**
 
-Anonymous
+Anthony J D'Angelo
