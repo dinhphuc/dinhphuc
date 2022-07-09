@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hate. It has caused a lot of problems in this world but has not solved one yet.**
+**Life isn't about getting and having, it's about giving and being.**
 
-Maya Angelou
+Kevin Kruse
