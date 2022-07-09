@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness resides not in possessions, and not in gold, happiness dwells in the soul.**
+**Because of your smile, you make life more beautiful.**
 
-Democritus
+Thich Nhat Hanh
