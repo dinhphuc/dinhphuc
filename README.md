@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We don't develop courage by being happy every day. We develop it by surviving difficult times and challenging adversity.**
+**Don't count the days, make the days count.**
 
-Barbara De Angelis
+Muhammad Ali
