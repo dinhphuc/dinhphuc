@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A champion is someone who gets up when they can't.**
+**You cannot change the direction of the wind - only alter the angle of your sails.**
 
-Jack Dempsey
+Anonymous
