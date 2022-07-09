@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot change the direction of the wind - only alter the angle of your sails.**
+**You are so much more than what you are going through.**
 
-Anonymous
+John Tew
