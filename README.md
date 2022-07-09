@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When we point to obstacles we inhibit progress. When we offer solutions we advance.**
+**Success consists of getting up just one more time than you fall.**
 
-Simon Sinek
+Oliver Goldsmith
