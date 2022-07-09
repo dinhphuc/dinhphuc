@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We can complain because rose bushes have thorns, or rejoice because thorns have roses.**
+**Don't be afraid to give up the good to go for the great.**
 
-Alphonse Karr
+John D. Rockefeller
