@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile, it is the key that fits the lock of everybody's heart.**
+**When you want to talk about who made me, you talk to me. Who made me is ME.**
 
-Anthony J D'Angelo
+Muhammad Ali
