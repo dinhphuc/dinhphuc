@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A new command I give you: Love one another.**
+**Rise up. Start fresh. See the bright opportunity in each new day.**
 
-Jesus Christ
+Anonymous
