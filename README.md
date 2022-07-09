@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always remember that you are absolutely unique. Just like everyone else.**
+**Tough times don't last. Tough people do.**
 
-Margaret Mead
+Robert H. Schuller
