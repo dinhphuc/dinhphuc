@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only easy day was yesterday.**
+**Don't wait for opportunity. Create it.**
 
-Navy Seals
+Anonymous
