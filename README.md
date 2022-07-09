@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't count the days, make the days count.**
+**Happiness resides not in possessions, and not in gold, happiness dwells in the soul.**
 
-Muhammad Ali
+Democritus
