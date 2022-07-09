@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile at strangers and you just might change a life.**
+**A champion is someone who gets up when they can't.**
 
-Steve Maraboli
+Jack Dempsey
