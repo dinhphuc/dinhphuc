@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Rise up. Start fresh. See the bright opportunity in each new day.**
+**If you believe it will work out, you'll see opportunities. If you believe it won't, you will see obstacles.**
 
-Anonymous
+Wayne Dyer
