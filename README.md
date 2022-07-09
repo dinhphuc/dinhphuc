@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The marathon can humble you.**
+**When you feel like giving up, that's when you need to dig deep and push through your self doubt and weaknesses.**
 
-Bill Rodgers
+Anonymous
