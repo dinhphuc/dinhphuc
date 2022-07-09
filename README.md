@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are so much more than what you are going through.**
+**Doubt kills more dreams than failure ever will.**
 
-John Tew
+Suzy Kassem
