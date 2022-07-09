@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success consists of getting up just one more time than you fall.**
+**Hate. It has caused a lot of problems in this world but has not solved one yet.**
 
-Oliver Goldsmith
+Maya Angelou
