@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be afraid to give up the good to go for the great.**
+**When a new day begins, dare to smile gratefully.**
 
-John D. Rockefeller
+Steve Maraboli
