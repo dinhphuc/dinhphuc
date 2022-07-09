@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Kindness is free. Sprinkle that stuff everywhere.**
+**You know that it's a fool who plays it cool by making his world a little colder.**
 
-Anonymous
+The Beatles
