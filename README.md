@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When a new day begins, dare to smile gratefully.**
+**Smile at strangers and you just might change a life.**
 
 Steve Maraboli
