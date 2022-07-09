@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Tough times don't last. Tough people do.**
+**Success isn't just about what you accomplish in life. It's about what you inspire others to do.**
 
-Robert H. Schuller
+Anonymous
