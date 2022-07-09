@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't wait for opportunity. Create it.**
+**The more you praise and celebrate your life, the more there is in life to celebrate.**
 
-Anonymous
+Oprah Winfrey
