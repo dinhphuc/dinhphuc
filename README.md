@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life isn't about getting and having, it's about giving and being.**
+**We can complain because rose bushes have thorns, or rejoice because thorns have roses.**
 
-Kevin Kruse
+Alphonse Karr
