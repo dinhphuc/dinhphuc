@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The pain you feel today will be the strength you feel tomorrow.**
+**Hate. It has caused a lot of problems in this world but has not solved one yet.**
 
-Anonymous
+Maya Angelou
