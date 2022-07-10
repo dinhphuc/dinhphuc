@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Wanting to be someone else is a waste of the person you are.**
+**Confidence is not 'They will like me'. Confidence is 'I'll be fine if they don't'.**
 
-Marilyn Monroe
+Anonymous
