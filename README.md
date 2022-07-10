@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The pain you feel today will be the strength you feel tomorrow.**
+**Don't miss out on something that could be great just because it could also be difficult.**
 
 Anonymous
