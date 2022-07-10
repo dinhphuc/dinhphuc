@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want light to come into your life, you need to stand where it is shining.**
+**Don't count the days, make the days count.**
 
-Guy Finley
+Muhammad Ali
