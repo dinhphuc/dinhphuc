@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is not a problem to be solved, but a reality to be experienced.**
+**You may never know what results come of your actions, but if you do nothing, there will be no results.**
 
-Soren Kierkegaard
+Mahatma Gandhi
