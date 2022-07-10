@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Accept yourself, love yourself, and keep moving forward.**
+**Happy people don't have the best of everything they make the best of everything.**
 
-Roy T. Bennett
+Anonymous
