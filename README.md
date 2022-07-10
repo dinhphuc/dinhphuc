@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest mistake you can make in life is to continually fear that you will make one.**
+**Examine what is said, not who speaks.**
 
-Elbert Hubbard
+Arab Proverb
