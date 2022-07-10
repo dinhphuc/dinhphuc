@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Losers quit when they're tired. Winners quit when they've won.**
+**The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.**
 
-Anonymous
+William Arthur Ward
