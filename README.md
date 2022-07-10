@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't count the days, make the days count.**
+**Pain is temporary. Quitting lasts forever.**
 
-Muhammad Ali
+Lance Armstrong
