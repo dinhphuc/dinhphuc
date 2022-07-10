@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.**
+**Often it isn't the mountains ahead that wear you out, it's the little pebble in your shoe.**
 
-William Arthur Ward
+Muhammad Ali
