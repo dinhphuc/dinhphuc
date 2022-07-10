@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you stop chasing the wrong things you give the right things a chance to catch you.**
+**The pain you feel today will be the strength you feel tomorrow.**
 
 Anonymous
