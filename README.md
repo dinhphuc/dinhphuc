@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I don't care how long it takes me, but I'm going somewhere beautiful.**
+**The greatest mistake you can make in life is to continually fear that you will make one.**
 
-Anonymous
+Elbert Hubbard
