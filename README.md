@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You may never know what results come of your actions, but if you do nothing, there will be no results.**
+**Who begins too much accomplishes little.**
 
-Mahatma Gandhi
+German Proverb
