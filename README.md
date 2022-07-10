@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The pain you feel today will be the strength you feel tomorrow.**
+**When will you realize, the more you take, the less you have.**
 
-Anonymous
+Master Oogway
