@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.**
+**I don't care how long it takes me, but I'm going somewhere beautiful.**
 
-William Arthur Ward
+Anonymous
