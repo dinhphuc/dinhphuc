@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't find will power, you create it.**
+**Life is not a problem to be solved, but a reality to be experienced.**
 
-Anonymous
+Soren Kierkegaard
