@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Accept yourself, love yourself, and keep moving forward.**
+**Let your smile change the world, but don't let the world change your smile.**
 
-Roy T. Bennett
+Anonymous
