@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Who begins too much accomplishes little.**
+**When you stop chasing the wrong things you give the right things a chance to catch you.**
 
-German Proverb
+Anonymous
