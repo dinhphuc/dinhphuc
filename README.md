@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pain is temporary. Quitting lasts forever.**
+**Wanting to be someone else is a waste of the person you are.**
 
-Lance Armstrong
+Marilyn Monroe
