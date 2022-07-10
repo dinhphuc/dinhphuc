@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Let your smile change the world, but don't let the world change your smile.**
+**Keep your eyes on the stars, and your feet on the ground.**
 
-Anonymous
+Theodore Roosevelt
