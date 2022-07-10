@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how old I get, the race remains one of life's most rewarding experiences.**
+**If you want light to come into your life, you need to stand where it is shining.**
 
-George Sheehan
+Guy Finley
