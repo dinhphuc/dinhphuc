@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When will you realize, the more you take, the less you have.**
+**Move fast and break things. If you are not breaking things, you are not moving fast enough.**
 
-Master Oogway
+Mark Zuckerberg
