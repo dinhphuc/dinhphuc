@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Make each day your masterpiece.**
+**Accept yourself, love yourself, and keep moving forward.**
 
-John Wooden
+Roy T. Bennett
