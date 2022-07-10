@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence is not 'They will like me'. Confidence is 'I'll be fine if they don't'.**
+**Everyone wants happiness. No one wants pain. But you can't have a rainbow, without a little rain.**
 
 Anonymous
