@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Who begins too much accomplishes little.**
+**The secret of being happy is accepting where you are in life and making the most out of everyday.**
 
-German Proverb
+Anonymous
