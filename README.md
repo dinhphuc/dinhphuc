@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Move fast and break things. If you are not breaking things, you are not moving fast enough.**
+**No matter how old I get, the race remains one of life's most rewarding experiences.**
 
-Mark Zuckerberg
+George Sheehan
