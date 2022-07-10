@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't miss out on something that could be great just because it could also be difficult.**
+**People who make you feel better about yourself when you're sad are so important.**
 
 Anonymous
