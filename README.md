@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Let your smile change the world, but don't let the world change your smile.**
+**Confidence comes not from always being right but from not fearing to be wrong.**
 
-Anonymous
+Peter T. Mcintyre
