@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence comes not from always being right but from not fearing to be wrong.**
+**It matters not what someone is born, but what they grow to be.**
 
-Peter T. Mcintyre
+Master Oogway
