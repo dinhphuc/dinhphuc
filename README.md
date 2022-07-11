@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe and act as if it were impossible to fail.**
+**Push yourself because no one else is going to do it for you.**
 
-Charles Kettering
+Anonymous
