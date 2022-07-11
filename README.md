@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In life, many things don't go according to plan. If you fall, get back up. If you stumble, regain your balance. Never give up.**
+**Kill them with success and bury them with a smile.**
 
-Anonymous
+Usain Bolt
