@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Before you score, you first must have a goal.**
+**Do or do not. There is no try.**
 
-Greek Proverb
+Yoda
