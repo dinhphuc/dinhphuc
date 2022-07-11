@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everyone is breakable, but not everyone is aware that it's a choice to stay broken.**
+**Believe and act as if it were impossible to fail.**
 
-Stanley Behrman
+Charles Kettering
