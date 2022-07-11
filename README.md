@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is short, and it is up to you to make it sweet.**
+**The past does not equal the future.**
 
-Sarah Louise Delany
+Tony Robbins
