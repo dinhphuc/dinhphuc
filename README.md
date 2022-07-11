@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never let the fear of striking out keep you from playing the game.**
+**Before you score, you first must have a goal.**
 
-Babe Ruth
+Greek Proverb
