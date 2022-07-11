@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's lack of faith that makes people afraid of meeting challenges, and I believed in myself.**
+**Well I am here to tell you that one of the best ways to make a difference, is by sharing a smile and radiating good positive energy.**
 
-Muhammad Ali
+Anonymous
