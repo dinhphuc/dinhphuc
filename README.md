@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot shake hands with a clenched fist.**
+**Everyone is breakable, but not everyone is aware that it's a choice to stay broken.**
 
-Indira Gandhi
+Stanley Behrman
