@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no greater miracle than our conscious efforts to become good human beings.**
+**Let your smile change the world, but don't let the world change your smile.**
 
-Sri Chinmoy
+Anonymous
