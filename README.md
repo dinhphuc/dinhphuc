@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Goals may give focus, but dreams give power.**
+**Everywhere you go, take a smile with you.**
 
-John Maxwell
+Sasha Azevedo
