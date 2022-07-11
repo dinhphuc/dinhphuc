@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody can bring you peace but yourself.**
+**Choose kindness and laugh often.**
 
-Ralph Waldo Emerson
+Anonymous
