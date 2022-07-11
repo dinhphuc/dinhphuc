@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The absence of adversity is an indicator that my goals aren't significant enough.**
+**Life is short, and it is up to you to make it sweet.**
 
-Clint Bruce
+Sarah Louise Delany
