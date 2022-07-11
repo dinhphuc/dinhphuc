@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I find that the harder I work, the more luck I seem to have.**
+**Surround yourself with people who get you.**
 
-Thomas Jefferson
+Anonymous
