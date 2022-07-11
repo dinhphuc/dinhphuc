@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everywhere you go, take a smile with you.**
+**In life, many things don't go according to plan. If you fall, get back up. If you stumble, regain your balance. Never give up.**
 
-Sasha Azevedo
+Anonymous
