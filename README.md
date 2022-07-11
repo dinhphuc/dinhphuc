@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once you replace negative thoughts with positive ones, you'll start having positive results.**
+**Whoever is happy will make others happy too.**
 
-Willie Nelson
+Anonymous
