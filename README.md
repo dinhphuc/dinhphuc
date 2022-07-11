@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We love life, not because we are used to living but because we are used to loving.**
+**I am not a product of my circumstances. I am a product of my decisions.**
 
-Friedrich Nietzsche
+Stephen Covey
