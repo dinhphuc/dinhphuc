@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do or do not. There is no try.**
+**We love life, not because we are used to living but because we are used to loving.**
 
-Yoda
+Friedrich Nietzsche
