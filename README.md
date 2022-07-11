@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I am not a product of my circumstances. I am a product of my decisions.**
+**It's lack of faith that makes people afraid of meeting challenges, and I believed in myself.**
 
-Stephen Covey
+Muhammad Ali
