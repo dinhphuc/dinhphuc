@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Kill them with success and bury them with a smile.**
+**You cannot shake hands with a clenched fist.**
 
-Usain Bolt
+Indira Gandhi
