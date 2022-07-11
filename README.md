@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm stronger because I had to be, I'm smarter because of my mistakes, happier because of the sadness I've known, and now wiser because I learned.**
+**The absence of adversity is an indicator that my goals aren't significant enough.**
 
-Anonymous
+Clint Bruce
