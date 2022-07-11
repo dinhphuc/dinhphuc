@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The past does not equal the future.**
+**You can't use up creativity. The more you use, the more you have.**
 
-Tony Robbins
+Maya Angelou
