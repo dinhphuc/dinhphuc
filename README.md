@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Surround yourself with people who get you.**
+**Never let the fear of striking out keep you from playing the game.**
 
-Anonymous
+Babe Ruth
