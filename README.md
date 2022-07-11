@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't use up creativity. The more you use, the more you have.**
+**Once you replace negative thoughts with positive ones, you'll start having positive results.**
 
-Maya Angelou
+Willie Nelson
