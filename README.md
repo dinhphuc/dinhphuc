@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The struggle you're in today is developing the strength you need tomorrow.**
+**If you are not willing to risk the usual, you will have to settle for the ordinary.**
 
-Robert Tew
+Jim Rohn
