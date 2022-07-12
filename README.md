@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Work hard in silence. Let success make the noise.**
+**To give anything less than your best is to sacrifice the gift.**
 
-Anonymous
+Steve Prefontaine
