@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are not willing to risk the usual, you will have to settle for the ordinary.**
+**The goal is not to be perfect by the end. The goal is to be better today.**
 
-Jim Rohn
+Simon Sinek
