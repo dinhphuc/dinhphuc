@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't love what you do, you won't do it with much conviction or passion.**
+**To give anything less than your best is to sacrifice the gift.**
 
-Mia Hamm
+Steve Prefontaine
