@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Virtually nothing is impossible in this world if you just put your mind to it and maintain a positive attitude.**
+**Work on being in love with the person in the mirror who has been through so much but is still standing.**
 
-Lou Holtz
+Anonymous
