@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It always seems impossible until it's done.**
+**You have to be at your strongest when you're feeling at your weakest.**
 
-Nelson Mandela
+Anonymous
