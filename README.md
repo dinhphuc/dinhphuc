@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every champion was once a contender that refused to give up.**
+**Hustle until your haters ask if you are hiring.**
 
-Rocky Balboa
+Anonymous
