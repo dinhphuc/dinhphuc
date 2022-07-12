@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whoever is happy will make others happy too.**
+**You may say I'm a dreamer but I'm not the only one.**
 
-Anonymous
+John Lennon
