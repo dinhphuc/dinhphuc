@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.**
+**Smile in the mirror. Do that every morning and you'll start to see a big difference in your life.**
 
-William Arthur Ward
+Yoko Ono
