@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously.**
+**May you live all the days of your life.**
 
-Steve Maraboli
+Jonathan Swift
