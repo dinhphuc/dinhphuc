@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If we feel inwardly strong, we will have no need or desire to speak ill of others.**
+**It does not matter how slowly you go as long as you do not stop.**
 
-Sri Chinmoy
+Confucius
