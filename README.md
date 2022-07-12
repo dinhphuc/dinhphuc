@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life without love is like a tree without blossoms or fruit.**
+**Strive not to be a success, but rather to be of value.**
 
-Khalil Gibran
+Albert Einstein
