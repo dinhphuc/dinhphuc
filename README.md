@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Work on being in love with the person in the mirror who has been through so much but is still standing.**
+**If you don't love what you do, you won't do it with much conviction or passion.**
 
-Anonymous
+Mia Hamm
