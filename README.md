@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strive not to be a success, but rather to be of value.**
+**Keep smiling, because life is a beautiful thing and there's so much to smile about.**
 
-Albert Einstein
+Marilyn Monroe
