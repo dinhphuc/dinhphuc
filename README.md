@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It does not matter how slowly you go as long as you do not stop.**
+**You will find only what you bring in.**
 
-Confucius
+Yoda
