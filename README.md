@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure will never overtake me if my determination to succeed is strong enough.**
+**It always seems impossible until it's done.**
 
-Og Mandino
+Nelson Mandela
