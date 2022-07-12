@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**May you live all the days of your life.**
+**If we feel inwardly strong, we will have no need or desire to speak ill of others.**
 
-Jonathan Swift
+Sri Chinmoy
