@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will find only what you bring in.**
+**A champion is someone who gets up when they can't.**
 
-Yoda
+Jack Dempsey
