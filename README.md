@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The goal is not to be perfect by the end. The goal is to be better today.**
+**Virtually nothing is impossible in this world if you just put your mind to it and maintain a positive attitude.**
 
-Simon Sinek
+Lou Holtz
