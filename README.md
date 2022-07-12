@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To give anything less than your best is to sacrifice the gift.**
+**Every champion was once a contender that refused to give up.**
 
-Steve Prefontaine
+Rocky Balboa
