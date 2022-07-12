@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Virtually nothing is impossible in this world if you just put your mind to it and maintain a positive attitude.**
+**The will to win means nothing without the will to prepare.**
 
-Lou Holtz
+Juma Ikangaa
