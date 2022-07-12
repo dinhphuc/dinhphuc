@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You may say I'm a dreamer but I'm not the only one.**
+**In matters of style, swim with the current; in matters of principle, stand like a rock.**
 
-John Lennon
+Thomas Jefferson
