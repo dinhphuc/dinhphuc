@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You have to be at your strongest when you're feeling at your weakest.**
+**Work hard in silence. Let success make the noise.**
 
 Anonymous
