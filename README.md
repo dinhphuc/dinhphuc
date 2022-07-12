@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A champion is someone who gets up when they can't.**
+**The struggle you're in today is developing the strength you need tomorrow.**
 
-Jack Dempsey
+Robert Tew
