@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In matters of style, swim with the current; in matters of principle, stand like a rock.**
+**Failure will never overtake me if my determination to succeed is strong enough.**
 
-Thomas Jefferson
+Og Mandino
