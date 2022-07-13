@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength doesn't come from what you can do. It comes from overcoming the things you once thought you couldn't.**
+**Pain has taught me to appreciate the things that don't hurt.**
 
-Rikki Rogers
+Melissa Tripp
