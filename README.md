@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**My heart is always open to love.**
+**You have brains in your head. You have feet in your shoes. You can steer yourself any direction you choose.**
 
-Anonymous
+Dr. Seuss
