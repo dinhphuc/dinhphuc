@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you stumble, make it part of the dance.**
+**No one is perfect - that's why pencils have erasers.**
 
-Anonymous
+Wolfgang Riebe
