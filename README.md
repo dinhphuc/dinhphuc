@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is a succession of lessons which must be lived to be understood.**
+**No act of kindness, no matter how small, is ever wasted.**
 
-Ralph Waldo Emerson
+Aesop
