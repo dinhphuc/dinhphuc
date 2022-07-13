@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You have brains in your head. You have feet in your shoes. You can steer yourself any direction you choose.**
+**Life is a succession of lessons which must be lived to be understood.**
 
-Dr. Seuss
+Ralph Waldo Emerson
