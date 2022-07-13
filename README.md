@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength grows in the moments when you think you can't go on but you keep going anyway.**
+**You should never give up. No matter how hard the situation is, always believe that something beautiful is going to happen.**
 
 Anonymous
