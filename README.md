@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Let your unique awesomeness and positive energy inspire confidence in others.**
+**My heart is always open to love.**
 
 Anonymous
