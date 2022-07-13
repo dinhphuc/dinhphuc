@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence comes from discipline and training.**
+**Keep going. Everything you need will come to you at the perfect time.**
 
-Robert Kiyosaki
+Anonymous
