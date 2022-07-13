@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I find that the harder I work, the more luck I seem to have.**
+**One day I'll be at the place I always wanted to be.**
 
-Thomas Jefferson
+Anonymous
