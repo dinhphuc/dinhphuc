@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once you replace negative thoughts with positive ones, you'll start having positive results.**
+**Perseverance is the hard work you do after you get tired of doing the hard work you already did.**
 
-Willie Nelson
+Newt Gingrich
