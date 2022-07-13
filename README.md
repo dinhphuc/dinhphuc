@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No one is perfect - that's why pencils have erasers.**
+**I find that the harder I work, the more luck I seem to have.**
 
-Wolfgang Riebe
+Thomas Jefferson
