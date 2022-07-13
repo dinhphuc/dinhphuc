@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep going. Everything you need will come to you at the perfect time.**
+**Let your unique awesomeness and positive energy inspire confidence in others.**
 
 Anonymous
