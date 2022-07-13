@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Like the morning sun, you too shall rise and continue to shine.**
+**No act of kindness, no matter how small, is ever wasted.**
 
-Anonymous
+Aesop
