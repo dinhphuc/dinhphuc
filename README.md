@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When it gets difficult is often right before you succeed.**
+**Strength grows in the moments when you think you can't go on but you keep going anyway.**
 
-Jeffrey Walker
+Anonymous
