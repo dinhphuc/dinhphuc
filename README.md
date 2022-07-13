@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pain has taught me to appreciate the things that don't hurt.**
+**If you stumble, make it part of the dance.**
 
-Melissa Tripp
+Anonymous
