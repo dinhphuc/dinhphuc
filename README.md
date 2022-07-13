@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you stumble, make it part of the dance.**
+**Life is a magical ride. Enjoy every moment.**
 
 Anonymous
