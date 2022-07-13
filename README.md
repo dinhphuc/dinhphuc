@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure is not the falling down but the staying down.**
+**Continuous effort - not strength or intelligence - is the key to unlocking our potential.**
 
-Anonymous
+Liane Cardes
