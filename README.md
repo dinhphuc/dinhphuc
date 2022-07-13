@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't use up creativity. The more you use, the more you have.**
+**Failure is not the falling down but the staying down.**
 
-Maya Angelou
+Anonymous
