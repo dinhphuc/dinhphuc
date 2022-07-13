@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't ask what the world needs. Ask what makes you come alive and go do it. Because what the world needs is more people who have come alive.**
+**When it gets difficult is often right before you succeed.**
 
-Howard Thurman
+Jeffrey Walker
