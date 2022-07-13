@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In life, many things don't go according to plan. If you fall, get back up. If you stumble, regain your balance. Never give up.**
+**Once you replace negative thoughts with positive ones, you'll start having positive results.**
 
-Anonymous
+Willie Nelson
