@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Continuous effort - not strength or intelligence - is the key to unlocking our potential.**
+**Your positive action combined with positive thinking results in success.**
 
-Liane Cardes
+Anonymous
