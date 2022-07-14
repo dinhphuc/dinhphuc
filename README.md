@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do something today that your future self will thank you for.**
+**Before you score, you first must have a goal.**
 
-Anonymous
+Greek Proverb
