@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest glory in living lies not in never falling, but in rising every time we fall.**
+**Do something today that your future self will thank you for.**
 
-Nelson Mandela
+Anonymous
