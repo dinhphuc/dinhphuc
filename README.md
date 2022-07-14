@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Today you are you! That is truer than true! There is no one alive who is you-er than you!**
+**You were born to win. But to be a winner, you must plan to win, prepare to win, and expect to win.**
 
-Dr. Seuss
+Zig Ziglar
