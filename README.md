@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The future belongs to those who believe in the beauty of their dreams.**
+**Love the life you live. Live the life you love.**
 
-Franklin D. Roosevelt
+Bob Marley
