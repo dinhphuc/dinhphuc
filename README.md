@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Positive anything is better than negative nothing.**
+**Self-control is strength. Right thought is mastery. Calmness is power.**
 
-Elbert Hubbard
+James Allen
