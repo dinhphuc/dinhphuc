@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When things are bad, remember: it won't always be this way. Take one day at a time.**
+**The greatest glory in living lies not in never falling, but in rising every time we fall.**
 
-Anonymous
+Nelson Mandela
