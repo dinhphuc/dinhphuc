@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Wherever you go, go with all your heart.**
+**If you want to lift yourself up, lift up someone else.**
 
-Confucius
+Booker T. Washington
