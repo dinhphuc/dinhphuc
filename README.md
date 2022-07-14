@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can't find the opportunities you're looking for...create them.**
+**If you cannot do great things, do small things in a great way.**
 
-Anonymous
+Napoleon Hill
