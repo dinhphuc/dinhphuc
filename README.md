@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live as if you were to die tomorrow. Learn as if you were to live forever.**
+**You need to spend time crawling alone through shadows to truly appreciate what it is to stand in the sun.**
 
-Mahatma Gandhi
+Shaun Hick
