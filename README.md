@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Before you score, you first must have a goal.**
+**The future belongs to those who believe in the beauty of their dreams.**
 
-Greek Proverb
+Franklin D. Roosevelt
