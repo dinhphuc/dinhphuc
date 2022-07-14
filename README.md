@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I am happy because I'm grateful. I choose to be grateful. That gratitude allows me to be happy.**
+**Each time I thought I had achieved my life's purpose, I discovered it was only another step in my journey.**
 
-Will Arnett
+Muhammad Ali
