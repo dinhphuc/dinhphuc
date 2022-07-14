@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between stumbling blocks and stepping stones is how you use them.**
+**Wherever you go, go with all your heart.**
 
-Anonymous
+Confucius
