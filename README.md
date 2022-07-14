@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is about making an impact, not making an income.**
+**Determination is doing what needs to be done even when you don't feel like doing it.**
 
-Kevin Kruse
+Anonymous
