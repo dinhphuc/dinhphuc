@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Results happen over time, not overnight. Work hard, stay consistent, and be patient.**
+**Make the mind tougher by exposing it to adversity.**
 
-Anonymous
+Robert Greene
