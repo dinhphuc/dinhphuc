@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Self-control is strength. Right thought is mastery. Calmness is power.**
+**Live as if you were to die tomorrow. Learn as if you were to live forever.**
 
-James Allen
+Mahatma Gandhi
