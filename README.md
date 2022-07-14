@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love the life you live. Live the life you love.**
+**When we help ourselves, we find moments of happiness. When we help others, we find lasting fulfillment.**
 
-Bob Marley
+Simon Sinek
