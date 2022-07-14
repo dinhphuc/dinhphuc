@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You need to spend time crawling alone through shadows to truly appreciate what it is to stand in the sun.**
+**If you can't find the opportunities you're looking for...create them.**
 
-Shaun Hick
+Anonymous
