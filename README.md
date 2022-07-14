@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We know what we are, but know not what we may be.**
+**Results happen over time, not overnight. Work hard, stay consistent, and be patient.**
 
-William Shakespeare
+Anonymous
