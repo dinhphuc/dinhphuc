@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Someone who is busier than you is running right now.**
+**When things are bad, remember: it won't always be this way. Take one day at a time.**
 
-Nike
+Anonymous
