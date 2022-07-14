@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Make the mind tougher by exposing it to adversity.**
+**Failure is simply the opportunity to begin again. Except this time more intelligently.**
 
-Robert Greene
+Henry Ford
