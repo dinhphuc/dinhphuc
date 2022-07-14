@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Learn from the past, set vivid, detailed goals for the future, and live in the only moment of time over which you have any control: now.**
+**Today you are you! That is truer than true! There is no one alive who is you-er than you!**
 
-Denis Waitley
+Dr. Seuss
