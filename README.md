@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Determination is doing what needs to be done even when you don't feel like doing it.**
+**Don't regret the past, just learn from it.**
 
-Anonymous
+Ben Ipock
