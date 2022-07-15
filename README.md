@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Earn your confidence, nurture it, then help to build it in others.**
+**I don't count my sit-ups; I only start counting when it starts hurting because they're the only ones that count.**
 
-Alex Malley
+Muhammad Ali
