@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Use your smile to change the world; don't let the world change your smile.**
+**Nothing will work unless you do.**
 
-Chinese proverb
+Maya Angelou
