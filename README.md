@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing will work unless you do.**
+**Change yourself and fortune will change.**
 
-Maya Angelou
+Portuguese Proverb
