@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everyone wants happiness. No one wants pain. But you can't have a rainbow, without a little rain.**
+**You can either spend your time or invest your time.**
 
-Anonymous
+Chip Kelly
