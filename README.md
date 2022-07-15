@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Why worry? If you've done the very best you can, worrying won't make it any better.**
+**When you stop chasing the wrong things you give the right things a chance to catch you.**
 
-Walt Disney
+Anonymous
