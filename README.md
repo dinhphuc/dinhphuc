@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You're braver than you believe, and stronger than you seem, and smarter than you think.**
+**Everyone wants happiness. No one wants pain. But you can't have a rainbow, without a little rain.**
 
-A.A. Mine
+Anonymous
