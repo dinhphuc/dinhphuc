@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be aware as often as possible of the great transformation process you are going through.**
+**All you need is love.**
 
-Anonymous
+The Beatles
