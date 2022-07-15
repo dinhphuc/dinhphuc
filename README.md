@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't regret the past, just learn from it.**
+**There is no shame in not knowing; the shame lies in not finding out.**
 
-Ben Ipock
+Russian Proverb
