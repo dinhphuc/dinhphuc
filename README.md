@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When we help ourselves, we find moments of happiness. When we help others, we find lasting fulfillment.**
+**Don't regret the past, just learn from it.**
 
-Simon Sinek
+Ben Ipock
