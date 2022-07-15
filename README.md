@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Goals may give focus, but dreams give power.**
+**You're braver than you believe, and stronger than you seem, and smarter than you think.**
 
-John Maxwell
+A.A. Mine
