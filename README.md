@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Focus on your goal. Don't look in any direction but ahead.**
+**Smile in the mirror. Do that every morning and you'll start to see a big difference in your life.**
 
-Anonymous
+Yoko Ono
