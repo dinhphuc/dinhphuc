@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure is not the opposite of success. Its part of success.**
+**Happiness is only real when shared.**
 
-Anonymous
+Jon Krakauer
