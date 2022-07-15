@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pain is temporary. Quitting lasts forever.**
+**Success usually comes to those who are too busy to be looking for it.**
 
-Lance Armstrong
+Henry David Thoreau
