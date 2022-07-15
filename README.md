@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing builds self-esteem and self-confidence like accomplishment.**
+**Why worry? If you've done the very best you can, worrying won't make it any better.**
 
-Thomas Carlyle
+Walt Disney
