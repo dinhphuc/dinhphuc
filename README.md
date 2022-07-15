@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pain is temporary. Quitting lasts forever.**
+**Courage is one step ahead of fear.**
 
-Lance Armstrong
+Coleman Young
