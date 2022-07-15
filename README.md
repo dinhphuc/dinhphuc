@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Courage is one step ahead of fear.**
+**Failure is not the opposite of success. Its part of success.**
 
-Coleman Young
+Anonymous
