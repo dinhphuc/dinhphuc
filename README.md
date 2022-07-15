@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is only real when shared.**
+**Earn your confidence, nurture it, then help to build it in others.**
 
-Jon Krakauer
+Alex Malley
