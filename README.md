@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The trophy is earned in the hours that no one is watching.**
+**Pass on what you have learned.**
 
-Anonymous
+Yoda
