@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Look for something positive in each day, even if some days you have to look a little harder.**
+**You don't get what you wish for. You get what you work for.**
 
 Anonymous
