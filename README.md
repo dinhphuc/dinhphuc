@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pass on what you have learned.**
+**Everything that is done in this world is done by hope.**
 
-Yoda
+Martin Luther
