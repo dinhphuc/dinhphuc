@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Action is the foundational key to all success.**
+**You only live once, but if you do it right, once is enough.**
 
-Pablo Picasso
+Mae West
