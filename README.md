@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't fear moving slowly forward...fear standing still.**
+**Our greatest weakness lies in giving up. The most certain way to succeed is to just try one more time.**
 
-Kathleen Harris
+Thomas Edison
