@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everyone wants happiness. No one wants pain. But you can't have a rainbow, without a little rain.**
+**Goals may give focus, but dreams give power.**
 
-Anonymous
+John Maxwell
