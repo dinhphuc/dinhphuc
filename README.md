@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't get what you wish for. You get what you work for.**
+**Until you're broken, you don't know what you're made of.**
 
 Anonymous
