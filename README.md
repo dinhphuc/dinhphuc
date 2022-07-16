@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Goals may give focus, but dreams give power.**
+**Today you are you! That is truer than true! There is no one alive who is you-er than you!**
 
-John Maxwell
+Dr. Seuss
