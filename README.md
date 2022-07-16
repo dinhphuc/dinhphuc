@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can alter mood by running.**
+**Don't fear moving slowly forward...fear standing still.**
 
-Tumpal Sihombing
+Kathleen Harris
