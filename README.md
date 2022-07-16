@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every next level of your life will demand a different version of you.**
+**If you cannot do great things, do small things in a great way.**
 
-Anonymous
+Napoleon Hill
