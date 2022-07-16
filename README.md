@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The more grateful I am, the more beauty I see.**
+**Believe and act as if it were impossible to fail.**
 
-Mary Davis
+Charles Kettering
