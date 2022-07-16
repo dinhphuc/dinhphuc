@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We can be who we are without the pleasures but we could not be who we are not without the hardships.**
+**The only easy day was yesterday.**
 
-Anonymous
+Navy Seals
