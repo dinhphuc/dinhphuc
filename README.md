@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hard times don't create heroes. It is during the hard times when the 'hero' within us is revealed.**
+**Life only comes around once, so do whatever makes you happy, and be with whoever makes you smile.**
 
-Bob Riley
+Anonymous
