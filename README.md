@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Today you are you! That is truer than true! There is no one alive who is you-er than you!**
+**We can be who we are without the pleasures but we could not be who we are not without the hardships.**
 
-Dr. Seuss
+Anonymous
