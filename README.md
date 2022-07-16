@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Until you're broken, you don't know what you're made of.**
+**Move fast and break things. If you are not breaking things, you are not moving fast enough.**
 
-Anonymous
+Mark Zuckerberg
