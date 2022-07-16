@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you cannot do great things, do small things in a great way.**
+**The more grateful I am, the more beauty I see.**
 
-Napoleon Hill
+Mary Davis
