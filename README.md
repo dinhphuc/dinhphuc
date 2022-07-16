@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Move fast and break things. If you are not breaking things, you are not moving fast enough.**
+**Everyone wants happiness. No one wants pain. But you can't have a rainbow, without a little rain.**
 
-Mark Zuckerberg
+Anonymous
