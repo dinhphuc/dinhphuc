@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest weakness lies in giving up. The most certain way to succeed is to just try one more time.**
+**In order to carry a positive action we must develop here a positive vision.**
 
-Thomas Edison
+Dalai Lama
