@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe and act as if it were impossible to fail.**
+**In every success story, you will find someone who made a courageous decision.**
 
-Charles Kettering
+Peter Drucker
