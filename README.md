@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only easy day was yesterday.**
+**Hard times don't create heroes. It is during the hard times when the 'hero' within us is revealed.**
 
-Navy Seals
+Bob Riley
