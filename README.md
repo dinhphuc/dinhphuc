@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In order to carry a positive action we must develop here a positive vision.**
+**Change yourself and fortune will change.**
 
-Dalai Lama
+Portuguese Proverb
