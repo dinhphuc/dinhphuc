@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When something is important enough, you do it even if the odds are not in your favor.**
+**Be humble in your confidence yet courageous in your character.**
 
-Elon Musk
+Melanie Koulouris
