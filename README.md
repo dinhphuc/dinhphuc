@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no hope at all.**
+**Do or do not. There is no try.**
 
-Dale Carnegie
+Yoda
