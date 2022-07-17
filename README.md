@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you decide to do, make sure it makes you happy.**
+**If you look the right way, you can see that the whole world is a garden.**
 
-Anonymous
+Frances Hodgson Burnett
