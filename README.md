@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be aware as often as possible of the great transformation process you are going through.**
+**When life puts you in tough situations, don't say "why me?" say "try me".**
 
 Anonymous
