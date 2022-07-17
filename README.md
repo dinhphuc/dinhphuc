@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not human nature to enjoy what we get with no effort.**
+**Only those who risk going too far, can possibly find out how far one can go.**
 
-Sri Chinmoy
+T.S. Elliot
