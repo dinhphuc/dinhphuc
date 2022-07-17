@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Change yourself and fortune will change.**
+**Difficulty is what wakes up the genius.**
 
-Portuguese Proverb
+Nassim Nicholas Taleb
