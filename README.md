@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never stop trying. Never stop believing. Never give up. Your day will come.**
+**Be aware as often as possible of the great transformation process you are going through.**
 
 Anonymous
