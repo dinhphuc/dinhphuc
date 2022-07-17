@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are positive, you'll see opportunities instead of obstacles.**
+**There is only one corner of the universe you can be certain of improving, and that's your own self.**
 
-Widad Akrawi
+Aldous Huxley
