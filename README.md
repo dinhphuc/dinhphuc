@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When life puts you in tough situations, don't say "why me?" say "try me".**
+**Every morning you have a new opportunity to become a happier version of yourself.**
 
 Anonymous
