@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To handle yourself, use your head; to handle others, use your heart.**
+**To be willing is only half the task.**
 
-Eleanor Roosevelt
+Armenian Proverb
