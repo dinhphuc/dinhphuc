@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Dream big. Start small. But most of all, start.**
+**Pain has taught me to appreciate the things that don't hurt.**
 
-Simon Sinek
+Melissa Tripp
