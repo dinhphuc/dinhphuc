@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The reputation of a thousand years may be determined by the conduct of one hour.**
+**This a wonderful day. I've never seen this one before.**
 
-Japanese Proverb
+Maya Angelou
