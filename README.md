@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If only we'd stop trying to be happy we could have a pretty good time.**
+**Attachment leads to jealously. The shadow of greed, that is.**
 
-Edith Wharton
+Yoda
