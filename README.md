@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is trying things to see if they work.**
+**When something is important enough, you do it even if the odds are not in your favor.**
 
-Ray Bradbury
+Elon Musk
