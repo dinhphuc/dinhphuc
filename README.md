@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember that not getting what you want is sometimes a wonderful stroke of luck.**
+**Dream big. Start small. But most of all, start.**
 
-Dalai Lama
+Simon Sinek
