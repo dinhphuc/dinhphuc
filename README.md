@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do or do not. There is no try.**
+**The reputation of a thousand years may be determined by the conduct of one hour.**
 
-Yoda
+Japanese Proverb
