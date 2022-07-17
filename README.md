@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It never gets easier. You just get better.**
+**To handle yourself, use your head; to handle others, use your heart.**
 
-Jordan Hoechlin
+Eleanor Roosevelt
