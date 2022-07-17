@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe in yourself and you can be anything.**
+**Happy people don't have the best of everything they make the best of everything.**
 
-Katy Perry
+Anonymous
