@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only those who risk going too far, can possibly find out how far one can go.**
+**Never stop trying. Never stop believing. Never give up. Your day will come.**
 
-T.S. Elliot
+Anonymous
