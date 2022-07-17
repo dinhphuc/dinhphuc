@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Trust the process of life.**
+**If only we'd stop trying to be happy we could have a pretty good time.**
 
-Anonymous
+Edith Wharton
