@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm not here to be average, I'm here to be awesome.**
+**Life is trying things to see if they work.**
 
-Anonymous
+Ray Bradbury
