@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pain has taught me to appreciate the things that don't hurt.**
+**It is not human nature to enjoy what we get with no effort.**
 
-Melissa Tripp
+Sri Chinmoy
