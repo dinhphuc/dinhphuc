@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The pessimist sees difficulty in every opportunity. The optimist sees opportunity in every difficulty.**
+**Spend more of your time on what gives you energy and less of your time on what takes it away.**
 
-Winston Churchill
+Anonymous
