@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be humble in your confidence yet courageous in your character.**
+**It never gets easier. You just get better.**
 
-Melanie Koulouris
+Jordan Hoechlin
