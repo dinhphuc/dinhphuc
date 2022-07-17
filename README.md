@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is only one corner of the universe you can be certain of improving, and that's your own self.**
+**Believe in yourself and you can be anything.**
 
-Aldous Huxley
+Katy Perry
