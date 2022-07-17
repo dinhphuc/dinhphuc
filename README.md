@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Difficulty is what wakes up the genius.**
+**I'm not here to be average, I'm here to be awesome.**
 
-Nassim Nicholas Taleb
+Anonymous
