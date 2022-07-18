@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There's no shortage of remarkable ideas, what's missing is the will to execute them.**
+**Don't ask what the world needs. Ask what makes you come alive and go do it. Because what the world needs is more people who have come alive.**
 
-Seth Godin
+Howard Thurman
