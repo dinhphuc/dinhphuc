@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are positive, you'll see opportunities instead of obstacles.**
+**Self-control is strength. Right thought is mastery. Calmness is power.**
 
-Widad Akrawi
+James Allen
