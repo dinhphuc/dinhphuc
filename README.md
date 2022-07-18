@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You need to spend time crawling alone through shadows to truly appreciate what it is to stand in the sun.**
+**Faith is taking the first step even when you don't see the whole staircase.**
 
-Shaun Hick
+Martin Luther King
