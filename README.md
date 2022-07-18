@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Doing what you like is freedom. Liking what you do is happiness.**
+**If you are positive, you'll see opportunities instead of obstacles.**
 
-Anonymous
+Widad Akrawi
