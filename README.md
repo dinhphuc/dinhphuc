@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Anyone who has grown mentally, physically or spiritually knows that growth is not found in comfort.**
+**Live life to the fullest and focus on the positive.**
 
-Anonymous
+Matt Cameron
