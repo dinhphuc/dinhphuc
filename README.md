@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not bragging if you can back it up.**
+**Impossible is nothing.**
 
-Muhammed Ali
+Muhammad Ali
