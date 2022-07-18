@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Fall seven times, stand up eight.**
+**Not all those who wander are lost.**
 
-Japanese Proverb
+J. R. R. Tolkien
