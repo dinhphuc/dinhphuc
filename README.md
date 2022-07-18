@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe with all of your heart that you will do what you were made to do.**
+**Doing what you like is freedom. Liking what you do is happiness.**
 
-Orison Swett Marden
+Anonymous
