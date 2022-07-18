@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Because of your smile, you make life more beautiful.**
+**It is only possible to live happily ever after on a daily basis.**
 
-Thich Nhat Hanh
+Anonymous
