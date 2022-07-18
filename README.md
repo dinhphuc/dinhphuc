@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Self-control is strength. Right thought is mastery. Calmness is power.**
+**Anyone who has grown mentally, physically or spiritually knows that growth is not found in comfort.**
 
-James Allen
+Anonymous
