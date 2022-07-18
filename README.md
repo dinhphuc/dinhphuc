@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you look the right way, you can see that the whole world is a garden.**
+**Only a life lived for others is a life worthwhile.**
 
-Frances Hodgson Burnett
+Albert Einstein
