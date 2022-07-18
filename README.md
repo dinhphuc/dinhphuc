@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Faith is taking the first step even when you don't see the whole staircase.**
+**You fail because you don't believe.**
 
-Martin Luther King
+Yoda
