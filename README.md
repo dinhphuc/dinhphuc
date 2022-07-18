@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you stop chasing the wrong things you give the right things a chance to catch you.**
+**If you're presenting yourself with confidence, you can pull off pretty much anything.**
 
-Anonymous
+Katy Perry
