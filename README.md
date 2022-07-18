@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life's a journey not a race.**
+**You need to spend time crawling alone through shadows to truly appreciate what it is to stand in the sun.**
 
-Meir Ezra
+Shaun Hick
