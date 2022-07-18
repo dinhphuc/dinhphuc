@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live life to the fullest and focus on the positive.**
+**When you stop chasing the wrong things you give the right things a chance to catch you.**
 
-Matt Cameron
+Anonymous
