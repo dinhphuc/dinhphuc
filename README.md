@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Not all those who wander are lost.**
+**A secret to happiness is letting every situatiuon be what it is instead of what you think it should be.**
 
-J. R. R. Tolkien
+Anonymous
