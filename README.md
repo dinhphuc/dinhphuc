@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When the 'why' is clear, the 'how' is easy.**
+**The starting point of all achievement is desire.**
 
-Anonymous
+Napoleon Hill
