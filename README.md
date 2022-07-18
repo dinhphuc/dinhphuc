@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One day I'll be at the place I always wanted to be.**
+**You fail because you don't believe.**
 
-Anonymous
+Yoda
