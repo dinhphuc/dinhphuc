@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is what comes after you stop making excuses.**
+**We can't be brave without fear.**
 
-Luis Galarza
+Muhammad Ali
