@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You fail because you don't believe.**
+**When the 'why' is clear, the 'how' is easy.**
 
-Yoda
+Anonymous
