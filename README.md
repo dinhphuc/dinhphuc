@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A secret to happiness is letting every situatiuon be what it is instead of what you think it should be.**
+**Success is what comes after you stop making excuses.**
 
-Anonymous
+Luis Galarza
