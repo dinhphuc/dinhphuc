@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**'Thank you' is the best prayer that anyone could say.**
+**This a wonderful day. I've never seen this one before.**
 
-Alice Walker
+Maya Angelou
