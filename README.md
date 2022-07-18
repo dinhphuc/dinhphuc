@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**This a wonderful day. I've never seen this one before.**
+**Believe with all of your heart that you will do what you were made to do.**
 
-Maya Angelou
+Orison Swett Marden
