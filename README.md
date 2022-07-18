@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We can't be brave without fear.**
+**You can't always control what goes on outside, but you can always control what goes on inside.**
 
-Muhammad Ali
+Wayne Dyer
