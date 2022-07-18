@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't always control what goes on outside, but you can always control what goes on inside.**
+**In a dark place we find ourselves, and a little more knowledge lights our way.**
 
-Wayne Dyer
+Yoda
