@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only a life lived for others is a life worthwhile.**
+**Appreciate the people who make you smile.**
 
-Albert Einstein
+Anonymous
