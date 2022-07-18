@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The starting point of all achievement is desire.**
+**Fall seven times, stand up eight.**
 
-Napoleon Hill
+Japanese Proverb
