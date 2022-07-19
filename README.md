@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't waste a minute not being happy. If one door closes, run to the next window - or break down a door.**
+**None of us is as smart as all of us.**
 
-Brooke Shields
+Ken Blanchard
