@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is what happens when you're busy making other plans.**
+**Throw kindness around like confetti.**
 
-John Lennon
+Anonymous
