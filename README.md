@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you hold in your mind on a consistent basis is exactly what you will experience in your life.**
+**The very best thing you can do for the whole world is to make the best of yourself.**
 
-Tony Robbins
+Anonymous
