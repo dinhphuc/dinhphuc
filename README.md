@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The sweat. The time. The devotion. It pays off.**
+**The reason we race isn't so much to beat each other,... but to be with each other.**
 
-Anonymous
+Christopher McDougall
