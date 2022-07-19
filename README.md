@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only person you are destined to become is the person you decide to be.**
+**The only easy day was yesterday.**
 
-Ralph Waldo Emerson
+Navy Seals
