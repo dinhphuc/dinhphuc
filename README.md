@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Throw kindness around like confetti.**
+**One of the simplest ways to be happy is letting go of the things that make you sad.**
 
 Anonymous
