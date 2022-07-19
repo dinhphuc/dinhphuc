@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't like something, change it. If you can't change it, change your attitude.**
+**People are just as happy as they make up their minds to be.**
 
-Maya Angelou
+Abraham Lincoln
