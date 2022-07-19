@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can't live longer, live deeper.**
+**Life is what happens when you're busy making other plans.**
 
-Italian Proverb
+John Lennon
