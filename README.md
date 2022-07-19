@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Kill them with success and bury them with a smile.**
+**Never give up. Keep going.**
 
-Usain Bolt
+Anonymous
