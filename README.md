@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The sun itself is weak when it first rises, and gathers strength and courage as the day gets on.**
+**You may encounter many defeats, but you must not be defeated.**
 
-Charles Dickens
+Maya Angelou
