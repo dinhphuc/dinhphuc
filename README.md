@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**People are just as happy as they make up their minds to be.**
+**Don't waste a minute not being happy. If one door closes, run to the next window - or break down a door.**
 
-Abraham Lincoln
+Brooke Shields
