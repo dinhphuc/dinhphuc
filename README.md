@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The reason we race isn't so much to beat each other,... but to be with each other.**
+**If you can't live longer, live deeper.**
 
-Christopher McDougall
+Italian Proverb
