@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength doesn't come from what you can do. It comes from overcoming the things you once thought you couldn't.**
+**In this life we cannot do great things. We can only do small things with great love.**
 
-Rikki Rogers
+Mother Teresa
