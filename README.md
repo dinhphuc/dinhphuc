@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When I hear somebody sigh, 'Life is hard,' I am always tempted to ask, 'Compared to what?'**
+**Whatever you hold in your mind on a consistent basis is exactly what you will experience in your life.**
 
-Sydney Harris
+Tony Robbins
