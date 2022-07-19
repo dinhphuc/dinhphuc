@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't wait around for other people to be happy for you. Any happiness you get, you've got to make yourself.**
+**Live life to the fullest and focus on the positive.**
 
-Alice Walker
+Matt Cameron
