@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You may encounter many defeats, but you must not be defeated.**
+**The only person you are destined to become is the person you decide to be.**
 
-Maya Angelou
+Ralph Waldo Emerson
