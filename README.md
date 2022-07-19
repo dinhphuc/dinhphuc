@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live life to the fullest and focus on the positive.**
+**The secret of change is to focus all of your energy, not on fighting the old, but on building the new.**
 
-Matt Cameron
+Socrates
