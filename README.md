@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only easy day was yesterday.**
+**The secret of getting ahead is getting started.**
 
-Navy Seals
+Mark Twain
