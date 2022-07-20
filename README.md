@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When the sun rises, it rises for everyone.**
+**It's going to be hard. But hard is not impossible.**
 
-Cuban Proverb
+Anonymous
