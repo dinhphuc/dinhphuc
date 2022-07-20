@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every champion was once a contender that refused to give up.**
+**You have a choice. You can throw in the towel, or you can use it to wipe the sweat off of your face.**
 
-Rocky Balboa
+Gatorade
