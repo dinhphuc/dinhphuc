@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are only two mistakes one can make along the road to truth; not going all the way, and not starting.**
+**I'm alone, but I'm not lonely. I like who I am. I like who I'm becoming.**
 
-Buddha
+Deena Kastor
