@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only a life lived for others is a life worthwhile.**
+**Hustle until your haters ask if you are hiring.**
 
-Albert Einstein
+Anonymous
