@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Float like a butterfly, sting like a bee. The hands can't hit what the eyes can't see.**
+**All you need is love.**
 
-Muhammad Ali
+The Beatles
