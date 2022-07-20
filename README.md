@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of getting ahead is getting started.**
+**Just when the caterpillar thought the world was ending, it turned into a butterfly.**
 
-Mark Twain
+Anonymous
