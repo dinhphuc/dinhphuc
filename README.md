@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All you need is love.**
+**It only takes one person to make you happy and change your life: YOU.**
 
-The Beatles
+Charles Orlando
