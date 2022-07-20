@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A beautiful thing is never perfect.**
+**If you want to go fast, go alone. If you want to go far, go together.**
 
-Egyptian Proverb
+African Proverb
