@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm alone, but I'm not lonely. I like who I am. I like who I'm becoming.**
+**A beautiful thing is never perfect.**
 
-Deena Kastor
+Egyptian Proverb
