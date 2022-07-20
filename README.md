@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is the sum of small efforts repeated day-in and day-out.**
+**I've failed over and over and over again in my life and that is why I succeed.**
 
-Robert Collier
+Michael Jordan
