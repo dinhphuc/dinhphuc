@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Just one smile, immensely increases the beauty, of the universe.**
+**The critics only made me work harder.**
 
-Sri Chinmoy
+Muhammad Ali
