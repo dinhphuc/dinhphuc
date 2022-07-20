@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You're going to go through tough times - that's life. But I say, 'Nothing happens to you, it happens for you.' See the positive in negative events.**
+**When written in Chinese the word "crisis" is composed of two characters - one represents danger and the other represents opportunity.**
 
-Joel Osteen
+John F. Kennedy
