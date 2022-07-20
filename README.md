@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing will work unless you do.**
+**To be calm is the highest achievement of the self.**
 
-Maya Angelou
+Zen Proverb
