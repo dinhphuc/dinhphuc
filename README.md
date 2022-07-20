@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To be calm is the highest achievement of the self.**
+**Every champion was once a contender that refused to give up.**
 
-Zen Proverb
+Rocky Balboa
