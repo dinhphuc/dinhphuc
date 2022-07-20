@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success usually comes to those who are too busy to be looking for it.**
+**Hardships often prepare ordinary people for an extraordinary destiny.**
 
-Henry David Thoreau
+C.S. Lewis
