@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to go fast, go alone. If you want to go far, go together.**
+**Success is the sum of small efforts repeated day-in and day-out.**
 
-African Proverb
+Robert Collier
