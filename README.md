@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When written in Chinese the word "crisis" is composed of two characters - one represents danger and the other represents opportunity.**
+**Success usually comes to those who are too busy to be looking for it.**
 
-John F. Kennedy
+Henry David Thoreau
