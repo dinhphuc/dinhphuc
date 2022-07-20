@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The critics only made me work harder.**
+**Because of your smile, you make life more beautiful.**
 
-Muhammad Ali
+Thich Nhat Hanh
