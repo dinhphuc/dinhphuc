@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Where there is love there is life.**
+**Float like a butterfly, sting like a bee. The hands can't hit what the eyes can't see.**
 
-Mahatma Gandhi
+Muhammad Ali
