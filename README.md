@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You have a choice. You can throw in the towel, or you can use it to wipe the sweat off of your face.**
+**Only a life lived for others is a life worthwhile.**
 
-Gatorade
+Albert Einstein
