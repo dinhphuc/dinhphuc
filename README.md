@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Use your smile to change the world; don't let the world change your smile.**
+**When the sun rises, it rises for everyone.**
 
-Chinese proverb
+Cuban Proverb
