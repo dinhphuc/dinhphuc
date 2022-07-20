@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Just when the caterpillar thought the world was ending, it turned into a butterfly.**
+**Just one smile, immensely increases the beauty, of the universe.**
 
-Anonymous
+Sri Chinmoy
