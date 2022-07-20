@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hardships often prepare ordinary people for an extraordinary destiny.**
+**Nothing will work unless you do.**
 
-C.S. Lewis
+Maya Angelou
