@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you stop chasing the wrong things you give the right things a chance to catch you.**
+**Don't be frightened by difficulties.**
 
-Anonymous
+Ryan Holiday
