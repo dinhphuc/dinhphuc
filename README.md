@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Dream big. Start small. But most of all, start.**
+**Why worry? If you've done the very best you can, worrying won't make it any better.**
 
-Simon Sinek
+Walt Disney
