@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Start doing things to make you happy.**
+**Smile, and let the world wonder why.**
 
-Reyna Biddy
+Minnie Mouse
