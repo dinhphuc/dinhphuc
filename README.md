@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Why worry? If you've done the very best you can, worrying won't make it any better.**
+**Everything you can imagine is real.**
 
-Walt Disney
+Pablo Picasso
