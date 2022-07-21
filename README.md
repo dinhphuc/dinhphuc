@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hardships often prepare ordinary people for an extraordinary destiny.**
+**Who begins too much accomplishes little.**
 
-C.S. Lewis
+German Proverb
