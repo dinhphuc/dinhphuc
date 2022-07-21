@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You walk through life much easier with a smile on your face.**
+**Hardships often prepare ordinary people for an extraordinary destiny.**
 
-Sweet Paul
+C.S. Lewis
