@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Champions keep playing until they get it right.**
+**For every minute you are angry you lose sixty seconds of happiness.**
 
-Billie Jean King
+Ralph Waldo Emerson
