@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure is simply the opportunity to begin again. Except this time more intelligently.**
+**Many of life's failures are people who did not realize how close they were to success when they gave up.**
 
-Henry Ford
+Thomas A. Edison
