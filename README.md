@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your body is made to move so move it.**
+**The secret of being happy is accepting where you are in life and making the most out of everyday.**
 
-Toni Sorenson
+Anonymous
