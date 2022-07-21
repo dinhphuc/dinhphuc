@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be frightened by difficulties.**
+**Failure is simply the opportunity to begin again. Except this time more intelligently.**
 
-Ryan Holiday
+Henry Ford
