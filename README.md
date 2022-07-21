@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only impossible journey is the one you never begin.**
+**A teacher is better than two books.**
 
-Tony Robbins
+German Proverb
