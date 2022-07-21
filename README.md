@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's going to be hard. But hard is not impossible.**
+**Be strong enough to let go and patient enough to wait for what you deserve.**
 
 Anonymous
