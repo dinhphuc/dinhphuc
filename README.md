@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are two ways of spreading light: to be the candle, or the mirror that reflects it.**
+**I am happy because I'm grateful. I choose to be grateful. That gratitude allows me to be happy.**
 
-Edith Wharton
+Will Arnett
