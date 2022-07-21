@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Many of life's failures are people who did not realize how close they were to success when they gave up.**
+**A good life is doing what you love as much as you can and doing what you must as much as you should.**
 
-Thomas A. Edison
+Savania China
