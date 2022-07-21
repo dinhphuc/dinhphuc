@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You have purpose.**
+**The past does not equal the future.**
 
-Anonymous
+Tony Robbins
