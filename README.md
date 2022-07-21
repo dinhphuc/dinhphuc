@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Who begins too much accomplishes little.**
+**Start doing things to make you happy.**
 
-German Proverb
+Reyna Biddy
