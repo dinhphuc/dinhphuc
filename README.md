@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything you can imagine is real.**
+**The only impossible journey is the one you never begin.**
 
-Pablo Picasso
+Tony Robbins
