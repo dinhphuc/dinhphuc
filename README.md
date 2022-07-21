@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Dream big. Start small. But most of all, start.**
+**Champions keep playing until they get it right.**
 
-Simon Sinek
+Billie Jean King
