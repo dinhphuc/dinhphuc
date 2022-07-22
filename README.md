@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Continuous effort - not strength or intelligence - is the key to unlocking our potential.**
+**Don't try to be perfect. Just try to be better than you were yesterday.**
 
-Liane Cardes
+Anonymous
