@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Yesterday is history, tomorrow is a mystery, today is a gift of God, which is why we call it the present.**
+**Anyone who has grown mentally, physically or spiritually knows that growth is not found in comfort.**
 
-Bill Keane
+Anonymous
