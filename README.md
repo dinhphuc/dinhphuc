@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do not blame the world. Find a solution.**
+**Skill is only developed by hours and hours of work.**
 
-Sri Chinmoy
+Usain Bolt
