@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only easy day was yesterday.**
+**Difficulty is what wakes up the genius.**
 
-Navy Seals
+Nassim Nicholas Taleb
