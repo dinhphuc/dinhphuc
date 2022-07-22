@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not so much that I began to run, but that I continued.**
+**When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.**
 
-Hal Higdon
+Henry Ford
