@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Great works are performed, not by strength, but by perseverance.**
+**Do not blame the world. Find a solution.**
 
-Samuel Johnson
+Sri Chinmoy
