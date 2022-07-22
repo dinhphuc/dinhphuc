@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure is not the falling down but the staying down.**
+**Smile at strangers and you just might change a life.**
 
-Anonymous
+Steve Maraboli
