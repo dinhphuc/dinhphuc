@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile at strangers and you just might change a life.**
+**It's not what you look at that matters, it's what you see.**
 
-Steve Maraboli
+Henry David Thoreau
