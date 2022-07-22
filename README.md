@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.**
+**The best feeling of happiness is when you're happy because you've made somebody else happy.**
 
-Henry Ford
+Anonymous
