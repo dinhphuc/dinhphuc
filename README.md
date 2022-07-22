@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We can't help everyone, but everyone can help someone.**
+**The best preparation for tomorrow is doing your best today.**
 
-Ronald Reagan
+H. Jackson Brown, Jr
