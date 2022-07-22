@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Difficulty is what wakes up the genius.**
+**It's not so much that I began to run, but that I continued.**
 
-Nassim Nicholas Taleb
+Hal Higdon
