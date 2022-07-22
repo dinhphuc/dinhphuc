@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**People who make you feel better about yourself when you're sad are so important.**
+**Wherever you go, go with all your heart.**
 
-Anonymous
+Confucius
