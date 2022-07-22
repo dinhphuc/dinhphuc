@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I will not follow where the path may lead, but I will go where there is no path, and I will leave a trail.**
+**If you look at what you have in life, you'll always have more. If you look at what you don't have in life, you'll never have enough.**
 
-Muriel Strode
+Oprah Winfrey
