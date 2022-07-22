@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Yesterday is history, tomorrow is a mystery, today is a gift of God, which is why we call it the present.**
+**Continuous effort - not strength or intelligence - is the key to unlocking our potential.**
 
-Bill Keane
+Liane Cardes
