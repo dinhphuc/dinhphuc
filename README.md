@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't try to be perfect. Just try to be better than you were yesterday.**
+**I don't care how long it takes me, but I'm going somewhere beautiful.**
 
 Anonymous
