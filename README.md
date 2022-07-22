@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When will you realize, the more you take, the less you have.**
+**We can't help everyone, but everyone can help someone.**
 
-Master Oogway
+Ronald Reagan
