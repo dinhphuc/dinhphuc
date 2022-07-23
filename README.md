@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pain is temporary. Quitting lasts forever.**
+**No marathon gets easier later. The halfway point only marks the end of the beginning.**
 
-Lance Armstrong
+Joe Henderson
