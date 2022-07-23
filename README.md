@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**He who sweats more in training bleeds less in war.**
+**Love has no age, no limit; and no death.**
 
-Greek Proverb
+John Galsworthy
