@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile at strangers and you just might change a life.**
+**Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.**
 
-Steve Maraboli
+Napoleon Hill
