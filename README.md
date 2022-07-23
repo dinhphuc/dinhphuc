@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happy people don't have the best of everything they make the best of everything.**
+**To be a great champion you must believe you are the best. If you're not, pretend you are.**
 
-Anonymous
+Muhammad Ali
