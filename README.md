@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.**
+**If you feel like giving up, just look back on how far you are already.**
 
-Napoleon Hill
+Anonymous
