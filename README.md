@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be strong when you are weak, brave when you are scared, and humble when you are victorious.**
+**There are no secrets to success. It is the result of preparation, hard work, and learning from failure.**
 
-Anonymous
+Colin Powell
