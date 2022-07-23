@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No marathon gets easier later. The halfway point only marks the end of the beginning.**
+**Until you're broken, you don't know what you're made of.**
 
-Joe Henderson
+Anonymous
