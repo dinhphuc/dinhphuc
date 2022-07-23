@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No one is perfect - that's why pencils have erasers.**
+**Life isn't about waiting for the storm to pass, it's about learning how to dance in the rain.**
 
-Wolfgang Riebe
+Vivian Greene
