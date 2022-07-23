@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Where there is love there is life.**
+**Smile at strangers and you just might change a life.**
 
-Mahatma Gandhi
+Steve Maraboli
