@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When someone told me I lived in a fantasy land, I nearly fell off my unicorn.**
+**No one is perfect - that's why pencils have erasers.**
 
-Anonymous
+Wolfgang Riebe
