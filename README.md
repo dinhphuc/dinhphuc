@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't fear moving slowly forward...fear standing still.**
+**Only a life lived for others is a life worthwhile.**
 
-Kathleen Harris
+Albert Einstein
