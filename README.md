@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Until you're broken, you don't know what you're made of.**
+**I am in charge of how I feel and today I am choosing happiness.**
 
 Anonymous
