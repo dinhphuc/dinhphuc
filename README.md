@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I am in charge of how I feel and today I am choosing happiness.**
+**Practice 'gratitude' each day and your relationship will last forever.**
 
 Anonymous
