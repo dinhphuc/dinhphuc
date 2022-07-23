@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love has no age, no limit; and no death.**
+**So certain were you. Go back and closer you must look.**
 
-John Galsworthy
+Yoda
