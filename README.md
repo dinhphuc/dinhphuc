@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I am thankful for all those difficult people in my life. They have shown me exactly who I do not want to be.**
+**Risk more than others think is safe. Dream more than others think is practical.**
 
 Anonymous
