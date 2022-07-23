@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are so much more than what you are going through.**
+**Through challenge and difficulty, we learn to see life differently than before.**
 
-John Tew
+Auliq-Ice
