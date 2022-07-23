@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Often it isn't the mountains ahead that wear you out, it's the little pebble in your shoe.**
+**Do not dwell in the past, do not dream of the future, concentrate the mind on the present moment.**
 
-Muhammad Ali
+Buddha
