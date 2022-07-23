@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Through challenge and difficulty, we learn to see life differently than before.**
+**Where there is love there is life.**
 
-Auliq-Ice
+Mahatma Gandhi
