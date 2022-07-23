@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do what makes you happy.**
+**Until you're broken, you don't know what you're made of.**
 
-Rachel Ann Nunes
+Anonymous
