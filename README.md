@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Running is therapy anyone can afford.**
+**Pain is temporary. Quitting lasts forever.**
 
-Toni Sorenson
+Lance Armstrong
