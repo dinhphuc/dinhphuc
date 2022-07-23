@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**So certain were you. Go back and closer you must look.**
+**Acting on a good idea is better than just having a good idea.**
 
-Yoda
+Robert Half
