@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Risk more than others think is safe. Dream more than others think is practical.**
+**Happy people don't have the best of everything they make the best of everything.**
 
 Anonymous
