@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't let the past steal your present.**
+**Never give up. Great things take time. Be patient.**
 
-Terri Guillemets
+Anonymous
