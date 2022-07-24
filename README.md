@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Motivation is what gets you started. Habit is what keeps you going.**
+**A fault confessed is half redressed.**
 
-Jim Rohn
+Zulu Proverb
