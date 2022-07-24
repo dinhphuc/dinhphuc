@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The first duty of love is to listen.**
+**It is better to fail in originality than to succeed in imitation.**
 
-Paul Tillich
+Herman Melville
