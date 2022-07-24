@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A fault confessed is half redressed.**
+**Life works for my benefit.**
 
-Zulu Proverb
+Anonymous
