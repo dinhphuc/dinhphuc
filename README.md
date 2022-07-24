@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will be blessed the moment you realize you already are.**
+**Motivation is what gets you started. Habit is what keeps you going.**
 
-Bryant Mcgill
+Jim Rohn
