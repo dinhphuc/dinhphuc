@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is always something more to learn. Even for a master.**
+**Words may inspire but only action creates change.**
 
-Master Oogway
+Simon Sinek
