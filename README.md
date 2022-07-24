@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are enough, just as you are.**
+**The greatest teacher, failure is.**
 
-Anonymous
+Yoda
