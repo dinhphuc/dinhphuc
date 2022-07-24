@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life works for my benefit.**
+**Always remember you are braver than you believe, stronger than you seem, and smarter than you think.**
 
-Anonymous
+Christopher Robin
