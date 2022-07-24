@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe in yourself. You are braver than you think, more talented than you know, and capable of more than you imagine.**
+**No one who can rise before dawn three hundred sixty days a year fails to make his family rich.**
 
-Roy T. Bennett
+Malcolm Gladwell
