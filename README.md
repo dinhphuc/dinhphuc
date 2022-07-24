@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest teacher, failure is.**
+**One often meets his destiny on the road he takes to avoid it.**
 
-Yoda
+Master Oogway
