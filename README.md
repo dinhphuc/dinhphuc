@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't let the past steal your present.**
+**Don't explain your philosophy. Embody it.**
 
-Terri Guillemets
+Epictetus
