@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how old I get, the race remains one of life's most rewarding experiences.**
+**Where there is love there is life.**
 
-George Sheehan
+Mahatma Gandhi
