@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never let the fear of striking out keep you from playing the game.**
+**There is always something more to learn. Even for a master.**
 
-Babe Ruth
+Master Oogway
