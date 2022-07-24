@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't explain your philosophy. Embody it.**
+**Beauty lies in the eye of the beholder.**
 
-Epictetus
+English Proverb
