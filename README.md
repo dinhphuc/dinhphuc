@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I learned that courage was not the absence of fear, but the triumph over it.**
+**You will be blessed the moment you realize you already are.**
 
-Nelson Mandela
+Bryant Mcgill
