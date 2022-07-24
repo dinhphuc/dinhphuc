@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Look in the mirror. That's your competition.**
+**Success is not final, failure is not fatal: it is the courage to continue that counts.**
 
-John Assaraf
+Winston Churchill
