@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Where there is love there is life.**
+**The harder the struggle, the more glorious the triumph.**
 
-Mahatma Gandhi
+Anonymous
