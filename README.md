@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To be a great champion you must believe you are the best. If you're not, pretend you are.**
+**I learned that courage was not the absence of fear, but the triumph over it.**
 
-Muhammad Ali
+Nelson Mandela
