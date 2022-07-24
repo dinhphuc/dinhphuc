@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One often meets his destiny on the road he takes to avoid it.**
+**No matter how old I get, the race remains one of life's most rewarding experiences.**
 
-Master Oogway
+George Sheehan
