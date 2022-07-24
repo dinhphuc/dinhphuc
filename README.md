@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is not final, failure is not fatal: it is the courage to continue that counts.**
+**Don't let the past steal your present.**
 
-Winston Churchill
+Terri Guillemets
