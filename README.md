@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Courage doesn't always roar, sometimes it's the quiet voice at the end of the day whispering 'I will try again tomorrow'.**
+**Never let the fear of striking out keep you from playing the game.**
 
-Mary Anne Radmacher
+Babe Ruth
