@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't explain your philosophy. Embody it.**
+**No one who can rise before dawn three hundred sixty days a year fails to make his family rich.**
 
-Epictetus
+Malcolm Gladwell
