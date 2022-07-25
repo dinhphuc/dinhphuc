@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you're thinking is what you're becoming.**
+**We know what we are, but know not what we may be.**
 
-Muhammad Ali
+William Shakespeare
