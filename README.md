@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Patience you must have, my young padawan.**
+**He who lives in harmony with himself lives in harmony with the universe.**
 
-Yoda
+Marcus Aurelius
