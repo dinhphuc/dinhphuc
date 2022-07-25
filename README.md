@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The first duty of love is to listen.**
+**I am thankful for all those difficult people in my life. They have shown me exactly who I do not want to be.**
 
-Paul Tillich
+Anonymous
