@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you really look closely, most overnight successes took a long time.**
+**Luck is what happens when preparation meets opportunity.**
 
-Steve Jobs
+Seneca
