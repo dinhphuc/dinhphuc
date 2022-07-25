@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You've got to find people who love like you do.**
+**We should never change our minds about where we are going, but always be curious about different ways to get there.**
 
-Anonymous
+Simon Sinek
