@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest.**
+**Use your smile to change the world; don't let the world change your smile.**
 
-Sri Chinmoy
+Chinese proverb
