@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Work hard and be nice to people.**
+**Opportunities don't happen. You create them.**
 
-Anonymous
+Chris Grosser
