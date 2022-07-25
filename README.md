@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm not telling you it is going to be easy, I'm telling you it's going to be worth it.**
+**Pain has taught me to appreciate the things that don't hurt.**
 
-Art Williams
+Melissa Tripp
