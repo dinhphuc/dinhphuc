@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you really look closely, most overnight successes took a long time.**
+**You've got to find people who love like you do.**
 
-Steve Jobs
+Anonymous
