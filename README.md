@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Opportunities don't happen. You create them.**
+**Limitations live only in our minds. But if we use our imaginations, our possibilities become limitless.**
 
-Chris Grosser
+Jamie Paolinetti
