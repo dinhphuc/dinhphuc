@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how tough it may get, never give up on yourself or you will look back and regret it.**
+**If you really look closely, most overnight successes took a long time.**
 
-Anonymous
+Steve Jobs
