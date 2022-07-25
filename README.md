@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If one dream should fall and break into a thousand pieces, never be afraid to pick one of those pieces up and begin again.**
+**A positive attitude causes a chain reaction of positive thoughts, events, and outcomes. It is a catalyst, and it sparks extraordinary results.**
 
-Flavia Weedn
+Wade Boggs
