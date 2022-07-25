@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only thing necessary for the triumph of evil is for good men to do nothing.**
+**Patience you must have, my young padawan.**
 
-Edmund Burke
+Yoda
