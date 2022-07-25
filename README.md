@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is during our darkest moments that we must focus to see the light.**
+**I knew that if I failed I wouldn't regret that. But I would regret not trying.**
 
-Aristotle Onassis
+Jeff Bezos
