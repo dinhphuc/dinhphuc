@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Limitations live only in our minds. But if we use our imaginations, our possibilities become limitless.**
+**What you're thinking is what you're becoming.**
 
-Jamie Paolinetti
+Muhammad Ali
