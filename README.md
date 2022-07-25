@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A positive attitude causes a chain reaction of positive thoughts, events, and outcomes. It is a catalyst, and it sparks extraordinary results.**
+**No matter how tough it may get, never give up on yourself or you will look back and regret it.**
 
-Wade Boggs
+Anonymous
