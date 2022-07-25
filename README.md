@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**He who lives in harmony with himself lives in harmony with the universe.**
+**Work hard and be nice to people.**
 
-Marcus Aurelius
+Anonymous
