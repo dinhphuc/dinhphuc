@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We know what we are, but know not what we may be.**
+**Words should be weighed, not counted.**
 
-William Shakespeare
+Yiddish Proverb
