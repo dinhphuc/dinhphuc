@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We should never change our minds about where we are going, but always be curious about different ways to get there.**
+**If you are willing to do more than you are paid to do, eventually you will be paid to do more than you do.**
 
-Simon Sinek
+Anonymous
