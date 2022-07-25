@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will never always be motivated. You have to learn to be disciplined.**
+**It is during our darkest moments that we must focus to see the light.**
 
-Anonymous
+Aristotle Onassis
