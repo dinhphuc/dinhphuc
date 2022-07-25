@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Use your smile to change the world; don't let the world change your smile.**
+**If one dream should fall and break into a thousand pieces, never be afraid to pick one of those pieces up and begin again.**
 
-Chinese proverb
+Flavia Weedn
