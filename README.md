@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not whether you get knocked down. It's whether you get back up.**
+**Hope never abandons you, you abandon it.**
 
-Vince Lombardi
+George Weinberg
