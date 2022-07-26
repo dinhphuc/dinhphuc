@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is what happens when you're busy making other plans.**
+**Believe and act as if it were impossible to fail.**
 
-John Lennon
+Charles Kettering
