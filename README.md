@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The vision of a champion is someone who is bent over, drenched in sweat, at the point of exhaustion when no one else is watching.**
+**Always be yourself and have faith in yourself. Do not go out and look for a successful personality and try to duplicate it.**
 
-Jim Afremow
+Bruce Lee
