@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Wake up every morning with the thought that something wonderful is about to happen.**
+**Life is what happens when you're busy making other plans.**
 
-Anonymous
+John Lennon
