@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always be yourself and have faith in yourself. Do not go out and look for a successful personality and try to duplicate it.**
+**In a dark place we find ourselves, and a little more knowledge lights our way.**
 
-Bruce Lee
+Yoda
