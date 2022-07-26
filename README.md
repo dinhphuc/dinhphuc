@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We either make ourselves miserable or we make ourselves strong. The amount of work is the same.**
+**A dream does not become reality through magic; it takes sweat, determination and hard work.**
 
-Carlos Costaneda
+Colin Powell
