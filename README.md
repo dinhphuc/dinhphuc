@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be afraid of your fears. They're not there to scare you. They're there to let you know that something is worth it.**
+**The key to being happy is knowing you have the power to choose what to accept and what to let go.**
 
-C. JoyBell C
+Anonymous
