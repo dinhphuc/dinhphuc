@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To fall in love with yourself is the first secret to happiness.**
+**The best way to predict your future is to create it.**
 
-Robert Morley
+Peter F. Drucker
