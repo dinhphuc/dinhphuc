@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I can't change the direction of the wind, but I can adjust my sails to always reach my destination.**
+**We either make ourselves miserable or we make ourselves strong. The amount of work is the same.**
 
-Jimmy Dean
+Carlos Costaneda
