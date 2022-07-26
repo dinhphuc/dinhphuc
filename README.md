@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I survived because the fire inside me burned brighter than the fire around me.**
+**One day I'll be at the place I always wanted to be.**
 
-Joshua Graham
+Anonymous
