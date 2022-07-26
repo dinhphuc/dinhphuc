@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything you need to accomplish your goals is already in you.**
+**There is no charm equal to tenderness of heart.**
 
-Anonymous
+Jane Austen
