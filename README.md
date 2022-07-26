@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If your dreams don't scare you, they aren't big enough.**
+**In a battle between elephants, the ants get squashed.**
 
-Muhammad Ali
+Thai Proverb
