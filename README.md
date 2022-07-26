@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One day I'll be at the place I always wanted to be.**
+**Once you replace negative thoughts with positive ones, you'll start having positive results.**
 
-Anonymous
+Willie Nelson
