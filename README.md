@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your hardest times often lead to the greatest moments of your life. Keep going. Tough situations build strong people in the end.**
+**Happens to every guy sometimes this does.**
 
-Roy T. Bennett
+Yoda
