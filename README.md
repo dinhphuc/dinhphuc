@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Plenty of people miss their share of happiness, not because they never found it, but because they didn't stop to enjoy it.**
+**As I look back on my life, I realize that every time I thought I was being rejected from something good, I was actually being re-directed to something better.**
 
-William Feather
+Anonymous
