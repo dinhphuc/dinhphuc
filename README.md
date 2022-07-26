@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you dare to dream, dare to follow that dream; dare to suffer through the pain, sacrifice, self-doubts and friction from the world.**
+**If your dreams don't scare you, they aren't big enough.**
 
-Laura Schlessinger
+Muhammad Ali
