@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In a battle between elephants, the ants get squashed.**
+**The way to get started is to quit talking and begin doing.**
 
-Thai Proverb
+Walt Disney
