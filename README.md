@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once you replace negative thoughts with positive ones, you'll start having positive results.**
+**Everything you need to accomplish your goals is already in you.**
 
-Willie Nelson
+Anonymous
