@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no charm equal to tenderness of heart.**
+**When you dare to dream, dare to follow that dream; dare to suffer through the pain, sacrifice, self-doubts and friction from the world.**
 
-Jane Austen
+Laura Schlessinger
