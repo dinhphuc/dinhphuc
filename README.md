@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hope never abandons you, you abandon it.**
+**To fall in love with yourself is the first secret to happiness.**
 
-George Weinberg
+Robert Morley
