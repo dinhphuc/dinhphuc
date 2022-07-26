@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happens to every guy sometimes this does.**
+**It's not whether you get knocked down. It's whether you get back up.**
 
-Yoda
+Vince Lombardi
