@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success doesn't just come and find you, you have to go out and get it.**
+**It's hard to beat a person who never gives up.**
 
 Anonymous
