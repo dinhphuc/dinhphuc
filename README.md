@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**May you live all the days of your life.**
+**Fall seven times, stand up eight.**
 
-Jonathan Swift
+Japanese Proverb
