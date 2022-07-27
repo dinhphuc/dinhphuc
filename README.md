@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you choose to focus on expands and grows.**
+**Some people dream of success... while others wake up and work hard at it.**
 
 Anonymous
