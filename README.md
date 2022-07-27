@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Wherever you go, go with all your heart.**
+**I didn't come this far to only come this far.**
 
-Confucius
+Anonymous
