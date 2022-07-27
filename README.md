@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Some people dream of success... while others wake up and work hard at it.**
+**Be not afraid of life. Believe that life is worth living, and your belief will help create the fact.**
 
-Anonymous
+William James
