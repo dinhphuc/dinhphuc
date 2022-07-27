@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Doing what you like is freedom. Liking what you do is happiness.**
+**Self-belief and hard work will always earn you success.**
 
-Anonymous
+Virat Kohli
