@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If your dreams don't scare you, they aren't big enough.**
+**You can if you think you can.**
 
-Muhammad Ali
+George Reeves
