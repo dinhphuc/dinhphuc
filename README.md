@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A beautiful thing is never perfect.**
+**All that matters is how you see yourself.**
 
-Egyptian Proverb
+Conor McGregor
