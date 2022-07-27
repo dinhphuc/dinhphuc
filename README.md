@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Build your own dreams, or someone else will hire you to build theirs.**
+**A beautiful thing is never perfect.**
 
-Farrah Gray
+Egyptian Proverb
