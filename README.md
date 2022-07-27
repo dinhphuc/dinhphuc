@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I didn't come this far to only come this far.**
+**Once you're beat mentally, you might as well not even go to the starting line.**
 
-Anonymous
+Todd Williams
