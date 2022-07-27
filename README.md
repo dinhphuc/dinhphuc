@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot shake hands with a clenched fist.**
+**Find a place inside where there's joy, and the joy will burn out the pain.**
 
-Indira Gandhi
+Joseph Campbell
