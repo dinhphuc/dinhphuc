@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe and act as if it were impossible to fail.**
+**Doing what you like is freedom. Liking what you do is happiness.**
 
-Charles Kettering
+Anonymous
