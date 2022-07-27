@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The goal is not to be perfect by the end. The goal is to be better today.**
+**Starting today, I need to forget what's gone. Appreciate what still remains and look forward to what's coming next.**
 
-Simon Sinek
+Anonymous
