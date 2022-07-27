@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Shared joy is a double joy; shared sorrow is half a sorrow.**
+**The goal is not to be perfect by the end. The goal is to be better today.**
 
-Swedish Proverb
+Simon Sinek
