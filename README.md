@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Self-belief and hard work will always earn you success.**
+**Wherever you go, go with all your heart.**
 
-Virat Kohli
+Confucius
