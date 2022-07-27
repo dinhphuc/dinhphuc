@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A warm smile is the universal language of kindness.**
+**Build your own dreams, or someone else will hire you to build theirs.**
 
-William Arthur Ward
+Farrah Gray
