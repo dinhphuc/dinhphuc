@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's hard to beat a person who never gives up.**
+**May you live all the days of your life.**
 
-Anonymous
+Jonathan Swift
