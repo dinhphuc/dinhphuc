@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Starting today, I need to forget what's gone. Appreciate what still remains and look forward to what's coming next.**
+**You walk through life much easier with a smile on your face.**
 
-Anonymous
+Sweet Paul
