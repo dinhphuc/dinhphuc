@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Find a place inside where there's joy, and the joy will burn out the pain.**
+**Don't let the silly little things steal your happiness.**
 
-Joseph Campbell
+Anonymous
