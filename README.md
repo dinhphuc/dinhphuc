@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We are made to persist. That's how we find out who we are.**
+**A warm smile is the universal language of kindness.**
 
-Tobias Wolff
+William Arthur Ward
