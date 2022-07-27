@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You walk through life much easier with a smile on your face.**
+**A leader is one who knows the way, goes the way, and shows the way.**
 
-Sweet Paul
+John C. Maxwell
