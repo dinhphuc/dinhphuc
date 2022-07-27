@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You have purpose.**
+**Never give up. Great things take time. Be patient.**
 
 Anonymous
