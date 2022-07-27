@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All that matters is how you see yourself.**
+**You cannot shake hands with a clenched fist.**
 
-Conor McGregor
+Indira Gandhi
