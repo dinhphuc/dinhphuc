@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be not afraid of life. Believe that life is worth living, and your belief will help create the fact.**
+**We are made to persist. That's how we find out who we are.**
 
-William James
+Tobias Wolff
