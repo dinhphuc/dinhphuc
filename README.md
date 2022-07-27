@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up. Great things take time. Be patient.**
+**What you choose to focus on expands and grows.**
 
 Anonymous
