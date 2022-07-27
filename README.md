@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't let the silly little things steal your happiness.**
+**Success doesn't just come and find you, you have to go out and get it.**
 
 Anonymous
