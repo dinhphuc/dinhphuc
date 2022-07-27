@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Fall seven times, stand up eight.**
+**Don't give up on yourself. You're worth it.**
 
-Japanese Proverb
+Anonymous
