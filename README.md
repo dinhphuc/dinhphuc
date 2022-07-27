@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can if you think you can.**
+**Shared joy is a double joy; shared sorrow is half a sorrow.**
 
-George Reeves
+Swedish Proverb
