@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to lift yourself up, lift up someone else.**
+**You have brains in your head. You have feet in your shoes. You can steer yourself any direction you choose.**
 
-Booker T. Washington
+Dr. Seuss
