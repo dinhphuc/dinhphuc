@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I didn't come this far to only come this far.**
+**Only those who dare to fail greatly can ever achieve greatly.**
 
-Anonymous
+Robert F. Kennedy
