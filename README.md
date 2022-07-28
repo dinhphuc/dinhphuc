@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Difficult to see. Always in motion is the future.**
+**Whoever is happy will make others happy too.**
 
-Yoda
+Anonymous
