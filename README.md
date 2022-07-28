@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up. Keep going.**
+**When you know what you want, and want it bad enough, you'll find a way to get it.**
 
-Anonymous
+Jim Rohn
