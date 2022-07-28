@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Another day another blessing.**
+**A truly happy person is one who can enjoy the scenery when they have made a wrong turn.**
 
 Anonymous
