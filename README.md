@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You have brains in your head. You have feet in your shoes. You can steer yourself any direction you choose.**
+**Anyone who has grown mentally, physically or spiritually knows that growth is not found in comfort.**
 
-Dr. Seuss
+Anonymous
