@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Education is the most powerful weapon which you can use to change the world.**
+**I didn't come this far to only come this far.**
 
-Nelson Mandela
+Anonymous
