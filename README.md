@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I've got nothing to do today but smile.**
+**Sometimes you face difficulties not because you're doing something wrong but because you're doing something right.**
 
-Paul Simon
+Anonymous
