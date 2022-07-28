@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is during our darkest moments that we must focus to see the light.**
+**Whoever is happy will make others happy too.**
 
-Aristotle Onassis
+Anonymous
