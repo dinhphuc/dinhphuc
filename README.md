@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**May the Force be with you.**
+**Difficult to see. Always in motion is the future.**
 
 Yoda
