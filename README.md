@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Set a goal that makes you want to jump out of bed in the morning.**
+**The question isn't who is going to let me; it's who is going to stop me.**
 
-Anonymous
+Ayn Rand
