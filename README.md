@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whoever is happy will make others happy too.**
+**All you need is love.**
 
-Anonymous
+The Beatles
