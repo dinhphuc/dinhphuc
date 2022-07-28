@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.**
+**You are the only one who can limit your greatness.**
 
-Samuel Beckett
+Anonymous
