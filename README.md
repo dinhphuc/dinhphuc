@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Instead of worrying about what you cannot control, shift your energy to what you can create.**
+**Set a goal that makes you want to jump out of bed in the morning.**
 
-Roy T. Bennett
+Anonymous
