@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All you need is love.**
+**The things you regret most in life are the risks you didn't take.**
 
-The Beatles
+Anonymous
