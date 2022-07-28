@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Appreciate the people who make you smile.**
+**May the Force be with you.**
 
-Anonymous
+Yoda
