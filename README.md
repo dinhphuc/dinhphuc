@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep smiling. It makes people wonder what you are up to.**
+**A person who never made a mistake never tried anything new.**
 
-Anonymous
+Albert Einstein
