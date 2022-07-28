@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Perseverance is the hard work you do after you get tired of doing the hard work you already did.**
+**If you want to lift yourself up, lift up someone else.**
 
-Newt Gingrich
+Booker T. Washington
