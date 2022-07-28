@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are the only one who can limit your greatness.**
+**Another day another blessing.**
 
 Anonymous
