@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A person who never made a mistake never tried anything new.**
+**Each time I thought I had achieved my life's purpose, I discovered it was only another step in my journey.**
 
-Albert Einstein
+Muhammad Ali
