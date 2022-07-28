@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Someone who is busier than you is running right now.**
+**Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.**
 
-Nike
+Samuel Beckett
