@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Anyone who has grown mentally, physically or spiritually knows that growth is not found in comfort.**
+**Someone who is busier than you is running right now.**
 
-Anonymous
+Nike
