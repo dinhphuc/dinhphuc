@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you know what you want, and want it bad enough, you'll find a way to get it.**
+**Appreciate the people who make you smile.**
 
-Jim Rohn
+Anonymous
