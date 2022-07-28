@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Being happy is the greatest form of success.**
+**Education is the most powerful weapon which you can use to change the world.**
 
-Anonymous
+Nelson Mandela
