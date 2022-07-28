@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Sometimes you face difficulties not because you're doing something wrong but because you're doing something right.**
+**Instead of worrying about what you cannot control, shift your energy to what you can create.**
 
-Anonymous
+Roy T. Bennett
