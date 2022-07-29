@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The marathon can humble you.**
+**The only way to do great work is to love what you do.**
 
-Bill Rodgers
+Steve Jobs
