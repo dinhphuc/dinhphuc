@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Who begins too much accomplishes little.**
+**Life isn't about getting and having, it's about giving and being.**
 
-German Proverb
+Kevin Kruse
