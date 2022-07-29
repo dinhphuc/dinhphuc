@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life isn't about getting and having, it's about giving and being.**
+**You can have everything you want in life if you just help enough people get what they want in life.**
 
-Kevin Kruse
+Zig Ziglar
