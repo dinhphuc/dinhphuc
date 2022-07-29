@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be helpful. When you see a person without a smile, give them yours.**
+**The marathon can humble you.**
 
-Zig Ziglar
+Bill Rodgers
