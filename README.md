@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Attachment leads to jealously. The shadow of greed, that is.**
+**Be helpful. When you see a person without a smile, give them yours.**
 
-Yoda
+Zig Ziglar
