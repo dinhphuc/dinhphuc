@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Set a goal that makes you want to jump out of bed in the morning.**
+**No act of kindness, no matter how small, is ever wasted.**
 
-Anonymous
+Aesop
