@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you believe it, the mind can achieve it.**
+**Happy are those who take life day by day, complain very little, and are thankful for the little things in life.**
 
-Ronnie Lott
+Anonymous
