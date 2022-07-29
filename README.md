@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pain is temporary. Quitting lasts forever.**
+**If you go to a donkey's house, don't talk about ears.**
 
-Lance Armstrong
+Jamaican Proverb
