@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every accomplishment begins with the decision to try.**
+**It's not what you look at that matters, it's what you see.**
 
-Anonymous
+Henry David Thoreau
