@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't use up creativity. The more you use, the more you have.**
+**Happiness is only real when shared.**
 
-Maya Angelou
+Jon Krakauer
