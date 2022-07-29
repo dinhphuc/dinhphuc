@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The question isn't who is going to let me; it's who is going to stop me.**
+**If you believe it, the mind can achieve it.**
 
-Ayn Rand
+Ronnie Lott
