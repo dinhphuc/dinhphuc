@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is only real when shared.**
+**Do more of what lights you up and makes you feel alive. The world needs your spark.**
 
-Jon Krakauer
+Anonymous
