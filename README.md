@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be you. Do you. For you.**
+**Gratitude turns what we have into enough.**
 
 Anonymous
