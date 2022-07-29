@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you go to a donkey's house, don't talk about ears.**
+**Every accomplishment begins with the decision to try.**
 
-Jamaican Proverb
+Anonymous
