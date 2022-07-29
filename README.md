@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can alter mood by running.**
+**Who begins too much accomplishes little.**
 
-Tumpal Sihombing
+German Proverb
