@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not the mountain we conquer, but ourselves.**
+**Happiness is only real when shared.**
 
-Sir Edmund Hillary
+Jon Krakauer
