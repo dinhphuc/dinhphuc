@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The marathon can humble you.**
+**I'm alone, but I'm not lonely. I like who I am. I like who I'm becoming.**
 
-Bill Rodgers
+Deena Kastor
