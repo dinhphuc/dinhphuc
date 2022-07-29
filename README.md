@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm alone, but I'm not lonely. I like who I am. I like who I'm becoming.**
+**No one who can rise before dawn three hundred sixty days a year fails to make his family rich.**
 
-Deena Kastor
+Malcolm Gladwell
