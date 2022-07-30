@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's important to feel good about yourself. When you feel good about yourself, nothing negative can touch you.**
+**It's not so much that I began to run, but that I continued.**
 
-Anonymous
+Hal Higdon
