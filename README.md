@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only in the darkness can you see the stars.**
+**Positive anything is better than negative nothing.**
 
-Martin Luther King, Jr.
+Elbert Hubbard
