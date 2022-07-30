@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I have not failed. I've just found 10,000 ways that won't work.**
+**Your task is not to seek for love, but merely to seek and find all the barriers within yourself that you have built against it.**
 
-Thomas Edison
+Rumi
