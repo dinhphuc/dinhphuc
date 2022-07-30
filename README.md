@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter what you do, that seed will grow to be a peach tree. You may wish for an apple or an orange, but you will get a peach.**
+**It takes courage to grow up and become who you really are.**
 
-Master Oogway
+E.E. Cummings
