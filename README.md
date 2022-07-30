@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It feels good when you can put a smile on someone's face by simply being yourself.**
+**We should never change our minds about where we are going, but always be curious about different ways to get there.**
 
-Anonymous
+Simon Sinek
