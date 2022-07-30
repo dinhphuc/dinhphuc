@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only in the darkness can you see the stars.**
+**How wonderful it is that nobody need wait a single moment before starting to improve the world.**
 
-Martin Luther King, Jr.
+Anne Frank
