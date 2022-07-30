@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is not something ready made. It comes from your own actions.**
+**And if you want to have a day filled with joy, love, and excitement, it is vital that you fill yourself with positivity so you can radiate good energy.**
 
-Dalai Lama
+Anonymous
