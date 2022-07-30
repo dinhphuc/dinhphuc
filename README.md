@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In this life we cannot do great things. We can only do small things with great love.**
+**If your dreams don't scare you, they aren't big enough.**
 
-Mother Teresa
+Muhammad Ali
