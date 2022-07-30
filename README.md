@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It takes courage to grow up and become who you really are.**
+**Live as if you were to die tomorrow. Learn as if you were to live forever.**
 
-E.E. Cummings
+Mahatma Gandhi
