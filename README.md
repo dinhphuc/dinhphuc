@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Run when you can, walk if you have to, crawl if you must; just never give up.**
+**Today is a beautiful day and I will attract good things into my life.**
 
-Dean Karnazes
+Anonymous
