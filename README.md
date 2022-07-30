@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not so much that I began to run, but that I continued.**
+**I have not failed. I've just found 10,000 ways that won't work.**
 
-Hal Higdon
+Thomas Edison
