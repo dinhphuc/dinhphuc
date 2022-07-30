@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your hardest times often lead to the greatest moments of your life. Keep going. Tough situations build strong people in the end.**
+**He who sweats more in training bleeds less in war.**
 
-Roy T. Bennett
+Greek Proverb
