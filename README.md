@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A smile is the beauty of the soul.**
+**Whoever loves much, performs much, and can accomplish much, and what is done in love is done well.**
 
-Lailah Gifty
+Vincent van Gogh
