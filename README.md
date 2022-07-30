@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live as if you were to die tomorrow. Learn as if you were to live forever.**
+**It feels good when you can put a smile on someone's face by simply being yourself.**
 
-Mahatma Gandhi
+Anonymous
