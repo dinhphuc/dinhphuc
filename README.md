@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It never gets easier. You just get better.**
+**In this life we cannot do great things. We can only do small things with great love.**
 
-Jordan Hoechlin
+Mother Teresa
