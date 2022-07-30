@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Today is a beautiful day and I will attract good things into my life.**
+**A smile is the beauty of the soul.**
 
-Anonymous
+Lailah Gifty
