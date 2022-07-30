@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**He who sweats more in training bleeds less in war.**
+**Teachers open the door; you enter by yourself.**
 
-Greek Proverb
+Chinese Proverb
