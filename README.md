@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's gonna get harder before it gets easier. But it will get better, you just gotta make it through the hard stuff first.**
+**Be not afraid of life. Believe that life is worth living, and your belief will help create the fact.**
 
-Anonymous
+William James
