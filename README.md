@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whoever loves much, performs much, and can accomplish much, and what is done in love is done well.**
+**Determination is doing what needs to be done even when you don't feel like doing it.**
 
-Vincent van Gogh
+Anonymous
