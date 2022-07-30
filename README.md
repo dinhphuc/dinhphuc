@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We should never change our minds about where we are going, but always be curious about different ways to get there.**
+**Always remember you are braver than you believe, stronger than you seem, and smarter than you think.**
 
-Simon Sinek
+Christopher Robin
