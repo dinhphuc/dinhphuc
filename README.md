@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love is not running away or giving up, it is standing and fighting for every moment.**
+**Happiness is not something ready made. It comes from your own actions.**
 
-M.F. Moonzajer
+Dalai Lama
