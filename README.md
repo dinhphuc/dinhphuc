@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Wisdom is knowing when you can't be wise.**
+**It never gets easier. You just get better.**
 
-Muhammad Ali
+Jordan Hoechlin
