@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**How wonderful it is that nobody need wait a single moment before starting to improve the world.**
+**Your hardest times often lead to the greatest moments of your life. Keep going. Tough situations build strong people in the end.**
 
-Anne Frank
+Roy T. Bennett
