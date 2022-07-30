@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Simple to open a shop; another thing to keep it open.**
+**Only in the darkness can you see the stars.**
 
-Chinese Proverb
+Martin Luther King, Jr.
