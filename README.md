@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If your dreams don't scare you, they aren't big enough.**
+**Love is not running away or giving up, it is standing and fighting for every moment.**
 
-Muhammad Ali
+M.F. Moonzajer
