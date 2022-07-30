@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Determination is doing what needs to be done even when you don't feel like doing it.**
+**Wisdom is knowing when you can't be wise.**
 
-Anonymous
+Muhammad Ali
