@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always remember you are braver than you believe, stronger than you seem, and smarter than you think.**
+**Choosing to be positive and having a grateful attitude is going to determine how you're going to live your life.**
 
-Christopher Robin
+Joel Osteen
