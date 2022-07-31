@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**He who always thinks it is too soon is sure to come too late.**
+**There is no greater miracle than our conscious efforts to become good human beings.**
 
-German Proverb
+Sri Chinmoy
