@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It never gets easier. You just get better.**
+**No matter where you are on your journey, that's exactly where you need to be.**
 
-Jordan Hoechlin
+Oprah Winfrey
