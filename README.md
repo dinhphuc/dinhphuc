@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Rock bottom became the solid foundation on which I rebuilt my life.**
+**Nothing will work unless you do.**
 
-J.K. Rowling
+Maya Angelou
