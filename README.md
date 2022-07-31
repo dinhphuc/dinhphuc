@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A new command I give you: Love one another.**
+**When you depersonalize abrasive behavior and see it as a call for help you become a catalyst for the best kind of change.**
 
-Jesus Christ
+Marilyn Suttle
