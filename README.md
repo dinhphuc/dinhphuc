@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are two days in the year that we can not do anything, yesterday and tomorrow.**
+**Do more of what lights you up and makes you feel alive. The world needs your spark.**
 
-Mahatma Gandhi
+Anonymous
