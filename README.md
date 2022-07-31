@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Kindness is free. Sprinkle that stuff everywhere.**
+**You deserve to be happy. You deserve to live a life you are excited about. Don't let others make you forget that.**
 
 Anonymous
