@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you depersonalize abrasive behavior and see it as a call for help you become a catalyst for the best kind of change.**
+**Life is a succession of lessons which must be lived to be understood.**
 
-Marilyn Suttle
+Ralph Waldo Emerson
