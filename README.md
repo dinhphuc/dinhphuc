@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be you. Do you. For you.**
+**Nurture your mind with great thoughts, for you will never go any higher than you think.**
 
-Anonymous
+Benjamin Disraeli
