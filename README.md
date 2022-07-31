@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Float like a butterfly, sting like a bee. The hands can't hit what the eyes can't see.**
+**There are two days in the year that we can not do anything, yesterday and tomorrow.**
 
-Muhammad Ali
+Mahatma Gandhi
