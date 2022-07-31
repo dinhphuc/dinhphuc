@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**As we express our gratitude, we must never forget that the highest appreciation is not to utter words, but to live by them.**
+**Work on being in love with the person in the mirror who has been through so much but is still standing.**
 
-John F. Kennedy
+Anonymous
