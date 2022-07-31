@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You deserve to be happy. You deserve to live a life you are excited about. Don't let others make you forget that.**
+**Rock bottom became the solid foundation on which I rebuilt my life.**
 
-Anonymous
+J.K. Rowling
