@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Choosing to be positive and having a grateful attitude is going to determine how you're going to live your life.**
+**Float like a butterfly, sting like a bee. The hands can't hit what the eyes can't see.**
 
-Joel Osteen
+Muhammad Ali
