@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We become what we think about.**
+**The more you praise and celebrate your life, the more there is in life to celebrate.**
 
-Earl Nightingale
+Oprah Winfrey
