@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When something is important enough, you do it even if the odds are not in your favor.**
+**My attitude is if you push me towards a weakness, I will turn that weakness into a strength.**
 
-Elon Musk
+Michael Jordan
