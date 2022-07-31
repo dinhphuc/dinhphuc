@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only thing worse than starting something and failing... is not starting something.**
+**As we express our gratitude, we must never forget that the highest appreciation is not to utter words, but to live by them.**
 
-Seth Godin
+John F. Kennedy
