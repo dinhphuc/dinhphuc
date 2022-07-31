@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Through challenge and difficulty, we learn to see life differently than before.**
+**He who always thinks it is too soon is sure to come too late.**
 
-Auliq-Ice
+German Proverb
