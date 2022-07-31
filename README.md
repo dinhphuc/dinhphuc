@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whoever loves much, performs much, and can accomplish much, and what is done in love is done well.**
+**When something is important enough, you do it even if the odds are not in your favor.**
 
-Vincent van Gogh
+Elon Musk
