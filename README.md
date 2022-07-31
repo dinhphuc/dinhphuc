@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing will work unless you do.**
+**The key to being happy is knowing you have the power to choose what to accept and what to let go.**
 
-Maya Angelou
+Anonymous
