@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**My attitude is if you push me towards a weakness, I will turn that weakness into a strength.**
+**Through challenge and difficulty, we learn to see life differently than before.**
 
-Michael Jordan
+Auliq-Ice
