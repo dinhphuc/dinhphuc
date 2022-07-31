@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no greater miracle than our conscious efforts to become good human beings.**
+**The only thing worse than starting something and failing... is not starting something.**
 
-Sri Chinmoy
+Seth Godin
