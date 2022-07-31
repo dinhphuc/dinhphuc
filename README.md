@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is a succession of lessons which must be lived to be understood.**
+**What keeps me going is goals.**
 
-Ralph Waldo Emerson
+Muhammad Ali
