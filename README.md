@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nurture your mind with great thoughts, for you will never go any higher than you think.**
+**Get going ... walk if you have to, but finish the damned race.**
 
-Benjamin Disraeli
+Ron Hill
