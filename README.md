@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What keeps me going is goals.**
+**Strive not to be a success, but rather to be of value.**
 
-Muhammad Ali
+Albert Einstein
