@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter where you are on your journey, that's exactly where you need to be.**
+**When something is important enough, you do it even if the odds are not in your favor.**
 
-Oprah Winfrey
+Elon Musk
