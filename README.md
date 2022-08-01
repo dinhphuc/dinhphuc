@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**With confidence you have won before you have started.**
+**The only way to do great work is to love what you do.**
 
-Marcus Garvey
+Steve Jobs
