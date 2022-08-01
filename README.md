@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Even the smallest shift in perspective can bring about the greatest healing.**
+**I didn't fail the test. I just found 100 ways to do it wrong.**
 
-Joshua Kai
+Benjamin Franklin
