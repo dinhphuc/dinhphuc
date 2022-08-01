@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how old I get, the race remains one of life's most rewarding experiences.**
+**In a dark place we find ourselves, and a little more knowledge lights our way.**
 
-George Sheehan
+Yoda
