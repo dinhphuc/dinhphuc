@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are only two options regarding commitment. You're either IN or you're OUT. There is no such thing as life in-between.**
+**Every strike brings me closer to the next home run.**
 
-Pat Riley
+Babe Ruth
