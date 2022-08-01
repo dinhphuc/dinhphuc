@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every next level of your life will demand a different version of you.**
+**If you don't love what you do, you won't do it with much conviction or passion.**
 
-Anonymous
+Mia Hamm
