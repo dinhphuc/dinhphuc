@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You fail because you don't believe.**
+**Your body is made to move so move it.**
 
-Yoda
+Toni Sorenson
