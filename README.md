@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's better to light a candle than curse the darkness.**
+**100% commitment is easier than 98% commitment.**
 
-Chinese Proverb
+Harvard Business School
