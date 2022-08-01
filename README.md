@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is a habit - cultivate it.**
+**The first duty of love is to listen.**
 
-Elbert Hubbard
+Paul Tillich
