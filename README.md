@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Get going ... walk if you have to, but finish the damned race.**
+**No matter how old I get, the race remains one of life's most rewarding experiences.**
 
-Ron Hill
+George Sheehan
