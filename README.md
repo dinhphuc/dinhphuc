@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no greater miracle than our conscious efforts to become good human beings.**
+**Happiness is a habit - cultivate it.**
 
-Sri Chinmoy
+Elbert Hubbard
