@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your body is made to move so move it.**
+**Happiness is not out there, it's in you.**
 
-Toni Sorenson
+Anonymous
