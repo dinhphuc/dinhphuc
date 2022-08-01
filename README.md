@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We are what we repeatedly do. Excellence, then, is not an act, but a habit.**
+**To know the road ahead, ask those coming back.**
 
-Aristotle
+Chinese Proverb
