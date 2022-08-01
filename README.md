@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Look for something positive in each day, even if some days you have to look a little harder.**
+**Every next level of your life will demand a different version of you.**
 
 Anonymous
