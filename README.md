@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success seems to be connected with action. Successful people keep moving. They make mistakes, but they don't quit.**
+**It's better to light a candle than curse the darkness.**
 
-Conrad Hilton
+Chinese Proverb
