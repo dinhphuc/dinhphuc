@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In a dark place we find ourselves, and a little more knowledge lights our way.**
+**There is no greater miracle than our conscious efforts to become good human beings.**
 
-Yoda
+Sri Chinmoy
