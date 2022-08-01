@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every strike brings me closer to the next home run.**
+**The greatest discovery of all time is that a person can change their future by merely changing their attitude.**
 
-Babe Ruth
+Oprah Winfrey
