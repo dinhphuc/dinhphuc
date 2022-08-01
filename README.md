@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is a habit - cultivate it.**
+**Good friends are all that matter.**
 
-Elbert Hubbard
+Anonymous
