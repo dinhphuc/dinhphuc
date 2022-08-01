@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The first duty of love is to listen.**
+**Education is the most powerful weapon which you can use to change the world.**
 
-Paul Tillich
+Nelson Mandela
