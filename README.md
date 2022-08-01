@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only way to do great work is to love what you do.**
+**There are only two options regarding commitment. You're either IN or you're OUT. There is no such thing as life in-between.**
 
-Steve Jobs
+Pat Riley
