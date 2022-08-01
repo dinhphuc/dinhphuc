@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Working hard for something we don't care about is called stress; working hard for somthing we love is called passion.**
+**We are what we repeatedly do. Excellence, then, is not an act, but a habit.**
 
-Simon Sinek
+Aristotle
