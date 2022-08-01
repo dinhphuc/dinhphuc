@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
+**Look for something positive in each day, even if some days you have to look a little harder.**
 
 Anonymous
