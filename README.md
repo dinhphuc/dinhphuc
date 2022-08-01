@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**100% commitment is easier than 98% commitment.**
+**You fail because you don't believe.**
 
-Harvard Business School
+Yoda
