@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To know the road ahead, ask those coming back.**
+**Success seems to be connected with action. Successful people keep moving. They make mistakes, but they don't quit.**
 
-Chinese Proverb
+Conrad Hilton
