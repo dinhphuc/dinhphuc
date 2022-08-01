@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't love what you do, you won't do it with much conviction or passion.**
+**Working hard for something we don't care about is called stress; working hard for somthing we love is called passion.**
 
-Mia Hamm
+Simon Sinek
