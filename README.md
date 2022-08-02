@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember that guy that gave up? Neither does anyone else.**
+**When you want to talk about who made me, you talk to me. Who made me is ME.**
 
-Anonymous
+Muhammad Ali
