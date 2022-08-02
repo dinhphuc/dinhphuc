@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you find an idea that you just can't stop thinking about, that's probably a good one to pursue.**
+**Mind what you have learned. Save you it can.**
 
-Josh James
+Yoda
