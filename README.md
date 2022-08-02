@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do all things with love.**
+**Make sure your worst enemy doesn't live between your own two ears.**
 
-Og Mandino
+Laird Hamilton
