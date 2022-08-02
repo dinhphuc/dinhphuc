@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be so good they can't ignore you.**
+**Decide what matters most to you and do it.**
 
-Steve Martin
+Anonymous
