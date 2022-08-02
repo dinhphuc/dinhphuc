@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In life, many things do not go according to plan. If you fall, get back up.**
+**Pain has taught me to appreciate the things that don't hurt.**
 
-Anonymous
+Melissa Tripp
