@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't ask what the world needs. Ask what makes you come alive and go do it. Because what the world needs is more people who have come alive.**
+**A truly happy person is one who can enjoy the scenery when they have made a wrong turn.**
 
-Howard Thurman
+Anonymous
