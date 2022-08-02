@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you want to talk about who made me, you talk to me. Who made me is ME.**
+**When you find an idea that you just can't stop thinking about, that's probably a good one to pursue.**
 
-Muhammad Ali
+Josh James
