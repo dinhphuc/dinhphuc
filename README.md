@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pain has taught me to appreciate the things that don't hurt.**
+**The first place where self-esteem begins its journey is within us.**
 
-Melissa Tripp
+Stephen Richards
