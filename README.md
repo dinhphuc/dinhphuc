@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Acting on a good idea is better than just having a good idea.**
+**Smile in the mirror. Do that every morning and you'll start to see a big difference in your life.**
 
-Robert Half
+Yoko Ono
