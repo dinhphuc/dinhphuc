@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile in the mirror. Do that every morning and you'll start to see a big difference in your life.**
+**What you're thinking is what you're becoming.**
 
-Yoko Ono
+Muhammad Ali
