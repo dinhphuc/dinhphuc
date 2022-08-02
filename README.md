@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It feels good when you can put a smile on someone's face by simply being yourself.**
+**Keep smiling, because life is a beautiful thing and there's so much to smile about.**
 
-Anonymous
+Marilyn Monroe
