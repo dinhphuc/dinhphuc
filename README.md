@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Make sure your worst enemy doesn't live between your own two ears.**
+**Remember that guy that gave up? Neither does anyone else.**
 
-Laird Hamilton
+Anonymous
