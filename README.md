@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is letting go of what you think your life is supposed to look like and enjoying it for everything that it is.**
+**The goal is not to be perfect by the end. The goal is to be better today.**
 
-Mandy Hale
+Simon Sinek
