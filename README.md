@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The goal is not to be perfect by the end. The goal is to be better today.**
+**Ask yourself: Can I give more? The answer is usually: Yes.**
 
-Simon Sinek
+Paul Tergat
