@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A warm smile is the universal language of kindness.**
+**Self-belief and hard work will always earn you success.**
 
-William Arthur Ward
+Virat Kohli
