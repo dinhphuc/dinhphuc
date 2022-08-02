@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**How long are you going to wait before you demand the best for yourself?**
+**I attribute my success to this: I never gave or took any excuse.**
 
-Epictetus
+Florence Nightingale
