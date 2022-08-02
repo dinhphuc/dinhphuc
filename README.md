@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your positive action combined with positive thinking results in success.**
+**Be so good they can't ignore you.**
 
-Anonymous
+Steve Martin
