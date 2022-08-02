@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you're thinking is what you're becoming.**
+**There are no mistakes, only lessons. Growth is a process of trial and error.**
 
-Muhammad Ali
+Anonymous
