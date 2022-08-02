@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The first place where self-esteem begins its journey is within us.**
+**It feels good when you can put a smile on someone's face by simply being yourself.**
 
-Stephen Richards
+Anonymous
