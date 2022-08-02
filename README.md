@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep smiling, because life is a beautiful thing and there's so much to smile about.**
+**Acting on a good idea is better than just having a good idea.**
 
-Marilyn Monroe
+Robert Half
