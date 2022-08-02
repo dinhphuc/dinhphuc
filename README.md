@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Self-belief and hard work will always earn you success.**
+**Your positive action combined with positive thinking results in success.**
 
-Virat Kohli
+Anonymous
