@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are no mistakes, only lessons. Growth is a process of trial and error.**
+**Happiness is letting go of what you think your life is supposed to look like and enjoying it for everything that it is.**
 
-Anonymous
+Mandy Hale
