@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Mind what you have learned. Save you it can.**
+**In life, many things do not go according to plan. If you fall, get back up.**
 
-Yoda
+Anonymous
