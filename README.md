@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A warm smile is the universal language of kindness.**
+**Words should be weighed, not counted.**
 
-William Arthur Ward
+Yiddish Proverb
