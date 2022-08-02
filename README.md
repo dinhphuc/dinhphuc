@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Ask yourself: Can I give more? The answer is usually: Yes.**
+**Life is never fair, and perhaps it is a good thing for most of us that it is not.**
 
-Paul Tergat
+Oscar Wilde
