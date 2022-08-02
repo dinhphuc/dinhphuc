@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A truly happy person is one who can enjoy the scenery when they have made a wrong turn.**
+**How long are you going to wait before you demand the best for yourself?**
 
-Anonymous
+Epictetus
