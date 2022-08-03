@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I attribute my success to this: I never gave or took any excuse.**
+**There is nothing on this earth more to be prized than true friendship.**
 
-Florence Nightingale
+Thomas Aquinas
