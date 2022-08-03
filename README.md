@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everyone wants happiness. No one wants pain. But you can't have a rainbow, without a little rain.**
+**Walk on with hope in your heart, and you'll never walk alone.**
 
-Anonymous
+Shah Rukh Khan
