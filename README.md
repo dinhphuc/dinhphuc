@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do something today that your future self will thank you for.**
+**All that matters is how you see yourself.**
 
-Anonymous
+Conor McGregor
