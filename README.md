@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is not a problem to be solved, but a reality to be experienced.**
+**Laugh. It's free medicine you don't need insurance for.**
 
-Soren Kierkegaard
+Anonymous
