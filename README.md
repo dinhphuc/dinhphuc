@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Even the smallest shift in perspective can bring about the greatest healing.**
+**You are wonderfully made.**
 
-Joshua Kai
+Anonymous
