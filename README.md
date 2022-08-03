@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All that matters is how you see yourself.**
+**Strive not to be a success, but rather to be of value.**
 
-Conor McGregor
+Albert Einstein
