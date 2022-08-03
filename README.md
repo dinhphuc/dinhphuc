@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is only real when shared.**
+**The more grateful I am, the more beauty I see.**
 
-Jon Krakauer
+Mary Davis
