@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Losers quit when they're tired. Winners quit when they've won.**
+**There is a difference between giving up and knowing when you've had enough.**
 
 Anonymous
