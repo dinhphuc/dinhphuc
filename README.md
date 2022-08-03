@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
+**Life is not a problem to be solved, but a reality to be experienced.**
 
-Wayne Dyer
+Soren Kierkegaard
