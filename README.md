@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Use your smile to change the world; don't let the world change your smile.**
+**Don't give up on yourself. You're worth it.**
 
-Chinese proverb
+Anonymous
