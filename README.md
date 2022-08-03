@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Focus on your goal. Don't look in any direction but ahead.**
+**Do something today that your future self will thank you for.**
 
 Anonymous
