@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is nothing on this earth more to be prized than true friendship.**
+**Fall seven times, stand up eight.**
 
-Thomas Aquinas
+Japanese Proverb
