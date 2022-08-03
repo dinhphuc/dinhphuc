@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always two there are, no more, no less. A master and an apprentice.**
+**Teachers open the door; you enter by yourself.**
 
-Yoda
+Chinese Proverb
