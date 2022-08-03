@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**This a wonderful day. I've never seen this one before.**
+**Focus on your goal. Don't look in any direction but ahead.**
 
-Maya Angelou
+Anonymous
