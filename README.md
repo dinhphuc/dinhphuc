@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Fall seven times, stand up eight.**
+**This a wonderful day. I've never seen this one before.**
 
-Japanese Proverb
+Maya Angelou
