@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is a difference between giving up and knowing when you've had enough.**
+**Everyone wants happiness. No one wants pain. But you can't have a rainbow, without a little rain.**
 
 Anonymous
