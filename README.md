@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All our dreams can come true, if we have the courage to pursue them.**
+**It is not the mountain we conquer, but ourselves.**
 
-Walt Disney
+Sir Edmund Hillary
