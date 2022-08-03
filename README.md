@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Tough times don't last. Tough people do.**
+**All our dreams can come true, if we have the courage to pursue them.**
 
-Robert H. Schuller
+Walt Disney
