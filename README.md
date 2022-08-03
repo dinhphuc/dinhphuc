@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not the mountain we conquer, but ourselves.**
+**Use your smile to change the world; don't let the world change your smile.**
 
-Sir Edmund Hillary
+Chinese proverb
