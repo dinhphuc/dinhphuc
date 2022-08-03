@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Laugh. It's free medicine you don't need insurance for.**
+**Always two there are, no more, no less. A master and an apprentice.**
 
-Anonymous
+Yoda
