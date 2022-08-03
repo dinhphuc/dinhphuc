@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The more grateful I am, the more beauty I see.**
+**Losers quit when they're tired. Winners quit when they've won.**
 
-Mary Davis
+Anonymous
