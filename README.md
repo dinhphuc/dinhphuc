@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Teachers open the door; you enter by yourself.**
+**Even the smallest shift in perspective can bring about the greatest healing.**
 
-Chinese Proverb
+Joshua Kai
