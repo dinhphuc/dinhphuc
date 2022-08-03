@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't give up on yourself. You're worth it.**
+**When written in Chinese the word "crisis" is composed of two characters - one represents danger and the other represents opportunity.**
 
-Anonymous
+John F. Kennedy
