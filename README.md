@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strive not to be a success, but rather to be of value.**
+**Life is not a problem to be solved, but a reality to be experienced.**
 
-Albert Einstein
+Soren Kierkegaard
