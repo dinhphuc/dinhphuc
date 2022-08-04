@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are two days in the year that we can not do anything, yesterday and tomorrow.**
+**The difference between ordinary and extraordinary is that little extra.**
 
-Mahatma Gandhi
+Jimmy Johnson
