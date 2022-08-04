@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If your dreams don't scare you, they aren't big enough.**
+**You deserve to be happy. You deserve to live a life you are excited about. Don't let others make you forget that.**
 
-Muhammad Ali
+Anonymous
