@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be so happy that when others look at you they become happy too.**
+**The best way to make your dreams come true is to wake up.**
 
-Anonymous
+Paul Valery
