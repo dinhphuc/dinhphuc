@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The trophy is earned in the hours that no one is watching.**
+**Happiness is an attitude. We either make ourselves miserable, or happy and strong. The amount of work is the same.**
 
-Anonymous
+Francesca Reigler
