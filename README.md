@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The sun itself is weak when it first rises, and gathers strength and courage as the day gets on.**
+**There's nothing that you can do that can't be done.**
 
-Charles Dickens
+The Beatles
