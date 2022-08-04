@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's a good day to be happy.**
+**When you love what you have, you have everything you need.**
 
 Anonymous
