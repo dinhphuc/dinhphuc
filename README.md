@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Not all those who wander are lost.**
+**Strive not to be a success, but rather to be of value.**
 
-J. R. R. Tolkien
+Albert Einstein
