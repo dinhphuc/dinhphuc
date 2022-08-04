@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The best way to make your dreams come true is to wake up.**
+**We either make ourselves miserable or we make ourselves strong. The amount of work is the same.**
 
-Paul Valery
+Carlos Costaneda
