@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is an attitude. We either make ourselves miserable, or happy and strong. The amount of work is the same.**
+**The sun itself is weak when it first rises, and gathers strength and courage as the day gets on.**
 
-Francesca Reigler
+Charles Dickens
