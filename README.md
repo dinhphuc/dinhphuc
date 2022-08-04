@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success isn't just about what you accomplish in life. It's about what you inspire others to do.**
+**Our greatest glory is not in never falling, but in rising every time we fall.**
 
-Anonymous
+Confucius
