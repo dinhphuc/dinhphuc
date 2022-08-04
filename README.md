@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest glory is not in never falling, but in rising every time we fall.**
+**If you feel like giving up, just look back on how far you are already.**
 
-Confucius
+Anonymous
