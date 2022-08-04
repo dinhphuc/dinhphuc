@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strive not to be a success, but rather to be of value.**
+**The trophy is earned in the hours that no one is watching.**
 
-Albert Einstein
+Anonymous
