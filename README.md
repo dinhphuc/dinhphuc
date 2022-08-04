@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Passion first and everything will fall into place.**
+**To be willing is only half the task.**
 
-Holly Holm
+Armenian Proverb
