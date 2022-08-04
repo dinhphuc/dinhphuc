@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To be willing is only half the task.**
+**If your dreams don't scare you, they aren't big enough.**
 
-Armenian Proverb
+Muhammad Ali
