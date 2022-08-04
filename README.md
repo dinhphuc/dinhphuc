@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is made of ever so many partings welded together.**
+**Go fast enough to get there, but slow enough to see.**
 
-Charles Dickens
+Jimmy Buffett
