@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you feel like giving up, just look back on how far you are already.**
+**To fall in love with yourself is the first secret to happiness.**
 
-Anonymous
+Robert Morley
