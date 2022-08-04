@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't manifest dreams without taking chances.**
+**Success isn't just about what you accomplish in life. It's about what you inspire others to do.**
 
-Stephen Richards
+Anonymous
