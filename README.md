@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you love what you have, you have everything you need.**
+**Passion first and everything will fall into place.**
 
-Anonymous
+Holly Holm
