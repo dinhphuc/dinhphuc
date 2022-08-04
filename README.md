@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We either make ourselves miserable or we make ourselves strong. The amount of work is the same.**
+**You can if you think you can.**
 
-Carlos Costaneda
+George Reeves
