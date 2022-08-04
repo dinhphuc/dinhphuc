@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can if you think you can.**
+**You don't manifest dreams without taking chances.**
 
-George Reeves
+Stephen Richards
