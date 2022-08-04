@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There's nothing that you can do that can't be done.**
+**There are two days in the year that we can not do anything, yesterday and tomorrow.**
 
-The Beatles
+Mahatma Gandhi
