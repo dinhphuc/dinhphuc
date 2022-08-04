@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If it is important to you, you will find a way. If not, you'll find an excuse.**
+**You deserve to be happy. You deserve to live a life you are excited about. Don't let others make you forget that.**
 
 Anonymous
