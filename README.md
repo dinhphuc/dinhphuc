@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good people are like candles; they burn themselves up to give others light.**
+**Not all those who wander are lost.**
 
-Anonymous
+J. R. R. Tolkien
