@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To fall in love with yourself is the first secret to happiness.**
+**It's a good day to be happy.**
 
-Robert Morley
+Anonymous
