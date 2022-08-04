@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between ordinary and extraordinary is that little extra.**
+**Be so happy that when others look at you they become happy too.**
 
-Jimmy Johnson
+Anonymous
