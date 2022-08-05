@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Go fast enough to get there, but slow enough to see.**
+**Instead of worrying about what you cannot control, shift your energy to what you can create.**
 
-Jimmy Buffett
+Roy T. Bennett
