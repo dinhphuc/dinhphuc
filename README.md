@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In the end, it's not the years in your life that count. It's the life in your years.**
+**Stop doubting yourself. Work hard and make it happen.**
 
-Abraham Lincoln
+Anonymous
