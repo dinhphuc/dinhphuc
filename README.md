@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are two things a person should never be angry at: what they can help, and what they cannot.**
+**A truly happy person is one who can enjoy the scenery when they have made a wrong turn.**
 
-Plato
+Anonymous
