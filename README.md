@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good, better, best. Never let it rest. Until your good is better and your better is best.**
+**Cry. Forgive. Learn. Move on. Let your tears water the seeds of your future happiness.**
 
-Tim Duncan
+Steve Maraboli
