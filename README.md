@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Change your thoughts and you change your world.**
+**Tough times don't last. Tough people do.**
 
-Norman Vincent Peale
+Robert H. Schuller
