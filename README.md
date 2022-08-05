@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I was angry that I had no shoes. Then I met a man who had no feet.**
+**Almost every successful person begins their journey with two core beliefs: the future can be better than the present, and I have the power to make it so.**
 
-Chinese Proverb
+Anonymous
