@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep your face always toward the sunshine - and shadows will fall behind you.**
+**All souls are lost until they are found.**
 
-Walt Whitman
+Kate McGahan
