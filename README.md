@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are willing to do more than you are paid to do, eventually you will be paid to do more than you do.**
+**If you're offered a seat on a rocket ship, don't ask what seat! Just get on.**
 
-Anonymous
+Sheryl Sandberg
