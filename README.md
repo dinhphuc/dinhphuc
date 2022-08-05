@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A problem is a chance for you to do your best.**
+**I was angry that I had no shoes. Then I met a man who had no feet.**
 
-Duke Ellington
+Chinese Proverb
