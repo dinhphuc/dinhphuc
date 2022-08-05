@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**People are just as happy as they make up their minds to be.**
+**Good, better, best. Never let it rest. Until your good is better and your better is best.**
 
-Abraham Lincoln
+Tim Duncan
