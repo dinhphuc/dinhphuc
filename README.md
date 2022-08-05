@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We either make ourselves miserable or we make ourselves strong. The amount of work is the same.**
+**If you are willing to do more than you are paid to do, eventually you will be paid to do more than you do.**
 
-Carlos Costaneda
+Anonymous
