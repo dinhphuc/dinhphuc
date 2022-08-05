@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Cry. Forgive. Learn. Move on. Let your tears water the seeds of your future happiness.**
+**Don't dream of winning, train for it!**
 
-Steve Maraboli
+Mo Farah
