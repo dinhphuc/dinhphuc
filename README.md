@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're offered a seat on a rocket ship, don't ask what seat! Just get on.**
+**Successful people are not gifted; they just work hard, then succeed on purpose.**
 
-Sheryl Sandberg
+G.K. Nielson
