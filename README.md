@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your hardest times often lead to the greatest moments of your life. Keep going. Tough situations build strong people in the end.**
+**There are two things a person should never be angry at: what they can help, and what they cannot.**
 
-Roy T. Bennett
+Plato
