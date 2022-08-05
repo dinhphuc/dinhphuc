@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Tough times don't last. Tough people do.**
+**A problem is a chance for you to do your best.**
 
-Robert H. Schuller
+Duke Ellington
