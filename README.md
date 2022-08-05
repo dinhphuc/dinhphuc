@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Stop doubting yourself. Work hard and make it happen.**
+**We either make ourselves miserable or we make ourselves strong. The amount of work is the same.**
 
-Anonymous
+Carlos Costaneda
