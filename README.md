@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Successful people are not gifted; they just work hard, then succeed on purpose.**
+**We know what we are, but know not what we may be.**
 
-G.K. Nielson
+William Shakespeare
