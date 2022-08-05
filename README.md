@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We can't be brave without fear.**
+**In the end, it's not the years in your life that count. It's the life in your years.**
 
-Muhammad Ali
+Abraham Lincoln
