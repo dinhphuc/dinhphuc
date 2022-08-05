@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All souls are lost until they are found.**
+**People are just as happy as they make up their minds to be.**
 
-Kate McGahan
+Abraham Lincoln
