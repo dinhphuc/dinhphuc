@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Appreciate the people who make you smile.**
+**Tough times don't last. Tough people do.**
 
-Anonymous
+Robert H. Schuller
