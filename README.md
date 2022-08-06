@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you do, be different. If you're different, you will stand out.**
+**Action is the foundational key to all success.**
 
-Anita Roddick
+Pablo Picasso
