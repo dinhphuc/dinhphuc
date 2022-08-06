@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your body is made to move so move it.**
+**Be you. Do you. For you.**
 
-Toni Sorenson
+Anonymous
