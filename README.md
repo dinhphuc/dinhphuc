@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No one controls how I feel about myself, but me.**
+**Difficult roads always lead to beautiful destinations.**
 
-Anonymous
+Zig Ziglar
