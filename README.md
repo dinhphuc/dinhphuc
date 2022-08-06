@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once we accept our limits, we go beyond them.**
+**Successful people build each other up. They inspire, motivate, and push each other. Unsuccessful people just hate, blame, and complain.**
 
-Albert Einstein
+Anonymous
