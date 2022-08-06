@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not about perfect. It's about effort.**
+**Success isn't just about what you accomplish in life. It's about what you inspire others to do.**
 
-Jillian Michaels
+Anonymous
