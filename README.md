@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success seems to be connected with action. Successful people keep moving. They make mistakes, but they don't quit.**
+**You may be disappointed if you fail, but you are doomed if you don't try.**
 
-Conrad Hilton
+Beverly Sills
