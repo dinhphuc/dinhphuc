@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The pessimist sees difficulty in every opportunity. The optimist sees opportunity in every difficulty.**
+**We are made to persist. That's how we find out who we are.**
 
-Winston Churchill
+Tobias Wolff
