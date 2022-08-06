@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once we accept our limits, we go beyond them.**
+**Courage is the birthplace of confidence.**
 
-Albert Einstein
+Debbie Millman
