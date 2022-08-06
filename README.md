@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you depersonalize abrasive behavior and see it as a call for help you become a catalyst for the best kind of change.**
+**For every minute you are angry you lose sixty seconds of happiness.**
 
-Marilyn Suttle
+Ralph Waldo Emerson
