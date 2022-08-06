@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success isn't just about what you accomplish in life. It's about what you inspire others to do.**
+**Once we accept our limits, we go beyond them.**
 
-Anonymous
+Albert Einstein
