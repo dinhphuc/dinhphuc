@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Rock bottom became the solid foundation on which I rebuilt my life.**
+**Your body is made to move so move it.**
 
-J.K. Rowling
+Toni Sorenson
