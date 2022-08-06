@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember that guy that gave up? Neither does anyone else.**
+**The question isn't who is going to let me; it's who is going to stop me.**
 
-Anonymous
+Ayn Rand
