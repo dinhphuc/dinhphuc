@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Courage is the birthplace of confidence.**
+**Stay strong. You never know who you are inspiring.**
 
-Debbie Millman
+Anonymous
