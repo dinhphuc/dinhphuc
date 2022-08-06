@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Float like a butterfly, sting like a bee.**
+**Nothing is more beautiful than the smile that has struggled through the tears.**
 
-Muhammad Ali
+Demi Lovato
