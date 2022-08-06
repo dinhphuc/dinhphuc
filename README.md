@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be you. Do you. For you.**
+**The pessimist sees difficulty in every opportunity. The optimist sees opportunity in every difficulty.**
 
-Anonymous
+Winston Churchill
