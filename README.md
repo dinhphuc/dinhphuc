@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We are made to persist. That's how we find out who we are.**
+**It's not about perfect. It's about effort.**
 
-Tobias Wolff
+Jillian Michaels
