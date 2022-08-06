@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep going. Everything you need will come to you at the perfect time.**
+**Float like a butterfly, sting like a bee.**
 
-Anonymous
+Muhammad Ali
