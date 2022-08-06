@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything you need to accomplish your goals is already in you.**
+**We are made to persist. That's how we find out who we are.**
 
-Anonymous
+Tobias Wolff
