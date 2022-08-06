@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are wonderfully made.**
+**Everything you need to accomplish your goals is already in you.**
 
 Anonymous
