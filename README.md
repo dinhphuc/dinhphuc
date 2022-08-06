@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Action is the foundational key to all success.**
+**I don't aspire to be like other driver. I aspire to be unique.**
 
-Pablo Picasso
+Lewis Hamilton
