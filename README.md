@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are the only one who can limit your greatness.**
+**Remember that guy that gave up? Neither does anyone else.**
 
 Anonymous
