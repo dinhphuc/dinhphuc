@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of getting ahead is getting started.**
+**We are made to persist. That's how we find out who we are.**
 
-Mark Twain
+Tobias Wolff
