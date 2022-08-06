@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**For every minute you are angry you lose sixty seconds of happiness.**
+**Whatever you do, be different. If you're different, you will stand out.**
 
-Ralph Waldo Emerson
+Anita Roddick
