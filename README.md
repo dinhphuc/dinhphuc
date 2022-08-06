@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You may be disappointed if you fail, but you are doomed if you don't try.**
+**No one controls how I feel about myself, but me.**
 
-Beverly Sills
+Anonymous
