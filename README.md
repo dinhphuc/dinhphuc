@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I don't aspire to be like other driver. I aspire to be unique.**
+**Once we accept our limits, we go beyond them.**
 
-Lewis Hamilton
+Albert Einstein
