@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We are made to persist. That's how we find out who we are.**
+**Words may inspire but only action creates change.**
 
-Tobias Wolff
+Simon Sinek
