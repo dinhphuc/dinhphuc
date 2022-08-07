@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Skill is only developed by hours and hours of work.**
+**Setting goals is the first step into turning the invisible into the visible.**
 
-Usain Bolt
+Tony Robbins
