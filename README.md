@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no cosmetic for beauty like happiness.**
+**Happiness resides not in possessions, and not in gold, happiness dwells in the soul.**
 
-Maria Mitchell
+Democritus
