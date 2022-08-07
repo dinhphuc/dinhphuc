@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be who you are and say what you feel because those who mind don't matter and those who matter don't mind.**
+**Your relationship with yourself sets the tone for every other relationship you have.**
 
-Dr. Seuss
+Anonymous
