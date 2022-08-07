@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Run when you can, walk if you have to, crawl if you must; just never give up.**
+**To know the road ahead, ask those coming back.**
 
-Dean Karnazes
+Chinese Proverb
