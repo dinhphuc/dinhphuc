@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Setting goals is the first step into turning the invisible into the visible.**
+**You've got to be willing to lose everything to gain yourself.**
 
-Tony Robbins
+Iyanla Vanzant
