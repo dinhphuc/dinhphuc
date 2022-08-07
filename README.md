@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't wish it were easier. Wish you were better.**
+**Skill is only developed by hours and hours of work.**
 
-Jim Rohn
+Usain Bolt
