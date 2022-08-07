@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember the entrance to the sanctuary is inside you.**
+**Run when you can, walk if you have to, crawl if you must; just never give up.**
 
-Rumi
+Dean Karnazes
