@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be the change you are trying to create.**
+**Hard work beats talent when talent doesn't work hard.**
 
-Mahatma Gandhi
+Tim Notke
