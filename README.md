@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hard work beats talent when talent doesn't work hard.**
+**Be humble in your confidence yet courageous in your character.**
 
-Tim Notke
+Melanie Koulouris
