@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The biggest adventure you can take is to live the life of your dreams.**
+**You can't use up creativity. The more you use, the more you have.**
 
-Oprah Winfrey
+Maya Angelou
