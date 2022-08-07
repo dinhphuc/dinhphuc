@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It feels good when you can put a smile on someone's face by simply being yourself.**
+**It's lack of faith that makes people afraid of meeting challenges, and I believed in myself.**
 
-Anonymous
+Muhammad Ali
