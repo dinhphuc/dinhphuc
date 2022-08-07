@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You've got to be willing to lose everything to gain yourself.**
+**Spend more of your time on what gives you energy and less of your time on what takes it away.**
 
-Iyanla Vanzant
+Anonymous
