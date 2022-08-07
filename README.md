@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Even the smallest shift in perspective can bring about the greatest healing.**
+**Strength does not come from physical capacity. It comes from an indomitable will.**
 
-Joshua Kai
+Mahatma Gandhi
