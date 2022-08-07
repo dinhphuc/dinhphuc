@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's lack of faith that makes people afraid of meeting challenges, and I believed in myself.**
+**Even the smallest shift in perspective can bring about the greatest healing.**
 
-Muhammad Ali
+Joshua Kai
