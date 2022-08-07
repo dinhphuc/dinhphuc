@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Beauty begins the moment you decide to be yourself.**
+**Remember the entrance to the sanctuary is inside you.**
 
-Coco Chanel
+Rumi
