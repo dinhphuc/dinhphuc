@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To know the road ahead, ask those coming back.**
+**It feels good when you can put a smile on someone's face by simply being yourself.**
 
-Chinese Proverb
+Anonymous
