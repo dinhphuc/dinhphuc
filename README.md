@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be humble in your confidence yet courageous in your character.**
+**Good friends are all that matter.**
 
-Melanie Koulouris
+Anonymous
