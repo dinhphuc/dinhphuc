@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no cosmetic for beauty like happiness.**
+**When you don't talk, there's a lot of stuff that ends up not getting said.**
 
-Maria Mitchell
+Catherine Gilbert Murdock
