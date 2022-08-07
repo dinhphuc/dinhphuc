@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your relationship with yourself sets the tone for every other relationship you have.**
+**Don't wish it were easier. Wish you were better.**
 
-Anonymous
+Jim Rohn
