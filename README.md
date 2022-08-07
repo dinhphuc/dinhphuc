@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever happens, just keep smiling and lose yourself in love.**
+**Be the change you are trying to create.**
 
-Rumi
+Mahatma Gandhi
