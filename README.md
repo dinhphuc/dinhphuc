@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Spend more of your time on what gives you energy and less of your time on what takes it away.**
+**The biggest adventure you can take is to live the life of your dreams.**
 
-Anonymous
+Oprah Winfrey
