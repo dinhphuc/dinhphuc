@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Look at this tree. I cannot make it blossom when it suits me, nor make it bear fruit before its time.**
+**Find a place inside where there's joy, and the joy will burn out the pain.**
 
-Master Oogway
+Joseph Campbell
