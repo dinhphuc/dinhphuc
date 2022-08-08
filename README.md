@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is either a daring adventure or nothing at all.**
+**If I have the belief that I can do it, I shall surely acquire the capacity to do it even if I may not have it at the beginning.**
 
-Helen Keller
+Gandhi
