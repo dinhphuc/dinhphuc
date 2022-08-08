@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Certain things catch your eye, but pursue only those that capture the heart.**
+**There are no secrets to success. It is the result of preparation, hard work, and learning from failure.**
 
-Ancient Indian Proverb
+Colin Powell
