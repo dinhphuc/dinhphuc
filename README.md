@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**And in the end, the love you take, is equal to the love you make.**
+**Life is either a daring adventure or nothing at all.**
 
-The Beatles
+Helen Keller
