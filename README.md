@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything you can imagine is real.**
+**It's lack of faith that makes people afraid of meeting challenges, and I believed in myself.**
 
-Pablo Picasso
+Muhammad Ali
