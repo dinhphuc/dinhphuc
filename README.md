@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You know that it's a fool who plays it cool by making his world a little colder.**
+**With virtue, you can't be completely poor; without it, you can't be truly rich.**
 
-The Beatles
+Chinese Proverb
