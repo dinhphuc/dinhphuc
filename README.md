@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You have to fight through some bad days to earn the best days of your life.**
+**Certain things catch your eye, but pursue only those that capture the heart.**
 
-Anonymous
+Ancient Indian Proverb
