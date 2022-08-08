@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good judgment comes from experience, and a lot of that comes from bad judgment.**
+**You know that it's a fool who plays it cool by making his world a little colder.**
 
-Will Rogers
+The Beatles
