@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**With virtue, you can't be completely poor; without it, you can't be truly rich.**
+**Believe and act as if it were impossible to fail.**
 
-Chinese Proverb
+Charles Kettering
