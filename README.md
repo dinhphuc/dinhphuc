@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**None of us is as smart as all of us.**
+**Don't just glov, dazzle.**
 
-Ken Blanchard
+Anonymous
