@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Earn your confidence, nurture it, then help to build it in others.**
+**None of us is as smart as all of us.**
 
-Alex Malley
+Ken Blanchard
