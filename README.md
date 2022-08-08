@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In the end, it's not the years in your life that count. It's the life in your years.**
+**The best preparation for tomorrow is doing your best today.**
 
-Abraham Lincoln
+H. Jackson Brown, Jr
