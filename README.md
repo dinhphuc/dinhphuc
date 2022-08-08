@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The best preparation for tomorrow is doing your best today.**
+**Good judgment comes from experience, and a lot of that comes from bad judgment.**
 
-H. Jackson Brown, Jr
+Will Rogers
