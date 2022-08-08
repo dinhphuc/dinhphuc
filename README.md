@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody can make you to feel inferior without your consent.**
+**And in the end, the love you take, is equal to the love you make.**
 
-Eleanor Roosevelt
+The Beatles
