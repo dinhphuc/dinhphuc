@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength does not come from physical capacity. It comes from an indomitable will.**
+**When you want to succeed as bad as you want to breathe, you will be successful.**
 
-Mahatma Gandhi
+Eric Thomas
