@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will face many defeats in life, but never let yourself be defeated.**
+**There may be people that have more talent than you, but theres no excuse for anyone to work harder than you.**
 
-Maya Angelou
+Derek Jeter
