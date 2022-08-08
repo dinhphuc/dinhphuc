@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Often it isn't the mountains ahead that wear you out, it's the little pebble in your shoe.**
+**Earn your confidence, nurture it, then help to build it in others.**
 
-Muhammad Ali
+Alex Malley
