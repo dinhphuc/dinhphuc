@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't just glov, dazzle.**
+**I was angry that I had no shoes. Then I met a man who had no feet.**
 
-Anonymous
+Chinese Proverb
