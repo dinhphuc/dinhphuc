@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If I have the belief that I can do it, I shall surely acquire the capacity to do it even if I may not have it at the beginning.**
+**You have to fight through some bad days to earn the best days of your life.**
 
-Gandhi
+Anonymous
