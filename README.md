@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will face many defeats in life, but never let yourself be defeated.**
+**Everything has beauty, but not everyone can see.**
 
-Maya Angelou
+Confucius
