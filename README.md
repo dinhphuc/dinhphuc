@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I was angry that I had no shoes. Then I met a man who had no feet.**
+**You will face many defeats in life, but never let yourself be defeated.**
 
-Chinese Proverb
+Maya Angelou
