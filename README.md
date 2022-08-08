@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's lack of faith that makes people afraid of meeting challenges, and I believed in myself.**
+**Earn your confidence, nurture it, then help to build it in others.**
 
-Muhammad Ali
+Alex Malley
