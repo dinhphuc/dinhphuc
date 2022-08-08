@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I hated every minute of training, but I said, 'Don't quit. Suffer now and live the rest of your life as a champion'.**
+**Nobody can make you to feel inferior without your consent.**
 
-Muhammad Ali
+Eleanor Roosevelt
