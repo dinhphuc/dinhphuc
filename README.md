@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything has beauty, but not everyone can see.**
+**Push yourself because no one else is going to do it for you.**
 
-Confucius
+Anonymous
