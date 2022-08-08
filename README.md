@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Skill is only developed by hours and hours of work.**
+**In the end, it's not the years in your life that count. It's the life in your years.**
 
-Usain Bolt
+Abraham Lincoln
