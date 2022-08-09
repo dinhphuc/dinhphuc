@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**My attitude is if you push me towards a weakness, I will turn that weakness into a strength.**
+**Train like a silver medalist, compete like a gold.**
 
-Michael Jordan
+Anonymous
