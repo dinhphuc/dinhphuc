@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't explain your philosophy. Embody it.**
+**The pain you feel today will be the strength you feel tomorrow.**
 
-Epictetus
+Anonymous
