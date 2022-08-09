@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing is more beautiful than the smile that has struggled through the tears.**
+**A warm smile is the universal language of kindness.**
 
-Demi Lovato
+William Arthur Ward
