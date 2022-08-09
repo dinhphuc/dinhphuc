@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The more you praise and celebrate your life, the more there is in life to celebrate.**
+**Whatever you are, be a good one.**
 
-Oprah Winfrey
+Abraham Lincoln
