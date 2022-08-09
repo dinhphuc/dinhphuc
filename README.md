@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The pain you feel today will be the strength you feel tomorrow.**
+**A positive attitude causes a chain reaction of positive thoughts, events, and outcomes. It is a catalyst, and it sparks extraordinary results.**
 
-Anonymous
+Wade Boggs
