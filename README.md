@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Gratitude turns what we have into enough.**
+**Nothing is more beautiful than the smile that has struggled through the tears.**
 
-Anonymous
+Demi Lovato
