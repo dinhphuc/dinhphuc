@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When it's pouring rain and you're bowling along through the wet, there's satisfaction in knowing you're out there and the others aren't.**
+**To fall in love with yourself is the first secret to happiness.**
 
-Peter Snell
+Robert Morley
