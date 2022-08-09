@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To fall in love with yourself is the first secret to happiness.**
+**The more you praise and celebrate your life, the more there is in life to celebrate.**
 
-Robert Morley
+Oprah Winfrey
