@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All you need is love.**
+**Gratitude turns what we have into enough.**
 
-The Beatles
+Anonymous
