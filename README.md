@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The sun itself is weak when it first rises, and gathers strength and courage as the day gets on.**
+**It never gets easier. You just get better.**
 
-Charles Dickens
+Jordan Hoechlin
