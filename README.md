@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A successful man is one who can lay a firm foundation with the bricks others have thrown at him.**
+**Maybe it won't work out. But maybe seeing if it does will be the best adventure ever.**
 
-David Brinkley
+Anonymous
