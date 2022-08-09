@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A positive attitude causes a chain reaction of positive thoughts, events, and outcomes. It is a catalyst, and it sparks extraordinary results.**
+**You will face many defeats in life, but never let yourself be defeated.**
 
-Wade Boggs
+Maya Angelou
