@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe and act as if it were impossible to fail.**
+**A successful man is one who can lay a firm foundation with the bricks others have thrown at him.**
 
-Charles Kettering
+David Brinkley
