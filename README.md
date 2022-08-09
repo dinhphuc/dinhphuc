@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will face many defeats in life, but never let yourself be defeated.**
+**Don't count the days, make the days count.**
 
-Maya Angelou
+Muhammad Ali
