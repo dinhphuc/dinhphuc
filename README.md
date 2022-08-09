@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you are, be a good one.**
+**Strength grows in the moments when you think you can't go on but you keep going anyway.**
 
-Abraham Lincoln
+Anonymous
