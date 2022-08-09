@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength grows in the moments when you think you can't go on but you keep going anyway.**
+**When you are enthusiastic about what you do, you feel this positive energy. It's very simple.**
 
-Anonymous
+Paulo Coelho
