@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Self-confidence is the most attractive quality a person can have. How can anyone see how great you are if you can't see it yourself?**
+**My attitude is if you push me towards a weakness, I will turn that weakness into a strength.**
 
-Anonymous
+Michael Jordan
