@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you are enthusiastic about what you do, you feel this positive energy. It's very simple.**
+**A secret to happiness is letting every situatiuon be what it is instead of what you think it should be.**
 
-Paulo Coelho
+Anonymous
