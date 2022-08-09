@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life only comes around once, so do whatever makes you happy, and be with whoever makes you smile.**
+**Practice 'gratitude' each day and your relationship will last forever.**
 
 Anonymous
