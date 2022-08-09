@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't have to control your thoughts; you just have to stop letting them control you.**
+**Life only comes around once, so do whatever makes you happy, and be with whoever makes you smile.**
 
-Dan Millman
+Anonymous
