@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Opportunities don't happen. You create them.**
+**The sun itself is weak when it first rises, and gathers strength and courage as the day gets on.**
 
-Chris Grosser
+Charles Dickens
