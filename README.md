@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It never gets easier. You just get better.**
+**You don't have to control your thoughts; you just have to stop letting them control you.**
 
-Jordan Hoechlin
+Dan Millman
