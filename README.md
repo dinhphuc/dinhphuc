@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always remember you are braver than you believe, stronger than you seem, and smarter than you think.**
+**How wonderful it is that nobody need wait a single moment before starting to improve the world.**
 
-Christopher Robin
+Anne Frank
