@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only thing worse than starting something and failing... is not starting something.**
+**Wherever you go, no matter what the weather, always bring your own sunshine.**
 
-Seth Godin
+Anthony J. D'Angelo
