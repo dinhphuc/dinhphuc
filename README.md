@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Train yourself to let go of everything you fear to lose.**
+**It's not bragging if you can back it up.**
 
-Yoda
+Muhammed Ali
