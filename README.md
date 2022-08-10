@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life works for my benefit.**
+**I'm not telling you it is going to be easy, I'm telling you it's going to be worth it.**
 
-Anonymous
+Art Williams
