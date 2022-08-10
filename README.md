@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence comes from discipline and training.**
+**Fall seven times, stand up eight.**
 
-Robert Kiyosaki
+Japanese Proverb
