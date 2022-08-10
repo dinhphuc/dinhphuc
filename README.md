@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You have purpose.**
+**With confidence you have won before you have started.**
 
-Anonymous
+Marcus Garvey
