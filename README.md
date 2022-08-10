@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Wherever you go, no matter what the weather, always bring your own sunshine.**
+**I am happy because I choose to be happy no matter what the situation is.**
 
-Anthony J. D'Angelo
+Anonymous
