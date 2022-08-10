@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I am happy because I choose to be happy no matter what the situation is.**
+**Winning isn't everything, but wanting to win is.**
 
-Anonymous
+Vince Lombardi
