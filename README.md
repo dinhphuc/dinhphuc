@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The vision of a champion is someone who is bent over, drenched in sweat, at the point of exhaustion when no one else is watching.**
+**Instead of feeding myself excuses why I can't, I give myself reasons why I can.**
 
-Jim Afremow
+Anonymous
