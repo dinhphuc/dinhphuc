@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I have learned over the years that when one's mind is made up, this diminishes fear.**
+**You can have everything you want in life if you just help enough people get what they want in life.**
 
-Rosa Parks
+Zig Ziglar
