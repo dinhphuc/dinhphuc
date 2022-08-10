@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**With confidence you have won before you have started.**
+**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
 
-Marcus Garvey
+Wayne Dyer
