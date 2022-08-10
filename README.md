@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Build your own dreams, or someone else will hire you to build theirs.**
+**Instead of feeding myself excuses why I can't, I give myself reasons why I can.**
 
-Farrah Gray
+Anonymous
