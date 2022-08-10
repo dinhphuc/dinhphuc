@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm not telling you it is going to be easy, I'm telling you it's going to be worth it.**
+**Start by doing what's necessary; then do what's possible; and suddenly you are doing the impossible.**
 
-Art Williams
+Francis of Assisi
