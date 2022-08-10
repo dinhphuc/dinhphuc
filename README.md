@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep your eyes on the stars, and your feet on the ground.**
+**Train yourself to let go of everything you fear to lose.**
 
-Theodore Roosevelt
+Yoda
