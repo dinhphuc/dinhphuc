@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We can't help everyone, but everyone can help someone.**
+**You don't want to look back and know you could have done better.**
 
-Ronald Reagan
+Anonymous
