@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Honesty is the first chapter in the book of wisdom.**
+**You walk through life much easier with a smile on your face.**
 
-Thomas Jefferson
+Sweet Paul
