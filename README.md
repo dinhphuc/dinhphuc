@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You walk through life much easier with a smile on your face.**
+**The only thing worse than starting something and failing... is not starting something.**
 
-Sweet Paul
+Seth Godin
