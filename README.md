@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**How wonderful it is that nobody need wait a single moment before starting to improve the world.**
+**You should never give up. No matter how hard the situation is, always believe that something beautiful is going to happen.**
 
-Anne Frank
+Anonymous
