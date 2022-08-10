@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I am in charge of how I feel and today I am choosing happiness.**
+**Honesty is the first chapter in the book of wisdom.**
 
-Anonymous
+Thomas Jefferson
