@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Start by doing what's necessary; then do what's possible; and suddenly you are doing the impossible.**
+**Always remember you are braver than you believe, stronger than you seem, and smarter than you think.**
 
-Francis of Assisi
+Christopher Robin
