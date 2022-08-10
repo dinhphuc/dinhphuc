@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
+**If opportunity doesn't knock, build a door.**
 
-Wayne Dyer
+Milton Berle
