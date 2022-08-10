@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If opportunity doesn't knock, build a door.**
+**I am in charge of how I feel and today I am choosing happiness.**
 
-Milton Berle
+Anonymous
