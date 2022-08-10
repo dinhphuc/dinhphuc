@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can have everything you want in life if you just help enough people get what they want in life.**
+**Build your own dreams, or someone else will hire you to build theirs.**
 
-Zig Ziglar
+Farrah Gray
