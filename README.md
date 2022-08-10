@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We all make mistakes, but the winner knows that success comes from perseverance: trying, failing, learning, and doing it again until he succeeds.**
+**Confidence comes from discipline and training.**
 
-Judy Ford
+Robert Kiyosaki
