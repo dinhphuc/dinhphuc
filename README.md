@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You should never give up. No matter how hard the situation is, always believe that something beautiful is going to happen.**
+**We can't help everyone, but everyone can help someone.**
 
-Anonymous
+Ronald Reagan
