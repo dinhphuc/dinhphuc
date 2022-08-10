@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The more you praise and celebrate your life, the more there is in life to celebrate.**
+**I have learned over the years that when one's mind is made up, this diminishes fear.**
 
-Oprah Winfrey
+Rosa Parks
