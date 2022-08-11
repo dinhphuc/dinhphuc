@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The start is what stops most people.**
+**The vision of a champion is someone who is bent over, drenched in sweat, at the point of exhaustion when no one else is watching.**
 
-Don Shula
+Jim Afremow
