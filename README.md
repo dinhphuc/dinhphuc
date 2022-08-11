@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not so much that I began to run, but that I continued.**
+**Forgiving yourself, believing in yourself and choosing to love yourself are the best gifts one could receive.**
 
-Hal Higdon
+Brittany Burgunder
