@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The question isn't who is going to let me; it's who is going to stop me.**
+**Working hard for something we don't care about is called stress; working hard for somthing we love is called passion.**
 
-Ayn Rand
+Simon Sinek
