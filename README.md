@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The hardest thing to find in life is happiness - money is only hard to find because it gets wasted trying to find happiness.**
+**If you don't fall, how are you going to know what getting up feels like?**
 
-Unknown
+Stephen Curry
