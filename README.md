@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Winning isn't everything, but wanting to win is.**
+**The comeback is always stronger than the setback.**
 
-Vince Lombardi
+Anonymous
