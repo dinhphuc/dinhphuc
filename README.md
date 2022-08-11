@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A champion is someone who gets up when they can't.**
+**It is far better to be alone, than to be in bad company.**
 
-Jack Dempsey
+George Washington
