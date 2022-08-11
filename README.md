@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Walk on with hope in your heart, and you'll never walk alone.**
+**The difference between ordinary and extraordinary is that little extra.**
 
-Shah Rukh Khan
+Jimmy Johnson
