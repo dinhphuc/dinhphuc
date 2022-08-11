@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To know the road ahead, ask those coming back.**
+**When you find your why, you find a way to make it happen.**
 
-Chinese Proverb
+Eric Thomas
