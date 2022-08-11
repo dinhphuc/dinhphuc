@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between ordinary and extraordinary is that little extra.**
+**Attitude is everything. New day, new strength, new thoughts.**
 
-Jimmy Johnson
+Anonymous
