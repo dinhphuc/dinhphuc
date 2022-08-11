@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't fall, how are you going to know what getting up feels like?**
+**You don't manifest dreams without taking chances.**
 
-Stephen Curry
+Stephen Richards
