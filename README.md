@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is far better to be alone, than to be in bad company.**
+**Live life to the fullest and focus on the positive.**
 
-George Washington
+Matt Cameron
