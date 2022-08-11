@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't cry because it's over, smile because it happened.**
+**To know the road ahead, ask those coming back.**
 
-Dr. Seuss
+Chinese Proverb
