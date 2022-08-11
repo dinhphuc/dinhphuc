@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Courage doesn't always roar, sometimes it's the quiet voice at the end of the day whispering 'I will try again tomorrow'.**
+**Often it isn't the mountains ahead that wear you out, it's the little pebble in your shoe.**
 
-Mary Anne Radmacher
+Muhammad Ali
