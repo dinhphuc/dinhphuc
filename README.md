@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Attitude is everything. New day, new strength, new thoughts.**
+**It's not who you are that holds you back, it's who you think you're not.**
 
 Anonymous
