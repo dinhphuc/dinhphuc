@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm stronger because I had to be, I'm smarter because of my mistakes, happier because of the sadness I've known, and now wiser because I learned.**
+**Walk on with hope in your heart, and you'll never walk alone.**
 
-Anonymous
+Shah Rukh Khan
