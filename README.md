@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When life puts you in tough situations, don't say "why me?" say "try me".**
+**Life works for my benefit.**
 
 Anonymous
