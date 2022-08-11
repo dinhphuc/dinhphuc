@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A truly happy person is one who can enjoy the scenery when they have made a wrong turn.**
+**I don't care how long it takes me, but I'm going somewhere beautiful.**
 
 Anonymous
