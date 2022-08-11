@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not who you are that holds you back, it's who you think you're not.**
+**If you want to change the world, start with yourself.**
 
-Anonymous
+Mahatma Gandhi
