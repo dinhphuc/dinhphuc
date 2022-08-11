@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you find your why, you find a way to make it happen.**
+**Before telling secrets on the road, look in the bushes.**
 
-Eric Thomas
+Chinese Proverb
