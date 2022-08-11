@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Forgiving yourself, believing in yourself and choosing to love yourself are the best gifts one could receive.**
+**When life puts you in tough situations, don't say "why me?" say "try me".**
 
-Brittany Burgunder
+Anonymous
