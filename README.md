@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not bragging if you can back it up.**
+**The start is what stops most people.**
 
-Muhammed Ali
+Don Shula
