@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Before telling secrets on the road, look in the bushes.**
+**If you can dream it, then you can achieve it.**
 
-Chinese Proverb
+Zig Ziglar
