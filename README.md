@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Often it isn't the mountains ahead that wear you out, it's the little pebble in your shoe.**
+**It's not so much that I began to run, but that I continued.**
 
-Muhammad Ali
+Hal Higdon
