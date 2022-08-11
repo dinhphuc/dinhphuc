@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to change the world, start with yourself.**
+**A truly happy person is one who can enjoy the scenery when they have made a wrong turn.**
 
-Mahatma Gandhi
+Anonymous
