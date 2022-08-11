@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life works for my benefit.**
+**A champion is someone who gets up when they can't.**
 
-Anonymous
+Jack Dempsey
