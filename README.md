@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The comeback is always stronger than the setback.**
+**The question isn't who is going to let me; it's who is going to stop me.**
 
-Anonymous
+Ayn Rand
