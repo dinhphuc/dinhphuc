@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't manifest dreams without taking chances.**
+**Don't cry because it's over, smile because it happened.**
 
-Stephen Richards
+Dr. Seuss
