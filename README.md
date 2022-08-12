@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you cannot do great things, do small things in a great way.**
+**Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.**
 
-Napoleon Hill
+Samuel Beckett
