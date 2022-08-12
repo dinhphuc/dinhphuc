@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't manifest dreams without taking chances.**
+**I attribute my success to this: I never gave or took any excuse.**
 
-Stephen Richards
+Florence Nightingale
