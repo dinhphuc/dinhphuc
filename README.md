@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be frightened by difficulties.**
+**I have found that if you love life, life will love you back.**
 
-Ryan Holiday
+Arthur Rubinstein
