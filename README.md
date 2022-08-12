@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Victory is always possible for the person who refuses to stop fighting.**
+**The purpose of our lives is to be happy.**
 
-Napoleon Hill
+Dalai Lama
