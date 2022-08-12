@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whenever you see a successful person, you only see the public glories, never the private sacrifices to reach them.**
+**Victory is always possible for the person who refuses to stop fighting.**
 
-Vaibhav Shah
+Napoleon Hill
