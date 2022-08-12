@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.**
+**Open your eyes and notice the beauty of this wonderful world.**
 
-Samuel Beckett
+Anonymous
