@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your problem isn't the problem, it's your attitude about the problem.**
+**Control, control, you must learn control!**
 
-Ann Brashares
+Yoda
