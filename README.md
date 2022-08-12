@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We can complain because rose bushes have thorns, or rejoice because thorns have roses.**
+**You're going to go through tough times - that's life. But I say, 'Nothing happens to you, it happens for you.' See the positive in negative events.**
 
-Alphonse Karr
+Joel Osteen
