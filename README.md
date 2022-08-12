@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not the strongest of the species that survive, nor the most intelligent, but the one most responsive to change.**
+**If you believe it will work out, you'll see opportunities. If you believe it won't, you will see obstacles.**
 
-Charles Darwin
+Wayne Dyer
