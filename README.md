@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Open your eyes and notice the beauty of this wonderful world.**
+**Strength does not come from physical capacity. It comes from an indomitable will.**
 
-Anonymous
+Mahatma Gandhi
