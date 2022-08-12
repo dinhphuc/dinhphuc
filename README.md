@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I attribute my success to this: I never gave or took any excuse.**
+**We can complain because rose bushes have thorns, or rejoice because thorns have roses.**
 
-Florence Nightingale
+Alphonse Karr
