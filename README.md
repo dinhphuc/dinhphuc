@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Education is the most powerful weapon which you can use to change the world.**
+**It does not matter how slowly you go as long as you do not stop.**
 
-Nelson Mandela
+Confucius
