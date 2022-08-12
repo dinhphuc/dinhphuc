@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everyone is breakable, but not everyone is aware that it's a choice to stay broken.**
+**If you believe it will work out, you'll see opportunities. If you believe it won't, you will see obstacles.**
 
-Stanley Behrman
+Wayne Dyer
