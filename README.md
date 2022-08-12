@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A difficult time can be more readily endured if we retain the conviction that our existence holds a purpose - a cause to pursue, a person to love, a goal to achieve.**
+**If you cannot do great things, do small things in a great way.**
 
-John Maxwell
+Napoleon Hill
