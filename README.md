@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The purpose of our lives is to be happy.**
+**No one is perfect - that's why pencils have erasers.**
 
-Dalai Lama
+Wolfgang Riebe
