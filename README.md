@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live life to the fullest and focus on the positive.**
+**Be a voice not an echo.**
 
-Matt Cameron
+Anonymous
