@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It does not matter how slowly you go as long as you do not stop.**
+**Be so good they can't ignore you.**
 
-Confucius
+Steve Martin
