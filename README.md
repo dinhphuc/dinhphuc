@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Go confidently in the direction of your dreams! Live the life you've imagined.**
+**Everyone is breakable, but not everyone is aware that it's a choice to stay broken.**
 
-Henry David Thoreau
+Stanley Behrman
