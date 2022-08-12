@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Control, control, you must learn control!**
+**Motivation is what gets you started. Habit is what keeps you going.**
 
-Yoda
+Jim Rohn
