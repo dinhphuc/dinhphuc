@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We can complain because rose bushes have thorns, or rejoice because thorns have roses.**
+**Happiness resides not in possessions, and not in gold, happiness dwells in the soul.**
 
-Alphonse Karr
+Democritus
