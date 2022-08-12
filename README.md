@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Obstacles don't have to stop you. If you run into a wall, don't turn around and give up. Figure out how to climb it, go through it, or work around it.**
+**Go confidently in the direction of your dreams! Live the life you've imagined.**
 
-Michael Jordan
+Henry David Thoreau
