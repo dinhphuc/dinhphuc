@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength does not come from physical capacity. It comes from an indomitable will.**
+**Control, control, you must learn control!**
 
-Mahatma Gandhi
+Yoda
