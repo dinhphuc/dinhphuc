@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is what comes after you stop making excuses.**
+**It's not whether you get knocked down. It's whether you get back up.**
 
-Luis Galarza
+Vince Lombardi
