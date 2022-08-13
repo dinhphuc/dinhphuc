@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When it rains look for rainbows.**
+**There is a difference between giving up and knowing when you've had enough.**
 
-Oscar Wilde
+Anonymous
