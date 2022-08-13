@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is only one corner of the universe you can be certain of improving, and that's your own self.**
+**When I hear somebody sigh, 'Life is hard,' I am always tempted to ask, 'Compared to what?'**
 
-Aldous Huxley
+Sydney Harris
