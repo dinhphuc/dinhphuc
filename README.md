@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no shame in not knowing; the shame lies in not finding out.**
+**If you can't find the opportunities you're looking for...create them.**
 
-Russian Proverb
+Anonymous
