@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When I hear somebody sigh, 'Life is hard,' I am always tempted to ask, 'Compared to what?'**
+**Hard times don't create heroes. It is during the hard times when the 'hero' within us is revealed.**
 
-Sydney Harris
+Bob Riley
