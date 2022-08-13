@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**And in the end, the love you take, is equal to the love you make.**
+**There is only one corner of the universe you can be certain of improving, and that's your own self.**
 
-The Beatles
+Aldous Huxley
