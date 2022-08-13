@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your life does not get better by chance, it gets better by change.**
+**The very best thing you can do for the whole world is to make the best of yourself.**
 
 Anonymous
