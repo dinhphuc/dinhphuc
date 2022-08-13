@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love cures people - both the ones who give it and the ones who receive it.**
+**Plenty of people miss their share of happiness, not because they never found it, but because they didn't stop to enjoy it.**
 
-Karl A. Menninger
+William Feather
