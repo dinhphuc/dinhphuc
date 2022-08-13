@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you want to succeed as bad as you want to breathe, you will be successful.**
+**There is only one corner of the universe you can be certain of improving, and that's your own self.**
 
-Eric Thomas
+Aldous Huxley
