@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hard times don't create heroes. It is during the hard times when the 'hero' within us is revealed.**
+**Success is what comes after you stop making excuses.**
 
-Bob Riley
+Luis Galarza
