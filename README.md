@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Fear is temporary. Regret is forever.**
+**There is no shame in not knowing; the shame lies in not finding out.**
 
-Anonymous
+Russian Proverb
