@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You're braver than you believe, and stronger than you seem, and smarter than you think.**
+**When it rains look for rainbows.**
 
-A.A. Mine
+Oscar Wilde
