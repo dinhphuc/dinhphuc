@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can't find the opportunities you're looking for...create them.**
+**If no mistake have you made, yet losing you are... a different game you should play.**
 
-Anonymous
+Yoda
