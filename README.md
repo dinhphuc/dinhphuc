@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not whether you get knocked down. It's whether you get back up.**
+**Spend more of your time on what gives you energy and less of your time on what takes it away.**
 
-Vince Lombardi
+Anonymous
