@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only a man who knows what it is like to be defeated can reach down to the bottom of his soul and come up with the extra ounce of power it takes to win when the match is even.**
+**And in the end, the love you take, is equal to the love you make.**
 
-Muhammad Ali
+The Beatles
