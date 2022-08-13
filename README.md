@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We must embrace pain and burn it as fuel for our journey.**
+**You're braver than you believe, and stronger than you seem, and smarter than you think.**
 
-Kenji Miyazawa
+A.A. Mine
