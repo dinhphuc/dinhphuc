@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Today you are you! That is truer than true! There is no one alive who is you-er than you!**
+**Only a man who knows what it is like to be defeated can reach down to the bottom of his soul and come up with the extra ounce of power it takes to win when the match is even.**
 
-Dr. Seuss
+Muhammad Ali
