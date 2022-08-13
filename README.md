@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You should never give up. No matter how hard the situation is, always believe that something beautiful is going to happen.**
+**Don't miss out on something that could be great just because it could also be difficult.**
 
 Anonymous
