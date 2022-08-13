@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Plenty of people miss their share of happiness, not because they never found it, but because they didn't stop to enjoy it.**
+**Life only comes around once, so do whatever makes you happy, and be with whoever makes you smile.**
 
-William Feather
+Anonymous
