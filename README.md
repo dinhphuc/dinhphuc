@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want light to come into your life, you need to stand where it is shining.**
+**You should never give up. No matter how hard the situation is, always believe that something beautiful is going to happen.**
 
-Guy Finley
+Anonymous
