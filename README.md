@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Spend more of your time on what gives you energy and less of your time on what takes it away.**
+**No act of kindness, no matter how small, is ever wasted.**
 
-Anonymous
+Aesop
