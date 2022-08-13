@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Surround yourself with people who get you.**
+**We must embrace pain and burn it as fuel for our journey.**
 
-Anonymous
+Kenji Miyazawa
