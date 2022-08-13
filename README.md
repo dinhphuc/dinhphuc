@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Motivation is what gets you started. Habit is what keeps you going.**
+**Love cures people - both the ones who give it and the ones who receive it.**
 
-Jim Rohn
+Karl A. Menninger
