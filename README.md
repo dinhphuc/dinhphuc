@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life becomes easier and more beautiful when we can see the good in other people.**
+**Do more of what lights you up and makes you feel alive. The world needs your spark.**
 
-Roy T. Bennett
+Anonymous
