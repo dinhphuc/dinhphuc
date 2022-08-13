@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You yourself, as much as anybody in the entire universe, deserve your love and affection.**
+**Easy choices, hard life. Hard choices, easy life.**
 
-Buddha
+Jerzy Gregorek
