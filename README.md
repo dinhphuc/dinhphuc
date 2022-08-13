@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is a difference between giving up and knowing when you've had enough.**
+**The future belongs to those who believe in the beauty of their dreams.**
 
-Anonymous
+Franklin D. Roosevelt
