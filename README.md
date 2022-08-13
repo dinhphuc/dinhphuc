@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No act of kindness, no matter how small, is ever wasted.**
+**If you want light to come into your life, you need to stand where it is shining.**
 
-Aesop
+Guy Finley
