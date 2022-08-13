@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Spend more of your time on what gives you energy and less of your time on what takes it away.**
+**Today you are you! That is truer than true! There is no one alive who is you-er than you!**
 
-Anonymous
+Dr. Seuss
