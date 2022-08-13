@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Learn to be thankful for what you already have, while you pursue all that you want.**
+**Fear is temporary. Regret is forever.**
 
-Jim Rohn
+Anonymous
