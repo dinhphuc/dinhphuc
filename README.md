@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Easy choices, hard life. Hard choices, easy life.**
+**Learn to be thankful for what you already have, while you pursue all that you want.**
 
-Jerzy Gregorek
+Jim Rohn
