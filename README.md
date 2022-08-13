@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The future belongs to those who believe in the beauty of their dreams.**
+**Do more of what lights you up and makes you feel alive. The world needs your spark.**
 
-Franklin D. Roosevelt
+Anonymous
