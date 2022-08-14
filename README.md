@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In the end, it's not the years in your life that count. It's the life in your years.**
+**You are never too old to set another goal or dream a new dream.**
 
-Abraham Lincoln
+Les Brown
