@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Spend more of your time on what gives you energy and less of your time on what takes it away.**
+**I don't care how long it takes me, but I'm going somewhere beautiful.**
 
 Anonymous
