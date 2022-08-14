@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To give anything less than your best is to sacrifice the gift.**
+**In the end, it's not the years in your life that count. It's the life in your years.**
 
-Steve Prefontaine
+Abraham Lincoln
