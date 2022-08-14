@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't worry about failure; you only have to be right once.**
+**Good judgment comes from experience, and a lot of that comes from bad judgment.**
 
-Drew Houston
+Will Rogers
