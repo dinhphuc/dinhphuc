@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The wise listens to her mind, the foolish to the mob.**
+**If you want your dinner, don't insult the cook.**
 
 Chinese Proverb
