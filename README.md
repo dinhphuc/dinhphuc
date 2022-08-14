@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be happy. It really annoys negative people.**
+**Spend more of your time on what gives you energy and less of your time on what takes it away.**
 
-Ricky Gervais
+Anonymous
