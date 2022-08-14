@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Float like a butterfly, sting like a bee. The hands can't hit what the eyes can't see.**
+**What you choose to focus on expands and grows.**
 
-Muhammad Ali
+Anonymous
