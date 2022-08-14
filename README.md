@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A fault confessed is half redressed.**
+**Don't worry about failure; you only have to be right once.**
 
-Zulu Proverb
+Drew Houston
