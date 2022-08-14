@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want your dinner, don't insult the cook.**
+**The secret of change is to focus all of your energy, not on fighting the old, but on building the new.**
 
-Chinese Proverb
+Socrates
