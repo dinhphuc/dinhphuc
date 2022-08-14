@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Find a place inside where there's joy, and the joy will burn out the pain.**
+**Float like a butterfly, sting like a bee. The hands can't hit what the eyes can't see.**
 
-Joseph Campbell
+Muhammad Ali
