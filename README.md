@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are never too old to set another goal or dream a new dream.**
+**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
 
-Les Brown
+Anonymous
