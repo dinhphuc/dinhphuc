@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What we achieve inwardly will change outer reality.**
+**Don't count the days, make the days count.**
 
-Plutarch
+Muhammad Ali
