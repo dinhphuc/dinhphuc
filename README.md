@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
+**Optimism is a happiness magnet. If you stay positive, good things and good people will be drawn to you.**
 
-Anonymous
+Mary Lou Retton
