@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot change the direction of the wind - only alter the angle of your sails.**
+**Mistakes are proof that you are trying.**
 
 Anonymous
