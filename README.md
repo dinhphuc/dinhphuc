@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Today you are you! That is truer than true! There is no one alive who is you-er than you!**
+**Relationships are based on four principles: respect, understanding, acceptance and appreciation.**
 
-Dr. Seuss
+Mahatma Gandhi
