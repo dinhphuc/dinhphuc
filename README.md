@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you choose to focus on expands and grows.**
+**I don't count my sit-ups; I only start counting when it starts hurting because they're the only ones that count.**
 
-Anonymous
+Muhammad Ali
