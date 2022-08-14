@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good judgment comes from experience, and a lot of that comes from bad judgment.**
+**Be happy. It really annoys negative people.**
 
-Will Rogers
+Ricky Gervais
