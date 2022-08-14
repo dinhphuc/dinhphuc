@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe and act as if it were impossible to fail.**
+**You cannot change the direction of the wind - only alter the angle of your sails.**
 
-Charles Kettering
+Anonymous
