@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Relationships are based on four principles: respect, understanding, acceptance and appreciation.**
+**Don't worry about failure; you only have to be right once.**
 
-Mahatma Gandhi
+Drew Houston
