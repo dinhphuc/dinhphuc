@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The comeback is always stronger than the setback.**
+**Appreciate the people who make you smile.**
 
 Anonymous
