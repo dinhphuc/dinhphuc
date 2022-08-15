@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The supreme art of war is to subdue the enemy without fighting.**
+**I compete only with myself, and I try to become a better human being. This is my goal.**
 
-Sun Tzu
+Sri Chinmoy
