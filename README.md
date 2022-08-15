@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything you need to accomplish your goals is already in you.**
+**You may say I'm a dreamer but I'm not the only one.**
 
-Anonymous
+John Lennon
