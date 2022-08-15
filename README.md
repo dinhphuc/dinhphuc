@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Two wrongs don't make a right.**
+**Smiling doesn't necessarily mean you're happy. Sometimes it just means you're strong.**
 
-English Proverb
+Anonymous
