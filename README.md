@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I compete only with myself, and I try to become a better human being. This is my goal.**
+**Change your thoughts and you change your world.**
 
-Sri Chinmoy
+Norman Vincent Peale
