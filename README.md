@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The best way to make your dreams come true is to wake up.**
+**The supreme art of war is to subdue the enemy without fighting.**
 
-Paul Valery
+Sun Tzu
