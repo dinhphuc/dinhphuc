@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Appreciate the people who make you smile.**
+**Go fast enough to get there, but slow enough to see.**
 
-Anonymous
+Jimmy Buffett
