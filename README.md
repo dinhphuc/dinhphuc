@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be humble in your confidence yet courageous in your character.**
+**The best way to make your dreams come true is to wake up.**
 
-Melanie Koulouris
+Paul Valery
