@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The people who make you smile from just seeing them, those are my favorite people.**
+**Everything you need to accomplish your goals is already in you.**
 
-Koi Fresco
+Anonymous
