@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Why worry? If you've done the very best you can, worrying won't make it any better.**
+**Whoever loves much, performs much, and can accomplish much, and what is done in love is done well.**
 
-Walt Disney
+Vincent van Gogh
