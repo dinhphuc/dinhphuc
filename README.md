@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Gratitude turns what we have into enough.**
+**The best way to make your dreams come true is to wake up.**
 
-Anonymous
+Paul Valery
