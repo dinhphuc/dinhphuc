@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Go fast enough to get there, but slow enough to see.**
+**If you want to find happiness, find gratitude.**
 
-Jimmy Buffett
+Steve Maraboli
