@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You may say I'm a dreamer but I'm not the only one.**
+**You miss 100% of the shots you don't take.**
 
-John Lennon
+Wayne Gretzky
