@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The starting point of all achievement is desire.**
+**If you're going through hell, keep going.**
 
-Napoleon Hill
+Winston Churchill
