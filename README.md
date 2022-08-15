@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're going through hell, keep going.**
+**Gratitude turns what we have into enough.**
 
-Winston Churchill
+Anonymous
