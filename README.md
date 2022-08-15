@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Change your thoughts and you change your world.**
+**The people who make you smile from just seeing them, those are my favorite people.**
 
-Norman Vincent Peale
+Koi Fresco
