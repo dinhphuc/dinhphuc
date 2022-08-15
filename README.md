@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**100% commitment is easier than 98% commitment.**
+**A positive attitude causes a chain reaction of positive thoughts, events, and outcomes. It is a catalyst, and it sparks extraordinary results.**
 
-Harvard Business School
+Wade Boggs
