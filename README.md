@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Leadership is not about being in charge. Leadership is about taking care of those in your charge.**
+**If you want to find happiness, find gratitude.**
 
-Simon Sinek
+Steve Maraboli
