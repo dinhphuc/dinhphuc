@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Courage is taking those first steps toward your dreams even if you can't see the path ahead.**
+**The starting point of all achievement is desire.**
 
-Anonymous
+Napoleon Hill
