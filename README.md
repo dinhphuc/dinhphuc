@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The starting point of all achievement is desire.**
+**I survived because the fire inside me burned brighter than the fire around me.**
 
-Napoleon Hill
+Joshua Graham
