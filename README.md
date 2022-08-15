@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Optimism is a happiness magnet. If you stay positive, good things and good people will be drawn to you.**
+**100% commitment is easier than 98% commitment.**
 
-Mary Lou Retton
+Harvard Business School
