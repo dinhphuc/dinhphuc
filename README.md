@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whoever loves much, performs much, and can accomplish much, and what is done in love is done well.**
+**Courage is taking those first steps toward your dreams even if you can't see the path ahead.**
 
-Vincent van Gogh
+Anonymous
