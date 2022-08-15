@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between ordinary and extraordinary is that little extra.**
+**Why worry? If you've done the very best you can, worrying won't make it any better.**
 
-Jimmy Johnson
+Walt Disney
