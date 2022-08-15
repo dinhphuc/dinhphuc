@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you decide to do, make sure it makes you happy.**
+**Why worry? If you've done the very best you can, worrying won't make it any better.**
 
-Anonymous
+Walt Disney
