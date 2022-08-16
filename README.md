@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When it rains look for rainbows.**
+**To be calm is the highest achievement of the self.**
 
-Oscar Wilde
+Zen Proverb
