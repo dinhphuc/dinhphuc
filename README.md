@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Control, control, you must learn control!**
+**Accept yourself, love yourself, and keep moving forward.**
 
-Yoda
+Roy T. Bennett
