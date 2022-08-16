@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success seems to be connected with action. Successful people keep moving. They make mistakes, but they don't quit.**
+**Beat the drum inside the house to spare the neighbors.**
 
-Conrad Hilton
+Chinese Proverb
