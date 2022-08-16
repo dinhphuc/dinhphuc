@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If opportunity doesn't knock, build a door.**
+**To be calm is the highest achievement of the self.**
 
-Milton Berle
+Zen Proverb
