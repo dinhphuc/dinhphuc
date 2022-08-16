@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A dream does not become reality through magic; it takes sweat, determination and hard work.**
+**Be gentle with yourself. You're doing the best you can.**
 
-Colin Powell
+Anonymous
