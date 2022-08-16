@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember that not getting what you want is sometimes a wonderful stroke of luck.**
+**It's better to light a candle than curse the darkness.**
 
-Dalai Lama
+Chinese Proverb
