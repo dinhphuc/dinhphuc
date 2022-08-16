@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The way to get started is to quit talking and begin doing.**
+**If you are not willing to risk the usual, you will have to settle for the ordinary.**
 
-Walt Disney
+Jim Rohn
