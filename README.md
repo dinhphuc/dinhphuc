@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be afraid to start over. It's a brand new opportunity to rebuild what you truly want.**
+**The way to get started is to quit talking and begin doing.**
 
-Anonymous
+Walt Disney
