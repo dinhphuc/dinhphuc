@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
+**Don't be afraid to start over. It's a brand new opportunity to rebuild what you truly want.**
 
-Wayne Dyer
+Anonymous
