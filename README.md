@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You may be disappointed if you fail, but you are doomed if you don't try.**
+**100% commitment is easier than 98% commitment.**
 
-Beverly Sills
+Harvard Business School
