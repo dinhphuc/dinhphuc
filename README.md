@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be gentle with yourself. You're doing the best you can.**
+**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
 
-Anonymous
+Wayne Dyer
