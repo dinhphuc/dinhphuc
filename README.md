@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If no mistake have you made, yet losing you are... a different game you should play.**
+**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
 
-Yoda
+Wayne Dyer
