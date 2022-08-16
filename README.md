@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Beat the drum inside the house to spare the neighbors.**
+**When it rains look for rainbows.**
 
-Chinese Proverb
+Oscar Wilde
