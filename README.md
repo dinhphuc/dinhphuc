@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to find happiness, find gratitude.**
+**The real opportunity for success lies within the person and not in the job.**
 
-Steve Maraboli
+Zig Ziglar
