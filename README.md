@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**100% commitment is easier than 98% commitment.**
+**If you want to find happiness, find gratitude.**
 
-Harvard Business School
+Steve Maraboli
