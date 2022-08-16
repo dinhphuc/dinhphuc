@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are not willing to risk the usual, you will have to settle for the ordinary.**
+**Happiness is not something you postpone for the future; it is something you design for the present.**
 
 Jim Rohn
