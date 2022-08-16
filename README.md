@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember that not getting what you want is sometimes a wonderful stroke of luck.**
+**Control, control, you must learn control!**
 
-Dalai Lama
+Yoda
