@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to find happiness, find gratitude.**
+**A dream does not become reality through magic; it takes sweat, determination and hard work.**
 
-Steve Maraboli
+Colin Powell
