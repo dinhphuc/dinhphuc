@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I am in charge of how I feel and today I am choosing happiness.**
+**Remember that not getting what you want is sometimes a wonderful stroke of luck.**
 
-Anonymous
+Dalai Lama
