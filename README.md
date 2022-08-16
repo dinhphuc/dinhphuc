@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All souls are lost until they are found.**
+**It's hard to beat a person who never gives up.**
 
-Kate McGahan
+Anonymous
