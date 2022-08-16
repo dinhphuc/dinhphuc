@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Shine like the whole universe is yours.**
+**All souls are lost until they are found.**
 
-Rumi
+Kate McGahan
