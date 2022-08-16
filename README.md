@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Staying positive does not mean that things will turn out okay. Rather it is knowing that you will be okay no matter how things turn out.**
+**There are no secrets to success. It is the result of preparation, hard work, and learning from failure.**
 
-Anonymous
+Colin Powell
