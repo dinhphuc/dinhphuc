@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The real opportunity for success lies within the person and not in the job.**
+**I am in charge of how I feel and today I am choosing happiness.**
 
-Zig Ziglar
+Anonymous
