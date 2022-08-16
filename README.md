@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Kindness is free. Sprinkle that stuff everywhere.**
+**Shine like the whole universe is yours.**
 
-Anonymous
+Rumi
