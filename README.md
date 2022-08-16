@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To be calm is the highest achievement of the self.**
+**Kindness is free. Sprinkle that stuff everywhere.**
 
-Zen Proverb
+Anonymous
