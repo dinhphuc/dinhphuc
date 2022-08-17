@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hard work beats talent when talent doesn't work hard.**
+**Risk more than others think is safe. Dream more than others think is practical.**
 
-Tim Notke
+Anonymous
