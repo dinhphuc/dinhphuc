@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Easy choices, hard life. Hard choices, easy life.**
+**I have not failed. I've just found 10,000 ways that won't work.**
 
-Jerzy Gregorek
+Thomas Edison
