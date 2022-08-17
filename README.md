@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The way to get started is to quit talking and begin doing.**
+**Don't waste a minute not being happy. If one door closes, run to the next window - or break down a door.**
 
-Walt Disney
+Brooke Shields
