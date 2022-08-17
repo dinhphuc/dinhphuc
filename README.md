@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Great works are performed, not by strength, but by perseverance.**
+**Tension is who you think you should be. Relaxation is who you are.**
 
-Samuel Johnson
+Jim Afremow
