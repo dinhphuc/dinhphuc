@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always find opportunities to make someone smile, and to offer random acts of kindness in everyday life.**
+**Great works are performed, not by strength, but by perseverance.**
 
-Roy T. Bennett
+Samuel Johnson
