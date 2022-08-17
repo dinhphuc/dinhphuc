@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Who begins too much accomplishes little.**
+**Nobody who ever gave their best regretted it.**
 
-German Proverb
+George Halas
