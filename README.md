@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody who ever gave their best regretted it.**
+**The very best thing you can do for the whole world is to make the best of yourself.**
 
-George Halas
+Anonymous
