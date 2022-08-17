@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When times are good, be grateful, and when times are tough, be graceful.**
+**Don't dream of winning, train for it!**
 
-Dustin Poirier
+Mo Farah
