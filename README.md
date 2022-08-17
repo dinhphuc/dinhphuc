@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Risk more than others think is safe. Dream more than others think is practical.**
+**Give up on being perfect and start working on becoming yourself.**
 
-Anonymous
+Anna Quindlen
