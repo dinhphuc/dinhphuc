@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is not a problem to be solved, but a reality to be experienced.**
+**Hard work beats talent when talent doesn't work hard.**
 
-Soren Kierkegaard
+Tim Notke
