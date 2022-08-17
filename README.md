@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Better than a thousand days of diligent study is one day with a great teacher.**
+**Shared joy is a double joy; shared sorrow is half a sorrow.**
 
-Jim Afremow
+Swedish Proverb
