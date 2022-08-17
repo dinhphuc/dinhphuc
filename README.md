@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Yesterday is history, tomorrow is a mystery, today is a gift of God, which is why we call it the present.**
+**Better than a thousand days of diligent study is one day with a great teacher.**
 
-Bill Keane
+Jim Afremow
