@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Give up on being perfect and start working on becoming yourself.**
+**There are two days in the year that we can not do anything, yesterday and tomorrow.**
 
-Anna Quindlen
+Mahatma Gandhi
