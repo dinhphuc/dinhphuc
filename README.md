@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are two days in the year that we can not do anything, yesterday and tomorrow.**
+**The way to get started is to quit talking and begin doing.**
 
-Mahatma Gandhi
+Walt Disney
