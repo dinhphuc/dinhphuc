@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot shake hands with a clenched fist.**
+**Hard work beats talent when talent doesn't work hard.**
 
-Indira Gandhi
+Tim Notke
