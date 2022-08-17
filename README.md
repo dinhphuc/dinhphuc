@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The very best thing you can do for the whole world is to make the best of yourself.**
+**You cannot shake hands with a clenched fist.**
 
-Anonymous
+Indira Gandhi
