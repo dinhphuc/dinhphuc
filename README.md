@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever happens, just keep smiling and lose yourself in love.**
+**If only we'd stop trying to be happy we could have a pretty good time.**
 
-Rumi
+Edith Wharton
