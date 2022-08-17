@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Many of life's failures are people who did not realize how close they were to success when they gave up.**
+**Life is not a problem to be solved, but a reality to be experienced.**
 
-Thomas A. Edison
+Soren Kierkegaard
