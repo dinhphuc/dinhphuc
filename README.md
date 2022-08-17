@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Positive anything is better than negative nothing.**
+**Always find opportunities to make someone smile, and to offer random acts of kindness in everyday life.**
 
-Elbert Hubbard
+Roy T. Bennett
