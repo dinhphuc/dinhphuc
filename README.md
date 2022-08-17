@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hard work beats talent when talent doesn't work hard.**
+**Always find opportunities to make someone smile, and to offer random acts of kindness in everyday life.**
 
-Tim Notke
+Roy T. Bennett
