@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't dream of winning, train for it!**
+**Easy choices, hard life. Hard choices, easy life.**
 
-Mo Farah
+Jerzy Gregorek
