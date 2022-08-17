@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Tension is who you think you should be. Relaxation is who you are.**
+**Be you. Do you. For you.**
 
-Jim Afremow
+Anonymous
