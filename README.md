@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I have not failed. I've just found 10,000 ways that won't work.**
+**Who begins too much accomplishes little.**
 
-Thomas Edison
+German Proverb
