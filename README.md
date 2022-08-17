@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Shared joy is a double joy; shared sorrow is half a sorrow.**
+**When times are good, be grateful, and when times are tough, be graceful.**
 
-Swedish Proverb
+Dustin Poirier
