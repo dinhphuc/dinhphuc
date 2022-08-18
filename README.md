@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be the change you are trying to create.**
+**So certain were you. Go back and closer you must look.**
 
-Mahatma Gandhi
+Yoda
