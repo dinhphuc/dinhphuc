@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The best way to gain self-confidence is to do what you are afraid to do.**
+**Be the change you are trying to create.**
 
-Swati Sharma
+Mahatma Gandhi
