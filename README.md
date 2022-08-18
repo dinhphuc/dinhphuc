@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to find happiness, find gratitude.**
+**It matters not what someone is born, but what they grow to be.**
 
-Steve Maraboli
+Master Oogway
