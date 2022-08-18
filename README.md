@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence comes not from always being right but from not fearing to be wrong.**
+**It ain't as bad as you think. It will look better in the morning.**
 
-Peter T. Mcintyre
+Colin Powell
