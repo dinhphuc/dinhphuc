@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You walk through life much easier with a smile on your face.**
+**So certain were you. Go back and closer you must look.**
 
-Sweet Paul
+Yoda
