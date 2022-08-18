@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It takes courage to grow up and become who you really are.**
+**Like the morning sun, you too shall rise and continue to shine.**
 
-E.E. Cummings
+Anonymous
