@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Like the morning sun, you too shall rise and continue to shine.**
+**You know that it's a fool who plays it cool by making his world a little colder.**
 
-Anonymous
+The Beatles
