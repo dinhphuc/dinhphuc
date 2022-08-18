@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The people who make you smile from just seeing them, those are my favorite people.**
+**The best way to gain self-confidence is to do what you are afraid to do.**
 
-Koi Fresco
+Swati Sharma
