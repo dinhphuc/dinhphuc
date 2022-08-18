@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be strong now, because things will get better. It might be stormy now, but it can't rain forever.**
+**The people who make you smile from just seeing them, those are my favorite people.**
 
-Anonymous
+Koi Fresco
