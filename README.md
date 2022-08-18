@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life without love is like a tree without blossoms or fruit.**
+**When a new day begins, dare to smile gratefully.**
 
-Khalil Gibran
+Steve Maraboli
