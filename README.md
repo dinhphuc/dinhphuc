@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**So certain were you. Go back and closer you must look.**
+**If you want to find happiness, find gratitude.**
 
-Yoda
+Steve Maraboli
