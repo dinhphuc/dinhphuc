@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It ain't as bad as you think. It will look better in the morning.**
+**Friends show their love in times of trouble, not in happiness.**
 
-Colin Powell
+Euripides
