@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Friends show their love in times of trouble, not in happiness.**
+**All you need is love.**
 
-Euripides
+The Beatles
