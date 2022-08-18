@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A person who never made a mistake never tried anything new.**
+**It is not in the stars to hold our destiny but in ourselves.**
 
-Albert Einstein
+William Shakespeare
