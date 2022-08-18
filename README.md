@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Sometimes the bravest thing you can do is to keep going when you really feel like giving up.**
+**Confidence comes not from always being right but from not fearing to be wrong.**
 
-Anonymous
+Peter T. Mcintyre
