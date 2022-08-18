@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every day may not be good... but there's something good in every day.**
+**It takes courage to grow up and become who you really are.**
 
-Alice Morse Earle
+E.E. Cummings
