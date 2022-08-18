@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It matters not what someone is born, but what they grow to be.**
+**No matter how tough it may get, never give up on yourself or you will look back and regret it.**
 
-Master Oogway
+Anonymous
