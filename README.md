@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Friends show their love in times of trouble, not in happiness.**
+**Life without love is like a tree without blossoms or fruit.**
 
-Euripides
+Khalil Gibran
