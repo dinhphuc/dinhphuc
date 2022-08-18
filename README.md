@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When obstacles arise, you change your direction to reach your goal, you do not change your decision to get there.**
+**Be strong now, because things will get better. It might be stormy now, but it can't rain forever.**
 
-Zig Ziglar
+Anonymous
