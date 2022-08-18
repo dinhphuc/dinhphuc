@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When a new day begins, dare to smile gratefully.**
+**Don't miss out on something that could be great just because it could also be difficult.**
 
-Steve Maraboli
+Anonymous
