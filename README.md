@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**So certain were you. Go back and closer you must look.**
+**Before you score, you first must have a goal.**
 
-Yoda
+Greek Proverb
