@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of being happy is accepting where you are in life and making the most out of everyday.**
+**When it gets difficult is often right before you succeed.**
 
-Anonymous
+Jeffrey Walker
