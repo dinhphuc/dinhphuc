@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.**
+**Nobody can make you to feel inferior without your consent.**
 
-Samuel Beckett
+Eleanor Roosevelt
