@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When it rains look for rainbows.**
+**Doubt kills more dreams than failure ever will.**
 
-Oscar Wilde
+Suzy Kassem
