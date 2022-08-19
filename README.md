@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you do, do with all your might.**
+**Laugh. It's free medicine you don't need insurance for.**
 
-Marcus Tullius Cicero
+Anonymous
