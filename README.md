@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I've never let anyone talk me into not believing in myself.**
+**Failure is simply the opportunity to begin again. Except this time more intelligently.**
 
-Muhammad Ali
+Henry Ford
