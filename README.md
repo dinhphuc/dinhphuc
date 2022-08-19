@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure is simply the opportunity to begin again. Except this time more intelligently.**
+**If you can't find the opportunities you're looking for...create them.**
 
-Henry Ford
+Anonymous
