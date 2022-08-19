@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It feels good when you can put a smile on someone's face by simply being yourself.**
+**Skill is only developed by hours and hours of work.**
 
-Anonymous
+Usain Bolt
