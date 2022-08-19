@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When it gets difficult is often right before you succeed.**
+**Love the life you live. Live the life you love.**
 
-Jeffrey Walker
+Bob Marley
