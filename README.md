@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love the life you live. Live the life you love.**
+**Whatever you do, do with all your might.**
 
-Bob Marley
+Marcus Tullius Cicero
