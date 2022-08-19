@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Courage doesn't always roar, sometimes it's the quiet voice at the end of the day whispering 'I will try again tomorrow'.**
+**Nobody can make you to feel inferior without your consent.**
 
-Mary Anne Radmacher
+Eleanor Roosevelt
