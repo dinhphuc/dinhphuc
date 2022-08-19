@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your hardest times often lead to the greatest moments of your life. Keep going. Tough situations build strong people in the end.**
+**Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.**
 
-Roy T. Bennett
+Samuel Beckett
