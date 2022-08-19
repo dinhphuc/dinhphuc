@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do all things with love.**
+**Nobody can make you to feel inferior without your consent.**
 
-Og Mandino
+Eleanor Roosevelt
