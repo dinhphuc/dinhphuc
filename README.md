@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can't find the opportunities you're looking for...create them.**
+**Do all things with love.**
 
-Anonymous
+Og Mandino
