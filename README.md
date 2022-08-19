@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody can make you to feel inferior without your consent.**
+**Your hardest times often lead to the greatest moments of your life. Keep going. Tough situations build strong people in the end.**
 
-Eleanor Roosevelt
+Roy T. Bennett
