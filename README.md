@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do all things with love.**
+**At first they'll ask you why you're doing it. Later they'll ask how you did it.**
 
-Og Mandino
+Anonymous
