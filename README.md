@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is far better to be alone, than to be in bad company.**
+**A truly rich man is one whose children run into his arms when his hands are empty.**
 
-George Washington
+Unknown
