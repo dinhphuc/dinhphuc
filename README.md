@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Skill is only developed by hours and hours of work.**
+**When it rains look for rainbows.**
 
-Usain Bolt
+Oscar Wilde
