@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You fail because you don't believe.**
+**I've never let anyone talk me into not believing in myself.**
 
-Yoda
+Muhammad Ali
