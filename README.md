@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't gain anything from stressing. Remember that.**
+**It feels good when you can put a smile on someone's face by simply being yourself.**
 
 Anonymous
