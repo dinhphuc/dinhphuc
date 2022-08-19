@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not in the stars to hold our destiny but in ourselves.**
+**In a battle between elephants, the ants get squashed.**
 
-William Shakespeare
+Thai Proverb
