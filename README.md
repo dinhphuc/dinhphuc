@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live life to the fullest and focus on the positive.**
+**I don't aspire to be like other driver. I aspire to be unique.**
 
-Matt Cameron
+Lewis Hamilton
