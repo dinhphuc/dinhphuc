@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness resides not in possessions, and not in gold, happiness dwells in the soul.**
+**Keep your face always toward the sunshine - and shadows will fall behind you.**
 
-Democritus
+Walt Whitman
