@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Take it all one day at a time and enjoy the journey.**
+**Some people dream of success... while others wake up and work hard at it.**
 
-Kristi Bartlett
+Anonymous
