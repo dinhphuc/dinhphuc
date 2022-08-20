@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't give up on yourself. You're worth it.**
+**Every next level of your life will demand a different version of you.**
 
 Anonymous
