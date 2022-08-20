@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't try to be perfect. Just try to be better than you were yesterday.**
+**There are no mistakes, only lessons. Growth is a process of trial and error.**
 
 Anonymous
