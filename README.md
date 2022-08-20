@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Champions keep playing until they get it right.**
+**Find a place inside where there's joy, and the joy will burn out the pain.**
 
-Billie Jean King
+Joseph Campbell
