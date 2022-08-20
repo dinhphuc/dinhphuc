@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Some people dream of success... while others wake up and work hard at it.**
+**The goal is not to be perfect by the end. The goal is to be better today.**
 
-Anonymous
+Simon Sinek
