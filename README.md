@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are no mistakes, only lessons. Growth is a process of trial and error.**
+**The greatest victory in life is to rise above the material things that we once valued most.**
 
-Anonymous
+Muhammad Ali
