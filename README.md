@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep going. Everything you need will come to you at the perfect time.**
+**Whatever you do, do with all your might.**
 
-Anonymous
+Marcus Tullius Cicero
