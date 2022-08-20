@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't give up on yourself. You're worth it.**
+**The people who make you smile from just seeing them, those are my favorite people.**
 
-Anonymous
+Koi Fresco
