@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The people who make you smile from just seeing them, those are my favorite people.**
+**Champions keep playing until they get it right.**
 
-Koi Fresco
+Billie Jean King
