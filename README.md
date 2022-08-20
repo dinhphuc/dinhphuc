@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Between stimulus and response, there is a space. In that space is our power to choose our response.**
+**Happiness resides not in possessions, and not in gold, happiness dwells in the soul.**
 
-Viktor Frankl
+Democritus
