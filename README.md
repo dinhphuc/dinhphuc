@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The harder the battle. The sweeter the victory.**
+**Whatever can happen at any time can happen today.**
 
-Les Brown
+Seneca
