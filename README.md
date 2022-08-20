@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Positive thinking will let you do everything better than negative thinking will.**
+**Keep going. Everything you need will come to you at the perfect time.**
 
-Zig Ziglar
+Anonymous
