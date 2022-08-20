@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe and act as if it were impossible to fail.**
+**Winning is fun, but those moments that you can touch someone's life in a very positive way are better.**
 
-Charles Kettering
+Tim Howard
