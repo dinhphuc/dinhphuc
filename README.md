@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Spread love everywhere you go. Let no one ever come to you without leaving happier.**
+**Don't give up on yourself. You're worth it.**
 
-Mother Teresa
+Anonymous
