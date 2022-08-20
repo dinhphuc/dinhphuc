@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never underestimate the power you have to take your life in a new direction.**
+**Positive thinking will let you do everything better than negative thinking will.**
 
-Germany Kent
+Zig Ziglar
