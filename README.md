@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you do, do with all your might.**
+**The greatest glory in living lies not in never falling, but in rising every time we fall.**
 
-Marcus Tullius Cicero
+Nelson Mandela
