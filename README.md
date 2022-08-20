@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I don't aspire to be like other driver. I aspire to be unique.**
+**The harder the battle. The sweeter the victory.**
 
-Lewis Hamilton
+Les Brown
