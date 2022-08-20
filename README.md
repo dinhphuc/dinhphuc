@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm stronger because I had to be, I'm smarter because of my mistakes, happier because of the sadness I've known, and now wiser because I learned.**
+**Spread love everywhere you go. Let no one ever come to you without leaving happier.**
 
-Anonymous
+Mother Teresa
