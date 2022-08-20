@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A truly rich man is one whose children run into his arms when his hands are empty.**
+**Don't cry because it's over, smile because it happened.**
 
-Unknown
+Dr. Seuss
