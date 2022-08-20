@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The goal is not to be perfect by the end. The goal is to be better today.**
+**A gentle word, a kind look, a good-natured smile can work wonders and accomplish miracles.**
 
-Simon Sinek
+William Hazlitt
