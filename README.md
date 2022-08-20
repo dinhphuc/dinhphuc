@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest victory in life is to rise above the material things that we once valued most.**
+**Never give up, stay focused, stay positive, stay strong.**
 
-Muhammad Ali
+Anonymous
