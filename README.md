@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Champions keep playing until they get it right.**
+**You know that it's a fool who plays it cool by making his world a little colder.**
 
-Billie Jean King
+The Beatles
