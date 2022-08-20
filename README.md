@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up, stay focused, stay positive, stay strong.**
+**Between stimulus and response, there is a space. In that space is our power to choose our response.**
 
-Anonymous
+Viktor Frankl
