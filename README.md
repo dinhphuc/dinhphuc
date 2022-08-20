@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't cry because it's over, smile because it happened.**
+**Take it all one day at a time and enjoy the journey.**
 
-Dr. Seuss
+Kristi Bartlett
