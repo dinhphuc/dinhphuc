@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Winning is fun, but those moments that you can touch someone's life in a very positive way are better.**
+**Don't try to be perfect. Just try to be better than you were yesterday.**
 
-Tim Howard
+Anonymous
