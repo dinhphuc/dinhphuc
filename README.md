@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep going. Everything you need will come to you at the perfect time.**
+**Nurture your mind with great thoughts, for you will never go any higher than you think.**
 
-Anonymous
+Benjamin Disraeli
