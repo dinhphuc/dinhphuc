@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nurture your mind with great thoughts, for you will never go any higher than you think.**
+**Results happen over time, not overnight. Work hard, stay consistent, and be patient.**
 
-Benjamin Disraeli
+Anonymous
