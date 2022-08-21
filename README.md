@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep your face always toward the sunshine - and shadows will fall behind you.**
+**It is not in the stars to hold our destiny but in ourselves.**
 
-Walt Whitman
+William Shakespeare
