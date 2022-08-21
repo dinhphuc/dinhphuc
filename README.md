@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep going. Everything you need will come to you at the perfect time.**
+**And in the end, the love you take, is equal to the love you make.**
 
-Anonymous
+The Beatles
