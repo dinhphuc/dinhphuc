@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Learn to value yourself, which means: fight for your happiness.**
+**A teacher is better than two books.**
 
-Ayn Rand
+German Proverb
