@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If we feel inwardly strong, we will have no need or desire to speak ill of others.**
+**Always remember you are braver than you believe, stronger than you seem, and smarter than you think.**
 
-Sri Chinmoy
+Christopher Robin
