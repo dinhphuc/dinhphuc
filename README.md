@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Not all those who wander are lost.**
+**The critics only made me work harder.**
 
-J. R. R. Tolkien
+Muhammad Ali
