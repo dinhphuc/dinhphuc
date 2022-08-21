@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be afraid of your fears. They're not there to scare you. They're there to let you know that something is worth it.**
+**Your body is made to move so move it.**
 
-C. JoyBell C
+Toni Sorenson
