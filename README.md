@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A team is not a group of people that work together. A team is a group of people that trust each other.**
+**The will to win means nothing without the will to prepare.**
 
-Simon Sinek
+Juma Ikangaa
