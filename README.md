@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Friends show their love in times of trouble, not in happiness.**
+**A team is not a group of people that work together. A team is a group of people that trust each other.**
 
-Euripides
+Simon Sinek
