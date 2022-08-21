@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't go up to the top, you grow up to the top.**
+**Do not blame the world. Find a solution.**
 
-John C. Maxwell
+Sri Chinmoy
