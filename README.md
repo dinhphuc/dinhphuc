@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your body is made to move so move it.**
+**We can't help everyone, but everyone can help someone.**
 
-Toni Sorenson
+Ronald Reagan
