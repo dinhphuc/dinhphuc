@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always remember you are braver than you believe, stronger than you seem, and smarter than you think.**
+**Beauty lies in the eye of the beholder.**
 
-Christopher Robin
+English Proverb
