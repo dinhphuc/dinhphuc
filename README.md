@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The trick is to enjoy life. Don't wish away your days, waiting for better ones ahead.**
+**You don't go up to the top, you grow up to the top.**
 
-Marjorie Pay Hinckley
+John C. Maxwell
