@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The will to win means nothing without the will to prepare.**
+**Keep going. Everything you need will come to you at the perfect time.**
 
-Juma Ikangaa
+Anonymous
