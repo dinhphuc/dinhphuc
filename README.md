@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Victory is always possible for the person who refuses to stop fighting.**
+**If we feel inwardly strong, we will have no need or desire to speak ill of others.**
 
-Napoleon Hill
+Sri Chinmoy
