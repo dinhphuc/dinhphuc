@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A beautiful thing is never perfect.**
+**Victory is always possible for the person who refuses to stop fighting.**
 
-Egyptian Proverb
+Napoleon Hill
