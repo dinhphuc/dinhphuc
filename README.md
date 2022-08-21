@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Great works are performed, not by strength, but by perseverance.**
+**If we feel inwardly strong, we will have no need or desire to speak ill of others.**
 
-Samuel Johnson
+Sri Chinmoy
