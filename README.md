@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not in the stars to hold our destiny but in ourselves.**
+**Change your thoughts and you change your world.**
 
-William Shakespeare
+Norman Vincent Peale
