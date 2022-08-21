@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Change your thoughts and you change your world.**
+**Learn to value yourself, which means: fight for your happiness.**
 
-Norman Vincent Peale
+Ayn Rand
