@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Beauty lies in the eye of the beholder.**
+**It does not matter how slowly you go as long as you do not stop.**
 
-English Proverb
+Confucius
