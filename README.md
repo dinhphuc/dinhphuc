@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do not blame the world. Find a solution.**
+**Friends show their love in times of trouble, not in happiness.**
 
-Sri Chinmoy
+Euripides
