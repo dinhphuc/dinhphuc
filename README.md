@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We can't help everyone, but everyone can help someone.**
+**The trick is to enjoy life. Don't wish away your days, waiting for better ones ahead.**
 
-Ronald Reagan
+Marjorie Pay Hinckley
