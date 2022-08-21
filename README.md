@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It does not matter how slowly you go as long as you do not stop.**
+**Results happen over time, not overnight. Work hard, stay consistent, and be patient.**
 
-Confucius
+Anonymous
