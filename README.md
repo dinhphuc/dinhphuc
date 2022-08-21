@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Winning doesn't always mean being first. Winning means you're doing better than you've done before.**
+**With virtue, you can't be completely poor; without it, you can't be truly rich.**
 
-Bonnie Blair
+Chinese Proverb
