@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A beautiful thing is never perfect.**
+**With virtue, you can't be completely poor; without it, you can't be truly rich.**
 
-Egyptian Proverb
+Chinese Proverb
