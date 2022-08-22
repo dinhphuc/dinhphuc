@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is a succession of lessons which must be lived to be understood.**
+**Practice 'gratitude' each day and your relationship will last forever.**
 
-Ralph Waldo Emerson
+Anonymous
