@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You were born to win. But to be a winner, you must plan to win, prepare to win, and expect to win.**
+**When life puts you in tough situations, don't say "why me?" say "try me".**
 
-Zig Ziglar
+Anonymous
