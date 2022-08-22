@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I am in charge of how I feel and today I am choosing happiness.**
+**Beat the drum inside the house to spare the neighbors.**
 
-Anonymous
+Chinese Proverb
