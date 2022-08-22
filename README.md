@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your body is made to move so move it.**
+**Risk more than others think is safe. Dream more than others think is practical.**
 
-Toni Sorenson
+Anonymous
