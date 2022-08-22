@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Practice 'gratitude' each day and your relationship will last forever.**
+**Don't get discouraged by what you're going through. Your time is coming. Where you are is not where you're going to stay.**
 
 Anonymous
