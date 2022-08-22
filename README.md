@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Risk more than others think is safe. Dream more than others think is practical.**
+**You have to be at your strongest when you're feeling at your weakest.**
 
 Anonymous
