@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are not willing to risk the usual, you will have to settle for the ordinary.**
+**I didn't fail the test. I just found 100 ways to do it wrong.**
 
-Jim Rohn
+Benjamin Franklin
