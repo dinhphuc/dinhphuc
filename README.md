@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Not all those who wander are lost.**
+**When you have exhausted all possibilities, remember this: you haven't.**
 
-J. R. R. Tolkien
+Thomas Edison
