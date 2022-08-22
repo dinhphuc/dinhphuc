@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life becomes easier and more beautiful when we can see the good in other people.**
+**As I look back on my life, I realize that every time I thought I was being rejected from something good, I was actually being re-directed to something better.**
 
-Roy T. Bennett
+Anonymous
