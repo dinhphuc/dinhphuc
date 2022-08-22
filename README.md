@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you have exhausted all possibilities, remember this: you haven't.**
+**You were born to win. But to be a winner, you must plan to win, prepare to win, and expect to win.**
 
-Thomas Edison
+Zig Ziglar
