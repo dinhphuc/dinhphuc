@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I alone cannot change the world, but I can cast a stone across the water to create many ripples.**
+**Wanting to be someone else is a waste of the person you are.**
 
-Mother Teresa
+Marilyn Monroe
