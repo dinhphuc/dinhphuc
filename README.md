@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Beat the drum inside the house to spare the neighbors.**
+**Through challenge and difficulty, we learn to see life differently than before.**
 
-Chinese Proverb
+Auliq-Ice
