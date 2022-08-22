@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whoever is happy will make others happy too.**
+**Life is a succession of lessons which must be lived to be understood.**
 
-Anonymous
+Ralph Waldo Emerson
