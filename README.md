@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When life puts you in tough situations, don't say "why me?" say "try me".**
+**If you are not willing to risk the usual, you will have to settle for the ordinary.**
 
-Anonymous
+Jim Rohn
