@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What keeps me going is goals.**
+**Your body is made to move so move it.**
 
-Muhammad Ali
+Toni Sorenson
