@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Courage is taking those first steps toward your dreams even if you can't see the path ahead.**
+**Only in the darkness can you see the stars.**
 
-Anonymous
+Martin Luther King, Jr.
