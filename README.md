@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The people who make you smile from just seeing them, those are my favorite people.**
+**If you get tired, learn to rest, not quit.**
 
-Koi Fresco
+Anonymous
