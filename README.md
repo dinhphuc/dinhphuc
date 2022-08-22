@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Wanting to be someone else is a waste of the person you are.**
+**Courage is taking those first steps toward your dreams even if you can't see the path ahead.**
 
-Marilyn Monroe
+Anonymous
