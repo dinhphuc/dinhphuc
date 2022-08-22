@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will be exactly as happy as you decide to be.**
+**The people who make you smile from just seeing them, those are my favorite people.**
 
-Anonymous
+Koi Fresco
