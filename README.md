@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Just one smile, immensely increases the beauty, of the universe.**
+**Life becomes easier and more beautiful when we can see the good in other people.**
 
-Sri Chinmoy
+Roy T. Bennett
