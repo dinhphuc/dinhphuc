@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The biggest adventure you can take is to live the life of your dreams.**
+**What keeps me going is goals.**
 
-Oprah Winfrey
+Muhammad Ali
