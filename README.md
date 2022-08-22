@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You have to be at your strongest when you're feeling at your weakest.**
+**You will be exactly as happy as you decide to be.**
 
 Anonymous
