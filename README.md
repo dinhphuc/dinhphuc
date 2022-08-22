@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you get tired, learn to rest, not quit.**
+**Just one smile, immensely increases the beauty, of the universe.**
 
-Anonymous
+Sri Chinmoy
