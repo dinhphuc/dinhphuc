@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only a life lived for others is a life worthwhile.**
+**I am in charge of how I feel and today I am choosing happiness.**
 
-Albert Einstein
+Anonymous
