@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Attachment leads to jealously. The shadow of greed, that is.**
+**The purpose of our lives is to be happy.**
 
-Yoda
+Dalai Lama
