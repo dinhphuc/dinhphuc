@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is not something you postpone for the future; it is something you design for the present.**
+**No man can paddle two canoes at the same time.**
 
-Jim Rohn
+Bantu Proverb
