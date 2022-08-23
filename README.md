@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The sun itself is weak when it first rises, and gathers strength and courage as the day gets on.**
+**Try to be a rainbow in someone's cloud.**
 
-Charles Dickens
+Maya Angelou
