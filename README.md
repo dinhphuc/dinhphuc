@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are never too old to set another goal or dream a new dream.**
+**Tough times don't last. Tough people do.**
 
-Les Brown
+Robert H. Schuller
