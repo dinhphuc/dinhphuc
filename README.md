@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're presenting yourself with confidence, you can pull off pretty much anything.**
+**If you stumble, make it part of the dance.**
 
-Katy Perry
+Anonymous
