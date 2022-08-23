@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Why worry? If you've done the very best you can, worrying won't make it any better.**
+**Everytime you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**
 
-Walt Disney
+Mother Teresa
