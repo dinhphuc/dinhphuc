@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Try to be a rainbow in someone's cloud.**
+**Only those who dare to fail greatly can ever achieve greatly.**
 
-Maya Angelou
+Robert F. Kennedy
