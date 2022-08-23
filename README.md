@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Focus on being productive instead of busy.**
+**No matter how much it hurts, hold your head up and keep going.**
 
-Tim Ferris
+Anonymous
