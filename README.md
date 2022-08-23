@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Tough times don't last. Tough people do.**
+**Why worry? If you've done the very best you can, worrying won't make it any better.**
 
-Robert H. Schuller
+Walt Disney
