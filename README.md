@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When obstacles arise, you change your direction to reach your goal, you do not change your decision to get there.**
+**Great minds discuss ideas; average minds discuss events; small minds discuss people.**
 
-Zig Ziglar
+Eleanor Roosevelt
