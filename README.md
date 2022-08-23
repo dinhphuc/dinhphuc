@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Luck is what happens when preparation meets opportunity.**
+**The sun itself is weak when it first rises, and gathers strength and courage as the day gets on.**
 
-Seneca
+Charles Dickens
