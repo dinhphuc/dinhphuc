@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Difficult roads always lead to beautiful destinations.**
+**Whatever you are, be a good one.**
 
-Zig Ziglar
+Abraham Lincoln
