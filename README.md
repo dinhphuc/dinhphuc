@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you stumble, make it part of the dance.**
+**You came into the world to do something; So... do something!**
 
-Anonymous
+Johnnie Dent Jr
