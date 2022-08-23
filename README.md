@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No man can paddle two canoes at the same time.**
+**He who sweats more in training bleeds less in war.**
 
-Bantu Proverb
+Greek Proverb
