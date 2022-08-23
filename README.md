@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Better than a thousand days of diligent study is one day with a great teacher.**
+**Focus on being productive instead of busy.**
 
-Jim Afremow
+Tim Ferris
