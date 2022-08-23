@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing builds self-esteem and self-confidence like accomplishment.**
+**Attachment leads to jealously. The shadow of greed, that is.**
 
-Thomas Carlyle
+Yoda
