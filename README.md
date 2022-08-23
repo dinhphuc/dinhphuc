@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What we achieve inwardly will change outer reality.**
+**Surround yourself with only people who are going to lift you higher.**
 
-Plutarch
+Oprah
