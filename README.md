@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Great minds discuss ideas; average minds discuss events; small minds discuss people.**
+**If one dream should fall and break into a thousand pieces, never be afraid to pick one of those pieces up and begin again.**
 
-Eleanor Roosevelt
+Flavia Weedn
