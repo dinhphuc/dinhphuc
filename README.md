@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how much it hurts, hold your head up and keep going.**
+**Nothing builds self-esteem and self-confidence like accomplishment.**
 
-Anonymous
+Thomas Carlyle
