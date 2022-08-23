@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You came into the world to do something; So... do something!**
+**I never dreamed about success. I worked for it.**
 
-Johnnie Dent Jr
+Estee Lauder
