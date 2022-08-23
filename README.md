@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The purpose of our lives is to be happy.**
+**When obstacles arise, you change your direction to reach your goal, you do not change your decision to get there.**
 
-Dalai Lama
+Zig Ziglar
