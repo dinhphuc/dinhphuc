@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**He who sweats more in training bleeds less in war.**
+**If you're presenting yourself with confidence, you can pull off pretty much anything.**
 
-Greek Proverb
+Katy Perry
