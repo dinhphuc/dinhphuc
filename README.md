@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I never dreamed about success. I worked for it.**
+**Difficult roads always lead to beautiful destinations.**
 
-Estee Lauder
+Zig Ziglar
