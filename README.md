@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Surround yourself with only people who are going to lift you higher.**
+**You are never too old to set another goal or dream a new dream.**
 
-Oprah
+Les Brown
