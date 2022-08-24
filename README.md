@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever the mind can conceive and believe, it can achieve.**
+**We can't help everyone, but everyone can help someone.**
 
-Napoleon Hill
+Ronald Reagan
