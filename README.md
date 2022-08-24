@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Trust yourself. You know more than you think you do.**
+**What keeps me going is goals.**
 
-Dr. Benjamin Spock
+Muhammad Ali
