@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pass on what you have learned.**
+**Opportunities don't happen. You create them.**
 
-Yoda
+Chris Grosser
