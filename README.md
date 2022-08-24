@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do something today that your future self will thank you for.**
+**Surround yourself with only people who are going to lift you higher.**
 
-Anonymous
+Oprah
