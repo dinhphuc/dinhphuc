@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you set your goals ridiculously high and it's a failure, you will fail above everyone else's success.**
+**A secret to happiness is letting every situatiuon be what it is instead of what you think it should be.**
 
-James Cameron
+Anonymous
