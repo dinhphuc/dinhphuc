@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If your dreams don't scare you, they aren't big enough.**
+**Limitations live only in our minds. But if we use our imaginations, our possibilities become limitless.**
 
-Muhammad Ali
+Jamie Paolinetti
