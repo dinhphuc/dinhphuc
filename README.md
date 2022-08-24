@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching.**
+**Do what makes you happy.**
 
-Satchel Paige
+Rachel Ann Nunes
