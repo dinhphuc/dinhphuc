@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Surround yourself with only people who are going to lift you higher.**
+**Whenever you see a successful person, you only see the public glories, never the private sacrifices to reach them.**
 
-Oprah
+Vaibhav Shah
