@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There's nothing that you can do that can't be done.**
+**When things are bad, remember: it won't always be this way. Take one day at a time.**
 
-The Beatles
+Anonymous
