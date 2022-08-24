@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nurture your mind with great thoughts, for you will never go any higher than you think.**
+**Trust yourself. You know more than you think you do.**
 
-Benjamin Disraeli
+Dr. Benjamin Spock
