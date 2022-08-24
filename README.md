@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can alter mood by running.**
+**Be tolerant with others and strict with yourself.**
 
-Tumpal Sihombing
+Marcus Aurelius
