@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everyone is breakable, but not everyone is aware that it's a choice to stay broken.**
+**I don't count my sit-ups; I only start counting when it starts hurting because they're the only ones that count.**
 
-Stanley Behrman
+Muhammad Ali
