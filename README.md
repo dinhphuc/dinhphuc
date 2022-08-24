@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle.**
+**Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching.**
 
-Albert Einstein
+Satchel Paige
