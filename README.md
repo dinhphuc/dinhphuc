@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We can't help everyone, but everyone can help someone.**
+**Good judgment comes from experience, and a lot of that comes from bad judgment.**
 
-Ronald Reagan
+Will Rogers
