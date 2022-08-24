@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do what makes you happy.**
+**Life only comes around once, so do whatever makes you happy, and be with whoever makes you smile.**
 
-Rachel Ann Nunes
+Anonymous
