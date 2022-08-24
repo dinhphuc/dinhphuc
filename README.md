@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be tolerant with others and strict with yourself.**
+**A runner must run with dreams in his heart.**
 
-Marcus Aurelius
+Emil Zatopek
