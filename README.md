@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't wait around for other people to be happy for you. Any happiness you get, you've got to make yourself.**
+**There's nothing that you can do that can't be done.**
 
-Alice Walker
+The Beatles
