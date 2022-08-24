@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**He who lives in harmony with himself lives in harmony with the universe.**
+**A runner must run with dreams in his heart.**
 
-Marcus Aurelius
+Emil Zatopek
