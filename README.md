@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Opportunities don't happen. You create them.**
+**Nurture your mind with great thoughts, for you will never go any higher than you think.**
 
-Chris Grosser
+Benjamin Disraeli
