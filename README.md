@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whenever you see a successful person, you only see the public glories, never the private sacrifices to reach them.**
+**Whatever the mind can conceive and believe, it can achieve.**
 
-Vaibhav Shah
+Napoleon Hill
