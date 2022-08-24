@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When things are bad, remember: it won't always be this way. Take one day at a time.**
+**If your dreams don't scare you, they aren't big enough.**
 
-Anonymous
+Muhammad Ali
