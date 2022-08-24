@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good judgment comes from experience, and a lot of that comes from bad judgment.**
+**You can alter mood by running.**
 
-Will Rogers
+Tumpal Sihombing
