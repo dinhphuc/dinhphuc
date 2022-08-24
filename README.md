@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life only comes around once, so do whatever makes you happy, and be with whoever makes you smile.**
+**Everyone is breakable, but not everyone is aware that it's a choice to stay broken.**
 
-Anonymous
+Stanley Behrman
