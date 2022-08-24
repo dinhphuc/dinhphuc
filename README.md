@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I don't count my sit-ups; I only start counting when it starts hurting because they're the only ones that count.**
+**Runners just do it - they run for the finish line even if someone else has reached it first.**
 
-Muhammad Ali
+Unknown
