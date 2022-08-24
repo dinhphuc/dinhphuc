@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A runner must run with dreams in his heart.**
+**Don't wait around for other people to be happy for you. Any happiness you get, you've got to make yourself.**
 
-Emil Zatopek
+Alice Walker
