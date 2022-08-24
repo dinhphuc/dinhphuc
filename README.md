@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Runners just do it - they run for the finish line even if someone else has reached it first.**
+**If you set your goals ridiculously high and it's a failure, you will fail above everyone else's success.**
 
-Unknown
+James Cameron
