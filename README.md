@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't dream of winning, train for it!**
+**If you can't find the opportunities you're looking for...create them.**
 
-Mo Farah
+Anonymous
