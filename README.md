@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Forgiving yourself, believing in yourself and choosing to love yourself are the best gifts one could receive.**
+**Don't count the days, make the days count.**
 
-Brittany Burgunder
+Muhammad Ali
