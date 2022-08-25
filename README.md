@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't fear moving slowly forward...fear standing still.**
+**If you want to change the world, start with yourself.**
 
-Kathleen Harris
+Mahatma Gandhi
