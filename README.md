@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What keeps me going is goals.**
+**A winner never stops trying.**
 
-Muhammad Ali
+Tom Landry
