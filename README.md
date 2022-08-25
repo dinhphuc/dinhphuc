@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once you're beat mentally, you might as well not even go to the starting line.**
+**Train like a silver medalist, compete like a gold.**
 
-Todd Williams
+Anonymous
