@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Of all the things you wear, your expression is the most important.**
+**Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.**
 
-Janet Lane
+Samuel Beckett
