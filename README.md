@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A winner never stops trying.**
+**Never stop believing in hope because miracles happen everyday.**
 
-Tom Landry
+Anonymous
