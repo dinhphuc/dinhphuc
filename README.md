@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Winning isn't everything, but wanting to win is.**
+**Don't dream of winning, train for it!**
 
-Vince Lombardi
+Mo Farah
