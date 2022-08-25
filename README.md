@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't always control what goes on outside, but you can always control what goes on inside.**
+**Don't fear moving slowly forward...fear standing still.**
 
-Wayne Dyer
+Kathleen Harris
