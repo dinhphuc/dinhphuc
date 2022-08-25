@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Winning is fun, but those moments that you can touch someone's life in a very positive way are better.**
+**Always remember that you are absolutely unique. Just like everyone else.**
 
-Tim Howard
+Margaret Mead
