@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to change the world, start with yourself.**
+**The difference between ordinary and extraordinary is that little extra.**
 
-Mahatma Gandhi
+Jimmy Johnson
