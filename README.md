@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do all things with love.**
+**Of all the things you wear, your expression is the most important.**
 
-Og Mandino
+Janet Lane
