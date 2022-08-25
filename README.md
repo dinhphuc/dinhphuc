@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I didn't come this far to only come this far.**
+**Winning isn't everything, but wanting to win is.**
 
-Anonymous
+Vince Lombardi
