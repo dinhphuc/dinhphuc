@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Train like a silver medalist, compete like a gold.**
+**You can't always control what goes on outside, but you can always control what goes on inside.**
 
-Anonymous
+Wayne Dyer
