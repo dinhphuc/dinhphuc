@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never stop believing in hope because miracles happen everyday.**
+**Once you're beat mentally, you might as well not even go to the starting line.**
 
-Anonymous
+Todd Williams
