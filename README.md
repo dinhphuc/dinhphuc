@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't go up to the top, you grow up to the top.**
+**Success is not final, failure is not fatal: it is the courage to continue that counts.**
 
-John C. Maxwell
+Winston Churchill
