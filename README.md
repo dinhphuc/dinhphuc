@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can't find the opportunities you're looking for...create them.**
+**Winning is fun, but those moments that you can touch someone's life in a very positive way are better.**
 
-Anonymous
+Tim Howard
