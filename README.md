@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your time is limited, so don't waste it living someone else's life.**
+**You don't gain anything from stressing. Remember that.**
 
-Steve Jobs
+Anonymous
