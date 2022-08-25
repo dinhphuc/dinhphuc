@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.**
+**Your time is limited, so don't waste it living someone else's life.**
 
-Samuel Beckett
+Steve Jobs
