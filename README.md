@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you only do what you can do, you will never be more than you are now.**
+**Walk on with hope in your heart, and you'll never walk alone.**
 
-Master Oogway
+Shah Rukh Khan
