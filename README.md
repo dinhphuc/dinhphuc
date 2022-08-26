@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Who begins too much accomplishes little.**
+**Everywhere you go, take a smile with you.**
 
-German Proverb
+Sasha Azevedo
