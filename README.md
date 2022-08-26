@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It ain't as bad as you think. It will look better in the morning.**
+**The only easy day was yesterday.**
 
-Colin Powell
+Navy Seals
