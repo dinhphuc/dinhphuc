@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Easy choices, hard life. Hard choices, easy life.**
+**Do all things with love.**
 
-Jerzy Gregorek
+Og Mandino
