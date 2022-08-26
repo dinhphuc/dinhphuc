@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't fear moving slowly forward...fear standing still.**
+**It ain't as bad as you think. It will look better in the morning.**
 
-Kathleen Harris
+Colin Powell
