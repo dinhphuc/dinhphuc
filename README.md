@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We either make ourselves miserable or we make ourselves strong. The amount of work is the same.**
+**The hardest thing to find in life is happiness - money is only hard to find because it gets wasted trying to find happiness.**
 
-Carlos Costaneda
+Unknown
