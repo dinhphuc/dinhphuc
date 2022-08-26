@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do all things with love.**
+**Remember that guy that gave up? Neither does anyone else.**
 
-Og Mandino
+Anonymous
