@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only easy day was yesterday.**
+**Don't think about what might go wrong. Think about what might go right.**
 
-Navy Seals
+Anonymous
