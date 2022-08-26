@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The first and greatest victory is to conquer self.**
+**Life is a succession of lessons which must be lived to be understood.**
 
-Plato
+Ralph Waldo Emerson
