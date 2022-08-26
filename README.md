@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember that guy that gave up? Neither does anyone else.**
+**The good life is a process, not a state of being. It is a direction, not a destination.**
 
-Anonymous
+Carl Rogers
