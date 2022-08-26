@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't think about what might go wrong. Think about what might go right.**
+**The only way to do great work is to love what you do.**
 
-Anonymous
+Steve Jobs
