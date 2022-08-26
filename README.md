@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everywhere you go, take a smile with you.**
+**The key to being happy is knowing you have the power to choose what to accept and what to let go.**
 
-Sasha Azevedo
+Anonymous
