@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The key to being happy is knowing you have the power to choose what to accept and what to let go.**
+**We either make ourselves miserable or we make ourselves strong. The amount of work is the same.**
 
-Anonymous
+Carlos Costaneda
