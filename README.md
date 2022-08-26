@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only way to do great work is to love what you do.**
+**Everyone wants happiness. No one wants pain. But you can't have a rainbow, without a little rain.**
 
-Steve Jobs
+Anonymous
