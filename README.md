@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**And in the end, the love you take, is equal to the love you make.**
+**Love the life you live. Live the life you love.**
 
-The Beatles
+Bob Marley
