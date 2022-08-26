@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is a succession of lessons which must be lived to be understood.**
+**Do not dwell in the past, do not dream of the future, concentrate the mind on the present moment.**
 
-Ralph Waldo Emerson
+Buddha
