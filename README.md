@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be afraid to give up the good to go for the great.**
+**If you only do what you can do, you will never be more than you are now.**
 
-John D. Rockefeller
+Master Oogway
