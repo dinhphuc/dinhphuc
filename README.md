@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love the life you live. Live the life you love.**
+**Don't be afraid to give up the good to go for the great.**
 
-Bob Marley
+John D. Rockefeller
