@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only in the darkness can you see the stars.**
+**One small positive thought in the morning can change your whole day.**
 
-Martin Luther King, Jr.
+Anonymous
