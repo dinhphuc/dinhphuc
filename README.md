@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If only we'd stop trying to be happy we could have a pretty good time.**
+**Confidence comes from discipline and training.**
 
-Edith Wharton
+Robert Kiyosaki
