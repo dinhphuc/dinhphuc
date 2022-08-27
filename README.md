@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Difficulty is what wakes up the genius.**
+**Earn your confidence, nurture it, then help to build it in others.**
 
-Nassim Nicholas Taleb
+Alex Malley
