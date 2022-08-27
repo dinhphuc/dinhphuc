@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One of the simplest ways to be happy is letting go of the things that make you sad.**
+**Be happy not because everything is good, but because you can see the good side of everything.**
 
 Anonymous
