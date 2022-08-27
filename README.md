@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence comes not from always being right but from not fearing to be wrong.**
+**Set a goal that makes you want to jump out of bed in the morning.**
 
-Peter T. Mcintyre
+Anonymous
