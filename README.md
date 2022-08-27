@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Often it isn't the mountains ahead that wear you out, it's the little pebble in your shoe.**
+**A leader is one who knows the way, goes the way, and shows the way.**
 
-Muhammad Ali
+John C. Maxwell
