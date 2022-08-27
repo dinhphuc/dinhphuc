@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up. Great things take time. Be patient.**
+**One small positive thought in the morning can change your whole day.**
 
 Anonymous
