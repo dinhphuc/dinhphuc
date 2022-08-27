@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Earn your confidence, nurture it, then help to build it in others.**
+**The goal is not to be perfect by the end. The goal is to be better today.**
 
-Alex Malley
+Simon Sinek
