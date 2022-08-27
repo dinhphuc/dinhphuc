@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Very little is needed to make a happy life; it is all within yourself, in your way of thinking.**
+**Believe you can and you're halfway there.**
 
-Marcus Aurelius
+Theodore Roosevelt
