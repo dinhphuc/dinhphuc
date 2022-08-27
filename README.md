@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Learn from the past, set vivid, detailed goals for the future, and live in the only moment of time over which you have any control: now.**
+**Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence.**
 
-Denis Waitley
+Helen Keller
