@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't give up on yourself. You're worth it.**
+**Learn from the past, set vivid, detailed goals for the future, and live in the only moment of time over which you have any control: now.**
 
-Anonymous
+Denis Waitley
