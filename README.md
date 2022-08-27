@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence.**
+**When it gets difficult is often right before you succeed.**
 
-Helen Keller
+Jeffrey Walker
