@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You alone are enough. You have nothing to prove to anybody.**
+**Keep smiling. It makes people wonder what you are up to.**
 
-Maya Angelou
+Anonymous
