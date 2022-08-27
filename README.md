@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One small positive thought in the morning can change your whole day.**
+**Learn to value yourself, which means: fight for your happiness.**
 
-Anonymous
+Ayn Rand
