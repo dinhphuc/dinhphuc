@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.**
+**If only we'd stop trying to be happy we could have a pretty good time.**
 
-Henry Ford
+Edith Wharton
