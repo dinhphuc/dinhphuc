@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Often it isn't the mountains ahead that wear you out, it's the little pebble in your shoe.**
+**Confidence comes not from always being right but from not fearing to be wrong.**
 
-Muhammad Ali
+Peter T. Mcintyre
