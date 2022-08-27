@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We can't be brave without fear.**
+**Our own self-esteem is something we can actually twist in whatever way we want.**
 
-Muhammad Ali
+Stephen Richards
