@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In matters of style, swim with the current; in matters of principle, stand like a rock.**
+**The secret of being happy is accepting where you are in life and making the most out of everyday.**
 
-Thomas Jefferson
+Anonymous
