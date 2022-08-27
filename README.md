@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe you can and you're halfway there.**
+**Difficulty is what wakes up the genius.**
 
-Theodore Roosevelt
+Nassim Nicholas Taleb
