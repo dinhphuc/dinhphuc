@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Give up on being perfect and start working on becoming yourself.**
+**In matters of style, swim with the current; in matters of principle, stand like a rock.**
 
-Anna Quindlen
+Thomas Jefferson
