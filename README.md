@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Ask yourself: Can I give more? The answer is usually: Yes.**
+**Give up on being perfect and start working on becoming yourself.**
 
-Paul Tergat
+Anna Quindlen
