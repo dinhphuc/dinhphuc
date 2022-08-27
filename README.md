@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep smiling. It makes people wonder what you are up to.**
+**When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.**
 
-Anonymous
+Henry Ford
