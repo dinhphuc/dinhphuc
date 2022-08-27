@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One small positive thought in the morning can change your whole day.**
+**Often it isn't the mountains ahead that wear you out, it's the little pebble in your shoe.**
 
-Anonymous
+Muhammad Ali
