@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Learn to value yourself, which means: fight for your happiness.**
+**You alone are enough. You have nothing to prove to anybody.**
 
-Ayn Rand
+Maya Angelou
