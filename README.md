@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure will never overtake me if my determination to succeed is strong enough.**
+**If you are not willing to risk the usual, you will have to settle for the ordinary.**
 
-Og Mandino
+Jim Rohn
