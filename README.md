@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are not willing to risk the usual, you will have to settle for the ordinary.**
+**It is better to fail in originality than to succeed in imitation.**
 
-Jim Rohn
+Herman Melville
