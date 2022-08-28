@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up. You only get one life. Go for it.**
+**Failure will never overtake me if my determination to succeed is strong enough.**
 
-Richard E. Grant
+Og Mandino
