@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
+**The greatest discovery of all time is that a person can change their future by merely changing their attitude.**
 
-Wayne Dyer
+Oprah Winfrey
