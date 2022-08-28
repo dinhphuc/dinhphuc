@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is during our darkest moments that we must focus to see the light.**
+**It is not in the stars to hold our destiny but in ourselves.**
 
-Aristotle Onassis
+William Shakespeare
