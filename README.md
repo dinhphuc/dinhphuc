@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Champions play to win. Failure is just feedback. There's everything to gain by trying your best.**
+**Courage is taking those first steps toward your dreams even if you can't see the path ahead.**
 
-Jim Afremow
+Anonymous
