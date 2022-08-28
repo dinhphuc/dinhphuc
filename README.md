@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whoever is happy will make others happy too.**
+**When you find your why, you find a way to make it happen.**
 
-Anonymous
+Eric Thomas
