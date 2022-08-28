@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are not willing to risk the usual, you will have to settle for the ordinary.**
+**The best way to gain self-confidence is to do what you are afraid to do.**
 
-Jim Rohn
+Swati Sharma
