@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do all things with love.**
+**Pain has taught me to appreciate the things that don't hurt.**
 
-Og Mandino
+Melissa Tripp
