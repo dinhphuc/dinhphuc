@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you love what you have, you have everything you need.**
+**It is during our darkest moments that we must focus to see the light.**
 
-Anonymous
+Aristotle Onassis
