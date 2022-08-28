@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Great minds discuss ideas; average minds discuss events; small minds discuss people.**
+**Your problem isn't the problem, it's your attitude about the problem.**
 
-Eleanor Roosevelt
+Ann Brashares
