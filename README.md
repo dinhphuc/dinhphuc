@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There's no shortage of remarkable ideas, what's missing is the will to execute them.**
+**Pain has taught me to appreciate the things that don't hurt.**
 
-Seth Godin
+Melissa Tripp
