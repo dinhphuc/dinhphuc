@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Learn to value yourself, which means: fight for your happiness.**
+**The secret of change is to focus all of your energy, not on fighting the old, but on building the new.**
 
-Ayn Rand
+Socrates
