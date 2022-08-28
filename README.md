@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pain has taught me to appreciate the things that don't hurt.**
+**Be not afraid of life. Believe that life is worth living, and your belief will help create the fact.**
 
-Melissa Tripp
+William James
