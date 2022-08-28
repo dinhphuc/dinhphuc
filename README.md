@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A gentle word, a kind look, a good-natured smile can work wonders and accomplish miracles.**
+**Champions play to win. Failure is just feedback. There's everything to gain by trying your best.**
 
-William Hazlitt
+Jim Afremow
