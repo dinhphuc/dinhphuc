@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be not afraid of life. Believe that life is worth living, and your belief will help create the fact.**
+**It is not the mountain we conquer, but ourselves.**
 
-William James
+Sir Edmund Hillary
