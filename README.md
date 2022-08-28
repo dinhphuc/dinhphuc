@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not the mountain we conquer, but ourselves.**
+**When you love what you have, you have everything you need.**
 
-Sir Edmund Hillary
+Anonymous
