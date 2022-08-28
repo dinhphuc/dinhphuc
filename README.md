@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you find your why, you find a way to make it happen.**
+**A gentle word, a kind look, a good-natured smile can work wonders and accomplish miracles.**
 
-Eric Thomas
+William Hazlitt
