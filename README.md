@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is during our darkest moments that we must focus to see the light.**
+**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
 
-Aristotle Onassis
+Wayne Dyer
