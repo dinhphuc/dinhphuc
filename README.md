@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is better to fail in originality than to succeed in imitation.**
+**You may be disappointed if you fail, but you are doomed if you don't try.**
 
-Herman Melville
+Beverly Sills
