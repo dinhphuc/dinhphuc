@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I've failed over and over and over again in my life and that is why I succeed.**
+**Never give up. You only get one life. Go for it.**
 
-Michael Jordan
+Richard E. Grant
