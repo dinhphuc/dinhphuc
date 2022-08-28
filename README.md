@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest discovery of all time is that a person can change their future by merely changing their attitude.**
+**Whoever is happy will make others happy too.**
 
-Oprah Winfrey
+Anonymous
