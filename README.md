@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your problem isn't the problem, it's your attitude about the problem.**
+**I've failed over and over and over again in my life and that is why I succeed.**
 
-Ann Brashares
+Michael Jordan
