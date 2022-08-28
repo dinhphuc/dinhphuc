@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Yesterday is history, tomorrow is a mystery, today is a gift of God, which is why we call it the present.**
+**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
 
-Bill Keane
+Wayne Dyer
