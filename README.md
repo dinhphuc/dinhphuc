@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You may be disappointed if you fail, but you are doomed if you don't try.**
+**Make today so awesome yesterday gets jealous.**
 
-Beverly Sills
+Anonymous
