@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest.**
+**Our greatest ability as humans is not to change the world; but to change ourselves.**
 
-Sri Chinmoy
+Mahatma Gandhi
