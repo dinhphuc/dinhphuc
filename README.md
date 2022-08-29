@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The man who views the world at 50 the same as he did at 20 has wasted 30 years of his life.**
+**The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.**
 
-Muhammad Ali
+William Arthur Ward
