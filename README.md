@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your problem isn't the problem, it's your attitude about the problem.**
+**The man who views the world at 50 the same as he did at 20 has wasted 30 years of his life.**
 
-Ann Brashares
+Muhammad Ali
