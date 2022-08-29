@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Spread love everywhere you go. Let no one ever come to you without leaving happier.**
+**The way to get started is to quit talking and begin doing.**
 
-Mother Teresa
+Walt Disney
