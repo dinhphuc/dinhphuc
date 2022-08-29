@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The way I see it, if you want the rainbow, you gotta put up with the rain.**
+**Hope never abandons you, you abandon it.**
 
-Dolly Parton
+George Weinberg
