@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are willing to do more than you are paid to do, eventually you will be paid to do more than you do.**
+**Don't waste a minute not being happy. If one door closes, run to the next window - or break down a door.**
 
-Anonymous
+Brooke Shields
