@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody can make you to feel inferior without your consent.**
+**A person who never made a mistake never tried anything new.**
 
-Eleanor Roosevelt
+Albert Einstein
