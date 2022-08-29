@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The way to get started is to quit talking and begin doing.**
+**I would rather die of passion than of boredom.**
 
-Walt Disney
+Vincent van Gogh
