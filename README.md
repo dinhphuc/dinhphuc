@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't fear moving slowly forward...fear standing still.**
+**Trust the process of life.**
 
-Kathleen Harris
+Anonymous
