@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The man who views the world at 50 the same as he did at 20 has wasted 30 years of his life.**
+**Live as if you were to die tomorrow. Learn as if you were to live forever.**
 
-Muhammad Ali
+Mahatma Gandhi
