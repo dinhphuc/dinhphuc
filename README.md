@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If I have the belief that I can do it, I shall surely acquire the capacity to do it even if I may not have it at the beginning.**
+**Nobody can make you to feel inferior without your consent.**
 
-Gandhi
+Eleanor Roosevelt
