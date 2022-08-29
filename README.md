@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile at strangers and you just might change a life.**
+**The way I see it, if you want the rainbow, you gotta put up with the rain.**
 
-Steve Maraboli
+Dolly Parton
