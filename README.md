@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Trust the process of life.**
+**Smile at strangers and you just might change a life.**
 
-Anonymous
+Steve Maraboli
