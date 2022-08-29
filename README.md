@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't waste a minute not being happy. If one door closes, run to the next window - or break down a door.**
+**The more positive thoughts you have, the better you feel, which causes you to have more positive thoughts, then you feel even better.**
 
-Brooke Shields
+James Borg
