@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To be willing is only half the task.**
+**Good, better, best. Never let it rest. Until your good is better and your better is best.**
 
-Armenian Proverb
+Tim Duncan
