@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is either a daring adventure or nothing at all.**
+**Smile at strangers and you just might change a life.**
 
-Helen Keller
+Steve Maraboli
