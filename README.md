@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The way I see it, if you want the rainbow, you gotta put up with the rain.**
+**The only journey is the one within.**
 
-Dolly Parton
+Rainer Maria Rilke
