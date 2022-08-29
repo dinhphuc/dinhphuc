@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I would rather die of passion than of boredom.**
+**To be willing is only half the task.**
 
-Vincent van Gogh
+Armenian Proverb
