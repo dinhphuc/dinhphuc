@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you see in yourself is what you see in the world.**
+**Are your excuses more important than your dreams?**
 
-Afghan Proverb
+Anonymous
