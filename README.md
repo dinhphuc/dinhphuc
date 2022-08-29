@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't stop until you're proud.**
+**Don't fear moving slowly forward...fear standing still.**
 
-Anonymous
+Kathleen Harris
