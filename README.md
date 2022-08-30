@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you depersonalize abrasive behavior and see it as a call for help you become a catalyst for the best kind of change.**
+**Hard times don't create heroes. It is during the hard times when the 'hero' within us is revealed.**
 
-Marilyn Suttle
+Bob Riley
