@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We love life, not because we are used to living but because we are used to loving.**
+**Every champion was once a contender that refused to give up.**
 
-Friedrich Nietzsche
+Rocky Balboa
