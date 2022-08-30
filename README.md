@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only easy day was yesterday.**
+**Even the greatest were beginners. Don't be afraid to take that first step.**
 
-Navy Seals
+Anonymous
