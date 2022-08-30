@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your relationship with yourself sets the tone for every other relationship you have.**
+**Results happen over time, not overnight. Work hard, stay consistent, and be patient.**
 
 Anonymous
