@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only person you are destined to become is the person you decide to be.**
+**Not all those who wander are lost.**
 
-Ralph Waldo Emerson
+J. R. R. Tolkien
