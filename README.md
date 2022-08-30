@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Give up on being perfect and start working on becoming yourself.**
+**Hope never abandons you, you abandon it.**
 
-Anna Quindlen
+George Weinberg
