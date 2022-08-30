@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Not all those who wander are lost.**
+**It's not who you are that holds you back, it's who you think you're not.**
 
-J. R. R. Tolkien
+Anonymous
