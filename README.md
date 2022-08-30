@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't get discouraged by what you're going through. Your time is coming. Where you are is not where you're going to stay.**
+**How long are you going to wait before you demand the best for yourself?**
 
-Anonymous
+Epictetus
