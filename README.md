@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do not blame the world. Find a solution.**
+**The first place where self-esteem begins its journey is within us.**
 
-Sri Chinmoy
+Stephen Richards
