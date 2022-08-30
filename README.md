@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Results happen over time, not overnight. Work hard, stay consistent, and be patient.**
+**I compete only with myself, and I try to become a better human being. This is my goal.**
 
-Anonymous
+Sri Chinmoy
