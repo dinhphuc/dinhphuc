@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every champion was once a contender that refused to give up.**
+**A teacher is better than two books.**
 
-Rocky Balboa
+German Proverb
