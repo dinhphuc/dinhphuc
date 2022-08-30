@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We are made to persist. That's how we find out who we are.**
+**Shared joy is a double joy; shared sorrow is half a sorrow.**
 
-Tobias Wolff
+Swedish Proverb
