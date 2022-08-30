@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A warm smile is the universal language of kindness.**
+**We become what we think about.**
 
-William Arthur Ward
+Earl Nightingale
