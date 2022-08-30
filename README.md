@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not who you are that holds you back, it's who you think you're not.**
+**In the end, it's not the years in your life that count. It's the life in your years.**
 
-Anonymous
+Abraham Lincoln
