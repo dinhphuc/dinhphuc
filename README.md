@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A teacher is better than two books.**
+**Do not blame the world. Find a solution.**
 
-German Proverb
+Sri Chinmoy
