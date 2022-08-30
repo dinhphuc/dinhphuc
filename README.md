@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The first place where self-esteem begins its journey is within us.**
+**Your relationship with yourself sets the tone for every other relationship you have.**
 
-Stephen Richards
+Anonymous
