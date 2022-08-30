@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Even the greatest were beginners. Don't be afraid to take that first step.**
+**The future belongs to those who believe in the beauty of their dreams.**
 
-Anonymous
+Franklin D. Roosevelt
