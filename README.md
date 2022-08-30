@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I compete only with myself, and I try to become a better human being. This is my goal.**
+**When you depersonalize abrasive behavior and see it as a call for help you become a catalyst for the best kind of change.**
 
-Sri Chinmoy
+Marilyn Suttle
