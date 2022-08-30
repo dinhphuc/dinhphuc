@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of success is to do the common thing uncommonly well.**
+**A warm smile is the universal language of kindness.**
 
-John D. Rockefeller Jr
+William Arthur Ward
