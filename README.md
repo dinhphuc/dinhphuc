@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hope never abandons you, you abandon it.**
+**We are made to persist. That's how we find out who we are.**
 
-George Weinberg
+Tobias Wolff
