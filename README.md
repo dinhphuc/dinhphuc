@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Shared joy is a double joy; shared sorrow is half a sorrow.**
+**The only person you are destined to become is the person you decide to be.**
 
-Swedish Proverb
+Ralph Waldo Emerson
