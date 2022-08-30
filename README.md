@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**How long are you going to wait before you demand the best for yourself?**
+**Give up on being perfect and start working on becoming yourself.**
 
-Epictetus
+Anna Quindlen
