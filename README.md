@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Runners just do it - they run for the finish line even if someone else has reached it first.**
+**We love life, not because we are used to living but because we are used to loving.**
 
-Unknown
+Friedrich Nietzsche
