@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your problem isn't the problem, it's your attitude about the problem.**
+**The more you praise and celebrate your life, the more there is in life to celebrate.**
 
-Ann Brashares
+Oprah Winfrey
