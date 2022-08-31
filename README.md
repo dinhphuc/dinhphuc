@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be humble in your confidence yet courageous in your character.**
+**Alone, we can do so little; together we can do so much.**
 
-Melanie Koulouris
+Helen Keller
