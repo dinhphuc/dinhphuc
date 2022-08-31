@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The more you praise and celebrate your life, the more there is in life to celebrate.**
+**The pain you feel today will be the strength you feel tomorrow.**
 
-Oprah Winfrey
+Anonymous
