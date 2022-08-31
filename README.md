@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You may never know what results come of your actions, but if you do nothing, there will be no results.**
+**Life is really simple, but we insist on making it complicated.**
 
-Mahatma Gandhi
+Confucius
