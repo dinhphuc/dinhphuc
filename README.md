@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You must do the thing you think you cannot do.**
+**Once you're beat mentally, you might as well not even go to the starting line.**
 
-Eleanor Roosevelt
+Todd Williams
