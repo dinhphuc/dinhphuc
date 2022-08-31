@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Alone, we can do so little; together we can do so much.**
+**What you think of yourself is much more important than what people think of you.**
 
-Helen Keller
+Anonymous
