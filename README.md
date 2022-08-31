@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Count your age by friends, not years. Count your life by smiles, not tears.**
+**The more you praise and celebrate your life, the more there is in life to celebrate.**
 
-John Lennon
+Oprah Winfrey
