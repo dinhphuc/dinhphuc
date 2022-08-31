@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are the only one who can limit your greatness.**
+**If you want it, you'll find a way. If you don't, you'll find an excuse.**
 
 Anonymous
