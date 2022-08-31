@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One day you will wake up and there won't be any time to do the things you've always wanted to do. Do it now.**
+**You must do the thing you think you cannot do.**
 
-Paulo Coelho
+Eleanor Roosevelt
