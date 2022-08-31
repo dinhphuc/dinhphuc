@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We become what we think about.**
+**You are the only one who can limit your greatness.**
 
-Earl Nightingale
+Anonymous
