@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No one controls how I feel about myself, but me.**
+**The best feeling of happiness is when you're happy because you've made somebody else happy.**
 
 Anonymous
