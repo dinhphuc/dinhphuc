@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The best feeling of happiness is when you're happy because you've made somebody else happy.**
+**Be a voice not an echo.**
 
 Anonymous
