@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You must do the thing you think you cannot do.**
+**Pass on what you have learned.**
 
-Eleanor Roosevelt
+Yoda
