@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Climb the mountains to see lowlands.**
+**It's going to be hard. But hard is not impossible.**
 
-Chinese Proverb
+Anonymous
