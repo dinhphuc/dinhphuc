@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's going to be hard. But hard is not impossible.**
+**No one controls how I feel about myself, but me.**
 
 Anonymous
