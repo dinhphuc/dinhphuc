@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Very little is needed to make a happy life; it is all within yourself, in your way of thinking.**
+**One day you will wake up and there won't be any time to do the things you've always wanted to do. Do it now.**
 
-Marcus Aurelius
+Paulo Coelho
