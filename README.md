@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only those who dare to fail greatly can ever achieve greatly.**
+**In this life we cannot do great things. We can only do small things with great love.**
 
-Robert F. Kennedy
+Mother Teresa
