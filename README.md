@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In this life we cannot do great things. We can only do small things with great love.**
+**Be humble in your confidence yet courageous in your character.**
 
-Mother Teresa
+Melanie Koulouris
