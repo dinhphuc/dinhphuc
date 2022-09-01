@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Winners make a habit of manufacturing their own positive expectations in advance of the event.**
+**We can't be brave without fear.**
 
-Brian Tracy
+Muhammad Ali
