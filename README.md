@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I failed my way to success.**
+**Where there is love there is life.**
 
-Thomas Edison
+Mahatma Gandhi
