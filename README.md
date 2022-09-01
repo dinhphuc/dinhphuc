@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life without love is like a tree without blossoms or fruit.**
+**Don't let the past steal your present.**
 
-Khalil Gibran
+Terri Guillemets
