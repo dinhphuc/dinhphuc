@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Continuous effort - not strength or intelligence - is the key to unlocking our potential.**
+**I failed my way to success.**
 
-Liane Cardes
+Thomas Edison
