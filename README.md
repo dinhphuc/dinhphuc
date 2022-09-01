@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are only two mistakes one can make along the road to truth; not going all the way, and not starting.**
+**If you are willing to do more than you are paid to do, eventually you will be paid to do more than you do.**
 
-Buddha
+Anonymous
