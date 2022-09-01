@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Plenty of people miss their share of happiness, not because they never found it, but because they didn't stop to enjoy it.**
+**Strength doesn't come from what you can do. It comes from overcoming the things you once thought you couldn't.**
 
-William Feather
+Rikki Rogers
