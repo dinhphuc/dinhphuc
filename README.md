@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will be exactly as happy as you decide to be.**
+**Do not blame the world. Find a solution.**
 
-Anonymous
+Sri Chinmoy
