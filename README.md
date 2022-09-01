@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Coming together is a beginning; keeping together is progress; working together is success.**
+**Goals may give focus, but dreams give power.**
 
-Edward Everett Hale
+John Maxwell
