@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I knew that if I failed I wouldn't regret that. But I would regret not trying.**
+**Pain has taught me to appreciate the things that don't hurt.**
 
-Jeff Bezos
+Melissa Tripp
