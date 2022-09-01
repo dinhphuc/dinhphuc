@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Goals may give focus, but dreams give power.**
+**Life without love is like a tree without blossoms or fruit.**
 
-John Maxwell
+Khalil Gibran
