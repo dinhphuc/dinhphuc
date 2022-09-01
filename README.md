@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you love what you have, you have everything you need.**
+**A leader is one who knows the way, goes the way, and shows the way.**
 
-Anonymous
+John C. Maxwell
