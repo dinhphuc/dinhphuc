@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The struggle you're in today is developing the strength you need tomorrow.**
+**Blessed are they who see beautiful things in humble places where other people see nothing.**
 
-Robert Tew
+Camille Pissaro
