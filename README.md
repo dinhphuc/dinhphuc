@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live for yourself and don't ever stop.**
+**You will be exactly as happy as you decide to be.**
 
-John Tew
+Anonymous
