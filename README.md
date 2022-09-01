@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Where there is love there is life.**
+**Winners make a habit of manufacturing their own positive expectations in advance of the event.**
 
-Mahatma Gandhi
+Brian Tracy
