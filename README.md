@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A winner never stops trying.**
+**Coming together is a beginning; keeping together is progress; working together is success.**
 
-Tom Landry
+Edward Everett Hale
