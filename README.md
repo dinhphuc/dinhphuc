@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every strike brings me closer to the next home run.**
+**I didn't fail the test. I just found 100 ways to do it wrong.**
 
-Babe Ruth
+Benjamin Franklin
