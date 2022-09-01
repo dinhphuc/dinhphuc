@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When we point to obstacles we inhibit progress. When we offer solutions we advance.**
+**The struggle you're in today is developing the strength you need tomorrow.**
 
-Simon Sinek
+Robert Tew
