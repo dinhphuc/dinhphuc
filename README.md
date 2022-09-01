@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pain has taught me to appreciate the things that don't hurt.**
+**Continuous effort - not strength or intelligence - is the key to unlocking our potential.**
 
-Melissa Tripp
+Liane Cardes
