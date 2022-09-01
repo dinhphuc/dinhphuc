@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do not blame the world. Find a solution.**
+**A winner never stops trying.**
 
-Sri Chinmoy
+Tom Landry
