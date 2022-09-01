@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I didn't fail the test. I just found 100 ways to do it wrong.**
+**There are only two mistakes one can make along the road to truth; not going all the way, and not starting.**
 
-Benjamin Franklin
+Buddha
