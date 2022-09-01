@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you know what you want, and want it bad enough, you'll find a way to get it.**
+**There are only two mistakes one can make along the road to truth; not going all the way, and not starting.**
 
-Jim Rohn
+Buddha
