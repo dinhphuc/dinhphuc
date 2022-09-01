@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't let the past steal your present.**
+**Every strike brings me closer to the next home run.**
 
-Terri Guillemets
+Babe Ruth
