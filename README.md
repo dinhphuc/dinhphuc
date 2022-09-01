@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The struggle you're in today is developing the strength you need tomorrow.**
+**The will to win means nothing without the will to prepare.**
 
-Robert Tew
+Juma Ikangaa
