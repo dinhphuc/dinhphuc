@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be you. Do you. For you.**
+**I knew that if I failed I wouldn't regret that. But I would regret not trying.**
 
-Anonymous
+Jeff Bezos
