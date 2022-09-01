@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We can't be brave without fear.**
+**When we point to obstacles we inhibit progress. When we offer solutions we advance.**
 
-Muhammad Ali
+Simon Sinek
