@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The will to win means nothing without the will to prepare.**
+**When you love what you have, you have everything you need.**
 
-Juma Ikangaa
+Anonymous
