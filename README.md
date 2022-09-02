@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Patience you must have, my young padawan.**
+**Cheerfulness is the very flower of health.**
 
-Yoda
+Anonymous
