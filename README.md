@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only a man who knows what it is like to be defeated can reach down to the bottom of his soul and come up with the extra ounce of power it takes to win when the match is even.**
+**Almost every successful person begins their journey with two core beliefs: the future can be better than the present, and I have the power to make it so.**
 
-Muhammad Ali
+Anonymous
