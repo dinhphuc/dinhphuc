@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Deep doubts, deep wisdom; small doubts, small wisdom.**
+**Where there is love there is life.**
 
-Chinese Proverb
+Mahatma Gandhi
