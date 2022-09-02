@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I ask not for a lighter burden, but for broader shoulders.**
+**To fall in love with yourself is the first secret to happiness.**
 
-Jewish Proverb
+Robert Morley
