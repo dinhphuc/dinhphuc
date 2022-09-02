@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To fall in love with yourself is the first secret to happiness.**
+**Our greatest ability as humans is not to change the world; but to change ourselves.**
 
-Robert Morley
+Mahatma Gandhi
