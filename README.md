@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can't stop thinking about it, don't stop working for it.**
+**Courage is taking those first steps toward your dreams even if you can't see the path ahead.**
 
 Anonymous
