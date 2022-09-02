@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do something today that your future self will thank you for.**
+**Just when the caterpillar thought the world was ending, it turned into a butterfly.**
 
 Anonymous
