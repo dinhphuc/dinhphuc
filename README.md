@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All you need is love.**
+**Be happy not because everything is good, but because you can see the good side of everything.**
 
-The Beatles
+Anonymous
