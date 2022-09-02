@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once you choose hope, anything's possible.**
+**Be helpful. When you see a person without a smile, give them yours.**
 
-Christopher Reeve
+Zig Ziglar
