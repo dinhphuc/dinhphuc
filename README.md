@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One day I'll be at the place I always wanted to be.**
+**One often meets his destiny on the road he takes to avoid it.**
 
-Anonymous
+Master Oogway
