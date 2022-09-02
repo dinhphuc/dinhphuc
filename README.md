@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be helpful. When you see a person without a smile, give them yours.**
+**Patience you must have, my young padawan.**
 
-Zig Ziglar
+Yoda
