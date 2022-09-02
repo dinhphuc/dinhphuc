@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be aware as often as possible of the great transformation process you are going through.**
+**Let your smile change the world, but don't let the world change your smile.**
 
 Anonymous
