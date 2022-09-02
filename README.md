@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I ask not for a lighter burden, but for broader shoulders.**
+**Be humble in your confidence yet courageous in your character.**
 
-Jewish Proverb
+Melanie Koulouris
