@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The hardest thing to find in life is happiness - money is only hard to find because it gets wasted trying to find happiness.**
+**Strength is the product of struggle. You must do what others don't to achieve what others wont.**
 
-Unknown
+Henry Rollins
