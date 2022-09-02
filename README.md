@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest ability as humans is not to change the world; but to change ourselves.**
+**Pain has taught me to appreciate the things that don't hurt.**
 
-Mahatma Gandhi
+Melissa Tripp
