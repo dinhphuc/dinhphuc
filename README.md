@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pain has taught me to appreciate the things that don't hurt.**
+**Let your smile change the world, but don't let the world change your smile.**
 
-Melissa Tripp
+Anonymous
