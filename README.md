@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is a succession of lessons which must be lived to be understood.**
+**Be humble in your confidence yet courageous in your character.**
 
-Ralph Waldo Emerson
+Melanie Koulouris
