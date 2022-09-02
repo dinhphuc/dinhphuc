@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What keeps me going is goals.**
+**One day I'll be at the place I always wanted to be.**
 
-Muhammad Ali
+Anonymous
