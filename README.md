@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Almost every successful person begins their journey with two core beliefs: the future can be better than the present, and I have the power to make it so.**
+**Your time is limited, so don't waste it living someone else's life.**
 
-Anonymous
+Steve Jobs
