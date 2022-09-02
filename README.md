@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Cheerfulness is the very flower of health.**
+**If you can't stop thinking about it, don't stop working for it.**
 
 Anonymous
