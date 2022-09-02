@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Even if I knew that tomorrow the world would go to pieces, I would still plant my apple tree.**
+**Life is a succession of lessons which must be lived to be understood.**
 
-Martin Luther
+Ralph Waldo Emerson
