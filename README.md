@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Where there is love there is life.**
+**Even if I knew that tomorrow the world would go to pieces, I would still plant my apple tree.**
 
-Mahatma Gandhi
+Martin Luther
