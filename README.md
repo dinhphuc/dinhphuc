@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One often meets his destiny on the road he takes to avoid it.**
+**It's not what you look at that matters, it's what you see.**
 
-Master Oogway
+Henry David Thoreau
