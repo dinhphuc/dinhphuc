@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It only takes one person to make you happy and change your life: YOU.**
+**Nobody who ever gave their best regretted it.**
 
-Charles Orlando
+George Halas
