@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Wherever you go, go with all your heart.**
+**You don't have to control your thoughts; you just have to stop letting them control you.**
 
-Confucius
+Dan Millman
