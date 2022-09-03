@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One conquers the world by conquering himself.**
+**When it gets difficult is often right before you succeed.**
 
-Zeno of Citium
+Jeffrey Walker
