@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are enough, just as you are.**
+**Remember that guy that gave up? Neither does anyone else.**
 
 Anonymous
