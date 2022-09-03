@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Choosing to be positive and having a grateful attitude is going to determine how you're going to live your life.**
+**One conquers the world by conquering himself.**
 
-Joel Osteen
+Zeno of Citium
