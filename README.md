@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody can make you to feel inferior without your consent.**
+**Wherever you go, go with all your heart.**
 
-Eleanor Roosevelt
+Confucius
