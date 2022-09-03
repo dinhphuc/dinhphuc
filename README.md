@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't have to control your thoughts; you just have to stop letting them control you.**
+**Education is the most powerful weapon which you can use to change the world.**
 
-Dan Millman
+Nelson Mandela
