@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happy people don't have the best of everything they make the best of everything.**
+**Choose kindness and laugh often.**
 
 Anonymous
