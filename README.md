@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The harder the struggle, the more glorious the triumph.**
+**It only takes one person to make you happy and change your life: YOU.**
 
-Anonymous
+Charles Orlando
