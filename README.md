@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You may be disappointed if you fail, but you are doomed if you don't try.**
+**Happy people don't have the best of everything they make the best of everything.**
 
-Beverly Sills
+Anonymous
