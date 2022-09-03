@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Continuous effort - not strength or intelligence - is the key to unlocking our potential.**
+**Very little is needed to make a happy life; it is all within yourself, in your way of thinking.**
 
-Liane Cardes
+Marcus Aurelius
