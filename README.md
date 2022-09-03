@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not what you look at that matters, it's what you see.**
+**You don't find will power, you create it.**
 
-Henry David Thoreau
+Anonymous
