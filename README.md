@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody who ever gave their best regretted it.**
+**Every strike brings me closer to the next home run.**
 
-George Halas
+Babe Ruth
