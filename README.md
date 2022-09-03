@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Choose kindness and laugh often.**
+**Life is short, and it is up to you to make it sweet.**
 
-Anonymous
+Sarah Louise Delany
