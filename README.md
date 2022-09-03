@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is short, and it is up to you to make it sweet.**
+**Choosing to be positive and having a grateful attitude is going to determine how you're going to live your life.**
 
-Sarah Louise Delany
+Joel Osteen
