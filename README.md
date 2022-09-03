@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no greater miracle than our conscious efforts to become good human beings.**
+**Remember that guy that gave up? Neither does anyone else.**
 
-Sri Chinmoy
+Anonymous
