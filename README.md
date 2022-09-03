@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't find will power, you create it.**
+**There is no greater miracle than our conscious efforts to become good human beings.**
 
-Anonymous
+Sri Chinmoy
