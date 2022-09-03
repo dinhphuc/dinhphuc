@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When it gets difficult is often right before you succeed.**
+**Nobody can make you to feel inferior without your consent.**
 
-Jeffrey Walker
+Eleanor Roosevelt
