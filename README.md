@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The sun itself is weak when it first rises, and gathers strength and courage as the day gets on.**
+**Today, give a stranger one of your smiles. It might be the only sunshine they see all day.**
 
-Charles Dickens
+H. Jackson Brown Jr
