@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Acting on a good idea is better than just having a good idea.**
+**Happiness is the secret to all beauty. There is no beauty without happiness.**
 
-Robert Half
+Christian Dior
