@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To be the best, you must be able to handle the worst.**
+**Courage is taking those first steps toward your dreams even if you can't see the path ahead.**
 
-Wilson Kanadi
+Anonymous
