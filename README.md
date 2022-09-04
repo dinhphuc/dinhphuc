@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every strike brings me closer to the next home run.**
+**Attachment leads to jealously. The shadow of greed, that is.**
 
-Babe Ruth
+Yoda
