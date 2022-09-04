@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be so good they can't ignore you.**
+**When it comes to success, there are no shortcuts.**
 
-Steve Martin
+Bo Bennett
