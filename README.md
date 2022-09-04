@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's better to light a candle than curse the darkness.**
+**You don't manifest dreams without taking chances.**
 
-Chinese Proverb
+Stephen Richards
