@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Attitude is everything. New day, new strength, new thoughts.**
+**Be so good they can't ignore you.**
 
-Anonymous
+Steve Martin
