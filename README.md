@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't cry because it's over, smile because it happened.**
+**Everything you've ever wanted is on the other side of fear.**
 
-Dr. Seuss
+George Addair
