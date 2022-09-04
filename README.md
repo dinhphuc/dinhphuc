@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
+**The secret of success is to do the common thing uncommonly well.**
 
-Wayne Dyer
+John D. Rockefeller Jr
