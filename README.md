@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When it comes to success, there are no shortcuts.**
+**It always seems impossible until it's done.**
 
-Bo Bennett
+Nelson Mandela
