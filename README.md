@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of success is to do the common thing uncommonly well.**
+**The sun itself is weak when it first rises, and gathers strength and courage as the day gets on.**
 
-John D. Rockefeller Jr
+Charles Dickens
