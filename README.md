@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Impossible is nothing.**
+**It's better to light a candle than curse the darkness.**
 
-Muhammad Ali
+Chinese Proverb
