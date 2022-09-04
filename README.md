@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Today, give a stranger one of your smiles. It might be the only sunshine they see all day.**
+**When life puts you in tough situations, don't say "why me?" say "try me".**
 
-H. Jackson Brown Jr
+Anonymous
