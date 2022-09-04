@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't manifest dreams without taking chances.**
+**Passion first and everything will fall into place.**
 
-Stephen Richards
+Holly Holm
