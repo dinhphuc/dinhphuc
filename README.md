@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**So certain were you. Go back and closer you must look.**
+**That is bad news... if you do not believe in yourself.**
 
-Yoda
+Master Oogway
