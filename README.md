@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe in yourself and you can be anything.**
+**If it is not right, do not do it, if it is not true, do not say it.**
 
-Katy Perry
+Marcus Aurelius
