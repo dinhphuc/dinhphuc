@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is the secret to all beauty. There is no beauty without happiness.**
+**Champions play to win. Failure is just feedback. There's everything to gain by trying your best.**
 
-Christian Dior
+Jim Afremow
