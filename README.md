@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Attachment leads to jealously. The shadow of greed, that is.**
+**Impossible is nothing.**
 
-Yoda
+Muhammad Ali
