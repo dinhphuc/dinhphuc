@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every strike brings me closer to the next home run.**
+**To be the best, you must be able to handle the worst.**
 
-Babe Ruth
+Wilson Kanadi
