@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything you've ever wanted is on the other side of fear.**
+**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
 
-George Addair
+Wayne Dyer
