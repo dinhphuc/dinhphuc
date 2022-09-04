@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It always seems impossible until it's done.**
+**So certain were you. Go back and closer you must look.**
 
-Nelson Mandela
+Yoda
