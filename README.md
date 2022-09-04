@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We know what we are, but know not what we may be.**
+**Happiness is the secret to all beauty. There is no beauty without happiness.**
 
-William Shakespeare
+Christian Dior
