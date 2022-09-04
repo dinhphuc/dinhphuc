@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When life puts you in tough situations, don't say "why me?" say "try me".**
+**We know what we are, but know not what we may be.**
 
-Anonymous
+William Shakespeare
