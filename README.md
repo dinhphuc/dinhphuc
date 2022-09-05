@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Earn your confidence, nurture it, then help to build it in others.**
+**Attachment leads to jealously. The shadow of greed, that is.**
 
-Alex Malley
+Yoda
