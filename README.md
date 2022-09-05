@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love has no age, no limit; and no death.**
+**Don't downgrade your dream just to fit your reality. Upgrade your conviction to match your destiny.**
 
-John Galsworthy
+John Assaraf
