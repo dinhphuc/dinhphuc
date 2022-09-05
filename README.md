@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Attachment leads to jealously. The shadow of greed, that is.**
+**It's going to be hard. But hard is not impossible.**
 
-Yoda
+Anonymous
