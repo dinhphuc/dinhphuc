@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Float like a butterfly, sting like a bee.**
+**I've never let anyone talk me into not believing in myself.**
 
 Muhammad Ali
