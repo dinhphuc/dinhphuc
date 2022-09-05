@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To give anything less than your best is to sacrifice the gift.**
+**Instead of worrying about what you cannot control, shift your energy to what you can create.**
 
-Steve Prefontaine
+Roy T. Bennett
