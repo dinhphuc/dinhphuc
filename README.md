@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will be blessed the moment you realize you already are.**
+**Open your eyes and notice the beauty of this wonderful world.**
 
-Bryant Mcgill
+Anonymous
