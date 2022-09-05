@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live your life for you.**
+**To give anything less than your best is to sacrifice the gift.**
 
-Anonymous
+Steve Prefontaine
