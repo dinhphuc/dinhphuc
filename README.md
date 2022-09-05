@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't downgrade your dream just to fit your reality. Upgrade your conviction to match your destiny.**
+**You've got to find people who love like you do.**
 
-John Assaraf
+Anonymous
