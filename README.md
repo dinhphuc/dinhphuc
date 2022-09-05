@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Before telling secrets on the road, look in the bushes.**
+**You're going to go through tough times - that's life. But I say, 'Nothing happens to you, it happens for you.' See the positive in negative events.**
 
-Chinese Proverb
+Joel Osteen
