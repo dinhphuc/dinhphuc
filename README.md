@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is a difference between giving up and knowing when you've had enough.**
+**I can't change the direction of the wind, but I can adjust my sails to always reach my destination.**
 
-Anonymous
+Jimmy Dean
