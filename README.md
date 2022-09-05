@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm too grateful to be hateful. I am too blessed to be stressed.**
+**Success is what comes after you stop making excuses.**
 
-El DeBarge
+Luis Galarza
