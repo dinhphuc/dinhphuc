@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There will be obstacles. There will be doubters. There will be mistakes. But with hard work, there are no limits.**
+**You can alter mood by running.**
 
-Anonymous
+Tumpal Sihombing
