@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is what comes after you stop making excuses.**
+**Being deeply loved by someone gives you strength, while loving someone deeply gives you courage.**
 
-Luis Galarza
+Lao-Tzu
