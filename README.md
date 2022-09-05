@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Surround yourself with only people who are going to lift you higher.**
+**Love has no age, no limit; and no death.**
 
-Oprah
+John Galsworthy
