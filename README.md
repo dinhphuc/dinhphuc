@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I've never let anyone talk me into not believing in myself.**
+**Surround yourself with only people who are going to lift you higher.**
 
-Muhammad Ali
+Oprah
