@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can alter mood by running.**
+**There is a difference between giving up and knowing when you've had enough.**
 
-Tumpal Sihombing
+Anonymous
