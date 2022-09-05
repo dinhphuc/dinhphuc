@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Staying positive does not mean that things will turn out okay. Rather it is knowing that you will be okay no matter how things turn out.**
+**There will be obstacles. There will be doubters. There will be mistakes. But with hard work, there are no limits.**
 
 Anonymous
