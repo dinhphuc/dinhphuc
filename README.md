@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Instead of worrying about what you cannot control, shift your energy to what you can create.**
+**Float like a butterfly, sting like a bee.**
 
-Roy T. Bennett
+Muhammad Ali
