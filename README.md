@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We must embrace pain and burn it as fuel for our journey.**
+**In matters of style, swim with the current; in matters of principle, stand like a rock.**
 
-Kenji Miyazawa
+Thomas Jefferson
