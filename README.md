@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You've got to find people who love like you do.**
+**You will be blessed the moment you realize you already are.**
 
-Anonymous
+Bryant Mcgill
