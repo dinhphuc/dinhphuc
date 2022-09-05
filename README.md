@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In matters of style, swim with the current; in matters of principle, stand like a rock.**
+**Trust the process of life.**
 
-Thomas Jefferson
+Anonymous
