@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I can't change the direction of the wind, but I can adjust my sails to always reach my destination.**
+**Very little is needed to make a happy life; it is all within yourself, in your way of thinking.**
 
-Jimmy Dean
+Marcus Aurelius
