@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Tension is who you think you should be. Relaxation is who you are.**
+**We must embrace pain and burn it as fuel for our journey.**
 
-Jim Afremow
+Kenji Miyazawa
