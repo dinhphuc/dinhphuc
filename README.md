@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It takes but one positive thought when given a chance to survive and thrive to overpower an entire army of negative thoughts.**
+**Tension is who you think you should be. Relaxation is who you are.**
 
-Robert H. Schuller
+Jim Afremow
