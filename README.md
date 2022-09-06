@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your time is limited, so don't waste it living someone else's life.**
+**Often it isn't the mountains ahead that wear you out, it's the little pebble in your shoe.**
 
-Steve Jobs
+Muhammad Ali
