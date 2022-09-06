@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In a battle between elephants, the ants get squashed.**
+**Always remember that you are absolutely unique. Just like everyone else.**
 
-Thai Proverb
+Margaret Mead
