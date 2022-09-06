@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can dream it, then you can achieve it.**
+**I will not follow where the path may lead, but I will go where there is no path, and I will leave a trail.**
 
-Zig Ziglar
+Muriel Strode
