@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Often it isn't the mountains ahead that wear you out, it's the little pebble in your shoe.**
+**There is a difference between giving up and knowing when you've had enough.**
 
-Muhammad Ali
+Anonymous
