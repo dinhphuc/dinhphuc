@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always remember that you are absolutely unique. Just like everyone else.**
+**Hard times don't create heroes. It is during the hard times when the 'hero' within us is revealed.**
 
-Margaret Mead
+Bob Riley
