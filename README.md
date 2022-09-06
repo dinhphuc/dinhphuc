@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Enjoy the little things, for one day you may look back and realize they were the big things.**
+**Certain things catch your eye, but pursue only those that capture the heart.**
 
-Robert Brault
+Ancient Indian Proverb
