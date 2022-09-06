@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you look at what you have in life, you'll always have more. If you look at what you don't have in life, you'll never have enough.**
+**Wisdom is knowing when you can't be wise.**
 
-Oprah Winfrey
+Muhammad Ali
