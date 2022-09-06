@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be the change you are trying to create.**
+**Your time is limited, so don't waste it living someone else's life.**
 
-Mahatma Gandhi
+Steve Jobs
