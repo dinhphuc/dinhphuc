@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to lift yourself up, lift up someone else.**
+**I am an ordinary man who worked hard to develop the talent I was given. I believed in myself, and I believe in the goodness of others.**
 
-Booker T. Washington
+Muhammad Ali
