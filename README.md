@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whoever is happy will make others happy too.**
+**The one who falls and gets up is so much stronger than the one who never fell.**
 
 Anonymous
