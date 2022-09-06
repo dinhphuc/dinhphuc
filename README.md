@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Certain things catch your eye, but pursue only those that capture the heart.**
+**Hustle until your haters ask if you are hiring.**
 
-Ancient Indian Proverb
+Anonymous
