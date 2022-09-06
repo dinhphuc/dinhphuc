@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile, it is the key that fits the lock of everybody's heart.**
+**If you want to lift yourself up, lift up someone else.**
 
-Anthony J D'Angelo
+Booker T. Washington
