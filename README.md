@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To fall in love with yourself is the first secret to happiness.**
+**A team is not a group of people that work together. A team is a group of people that trust each other.**
 
-Robert Morley
+Simon Sinek
