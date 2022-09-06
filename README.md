@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody can make you to feel inferior without your consent.**
+**Smile, it is the key that fits the lock of everybody's heart.**
 
-Eleanor Roosevelt
+Anthony J D'Angelo
