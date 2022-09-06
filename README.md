@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can dream it, then you can achieve it.**
+**If you get tired, learn to rest, not quit.**
 
-Zig Ziglar
+Anonymous
