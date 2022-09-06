@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is a difference between giving up and knowing when you've had enough.**
+**A truly happy person is one who can enjoy the scenery when they have made a wrong turn.**
 
 Anonymous
