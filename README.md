@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't stop until you're proud.**
+**In a battle between elephants, the ants get squashed.**
 
-Anonymous
+Thai Proverb
