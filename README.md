@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you get tired, learn to rest, not quit.**
+**Whoever is happy will make others happy too.**
 
 Anonymous
