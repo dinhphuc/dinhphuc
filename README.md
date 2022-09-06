@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence is the ability to feel beautiful, without needing someone to tell you.**
+**Always remember that you are absolutely unique. Just like everyone else.**
 
-Anonymous
+Margaret Mead
