@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Trust the process of life.**
+**Goals may give focus, but dreams give power.**
 
-Anonymous
+John Maxwell
