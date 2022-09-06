@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Goals may give focus, but dreams give power.**
+**Enjoy the little things, for one day you may look back and realize they were the big things.**
 
-John Maxwell
+Robert Brault
