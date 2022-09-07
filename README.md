@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When life puts you in tough situations, don't say "why me?" say "try me".**
+**Strength doesn't come from what you can do. It comes from overcoming the things you once thought you couldn't.**
 
-Anonymous
+Rikki Rogers
