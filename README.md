@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't wish it were easier. Wish you were better.**
+**The more you praise and celebrate your life, the more there is in life to celebrate.**
 
-Jim Rohn
+Oprah Winfrey
