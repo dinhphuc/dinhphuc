@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Maybe it won't work out. But maybe seeing if it does will be the best adventure ever.**
+**There is no charm equal to tenderness of heart.**
 
-Anonymous
+Jane Austen
