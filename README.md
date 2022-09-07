@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hard work beats talent when talent doesn't work hard.**
+**Shine like the whole universe is yours.**
 
-Tim Notke
+Rumi
