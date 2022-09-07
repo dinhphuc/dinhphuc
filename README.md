@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The harder the battle. The sweeter the victory.**
+**Mistakes are proof that you are trying.**
 
-Les Brown
+Anonymous
