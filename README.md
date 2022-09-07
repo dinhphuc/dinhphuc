@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Go after the things you want.**
+**Hard work beats talent when talent doesn't work hard.**
 
-Simon Sinek
+Tim Notke
