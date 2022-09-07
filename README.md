@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you have only one smile in you, give it to the people you love.**
+**Optimism is a happiness magnet. If you stay positive, good things and good people will be drawn to you.**
 
-Maya Angelou
+Mary Lou Retton
