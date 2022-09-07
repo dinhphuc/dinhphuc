@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Shine like the whole universe is yours.**
+**The harder the battle. The sweeter the victory.**
 
-Rumi
+Les Brown
