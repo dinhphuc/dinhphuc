@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength doesn't come from what you can do. It comes from overcoming the things you once thought you couldn't.**
+**Don't wish it were easier. Wish you were better.**
 
-Rikki Rogers
+Jim Rohn
