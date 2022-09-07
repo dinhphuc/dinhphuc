@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We are made to persist. That's how we find out who we are.**
+**Go after the things you want.**
 
-Tobias Wolff
+Simon Sinek
