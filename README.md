@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Optimism is a happiness magnet. If you stay positive, good things and good people will be drawn to you.**
+**Happiness can be found, even in the darkest of times, if one only remembers to turn on the light.**
 
-Mary Lou Retton
+Anonymous
