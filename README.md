@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Start doing things to make you happy.**
+**When you are enthusiastic about what you do, you feel this positive energy. It's very simple.**
 
-Reyna Biddy
+Paulo Coelho
