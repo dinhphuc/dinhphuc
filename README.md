@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only those who dare to fail greatly can ever achieve greatly.**
+**When life puts you in tough situations, don't say "why me?" say "try me".**
 
-Robert F. Kennedy
+Anonymous
