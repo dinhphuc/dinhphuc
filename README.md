@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Great minds discuss ideas; average minds discuss events; small minds discuss people.**
+**Keep your face always toward the sunshine - and shadows will fall behind you.**
 
-Eleanor Roosevelt
+Walt Whitman
