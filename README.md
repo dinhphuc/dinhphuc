@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The one who falls and gets up is so much stronger than the one who never fell.**
+**Only those who dare to fail greatly can ever achieve greatly.**
 
-Anonymous
+Robert F. Kennedy
