@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Winning doesn't always mean being first. Winning means you're doing better than you've done before.**
+**We are made to persist. That's how we find out who we are.**
 
-Bonnie Blair
+Tobias Wolff
