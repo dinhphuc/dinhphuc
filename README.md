@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Mistakes are proof that you are trying.**
+**Great minds discuss ideas; average minds discuss events; small minds discuss people.**
 
-Anonymous
+Eleanor Roosevelt
