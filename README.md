@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your positive action combined with positive thinking results in success.**
+**The one who falls and gets up is so much stronger than the one who never fell.**
 
 Anonymous
