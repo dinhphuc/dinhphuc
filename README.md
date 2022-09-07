@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**More smiling, less worrying. More compassion, less judgment. More blessed, less stressed. More love, less hate.**
+**Winning doesn't always mean being first. Winning means you're doing better than you've done before.**
 
-Roy T. Bennett
+Bonnie Blair
