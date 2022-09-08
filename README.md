@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is a succession of lessons which must be lived to be understood.**
+**Confidence comes from discipline and training.**
 
-Ralph Waldo Emerson
+Robert Kiyosaki
