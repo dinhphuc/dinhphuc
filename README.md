@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't wish it were easier. Wish you were better.**
+**Success trains. Failure complains.**
 
-Jim Rohn
+Anonymous
