@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Working hard for something we don't care about is called stress; working hard for somthing we love is called passion.**
+**Your life does not get better by chance, it gets better by change.**
 
-Simon Sinek
+Anonymous
