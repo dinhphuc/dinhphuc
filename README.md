@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not who you are that holds you back, it's who you think you're not.**
+**No matter how much it hurts, hold your head up and keep going.**
 
 Anonymous
