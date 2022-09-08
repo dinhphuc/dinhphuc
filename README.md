@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I attribute my success to this: I never gave or took any excuse.**
+**Success trains. Failure complains.**
 
-Florence Nightingale
+Anonymous
