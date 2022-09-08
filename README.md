@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how much it hurts, hold your head up and keep going.**
+**Don't wish it were easier. Wish you were better.**
 
-Anonymous
+Jim Rohn
