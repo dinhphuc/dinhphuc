@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't wish it were easier. Wish you were better.**
+**If you really look closely, most overnight successes took a long time.**
 
-Jim Rohn
+Steve Jobs
