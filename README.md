@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Walk on with hope in your heart, and you'll never walk alone.**
+**Life is a succession of lessons which must be lived to be understood.**
 
-Shah Rukh Khan
+Ralph Waldo Emerson
