@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can either complain about it or grind, I choose to grind.**
+**Everything you've ever wanted is on the other side of fear.**
 
-Kyle Vidrine
+George Addair
