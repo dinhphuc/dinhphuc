@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is only possible to live happily ever after on a daily basis.**
+**Be happy, be yourself, and if others don't like it, let them be. Your happiness is a choice. Life isn't about pleasing everybody, so do you.**
 
 Anonymous
