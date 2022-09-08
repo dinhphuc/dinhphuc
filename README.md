@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Make each day your masterpiece.**
+**In a dark place we find ourselves, and a little more knowledge lights our way.**
 
-John Wooden
+Yoda
