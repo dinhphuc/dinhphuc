@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There's never enough time to do everything, but there's always enough time to do the most important thing.**
+**It is only possible to live happily ever after on a daily basis.**
 
-Dean Bokhari
+Anonymous
