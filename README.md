@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The more you praise and celebrate your life, the more there is in life to celebrate.**
+**Walk on with hope in your heart, and you'll never walk alone.**
 
-Oprah Winfrey
+Shah Rukh Khan
