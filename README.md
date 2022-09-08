@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always find opportunities to make someone smile, and to offer random acts of kindness in everyday life.**
+**I attribute my success to this: I never gave or took any excuse.**
 
-Roy T. Bennett
+Florence Nightingale
