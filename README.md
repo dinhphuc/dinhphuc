@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't wish it were easier. Wish you were better.**
+**At first they'll ask you why you're doing it. Later they'll ask how you did it.**
 
-Jim Rohn
+Anonymous
