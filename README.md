@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your life does not get better by chance, it gets better by change.**
+**You can either complain about it or grind, I choose to grind.**
 
-Anonymous
+Kyle Vidrine
