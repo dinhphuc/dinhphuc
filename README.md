@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In a dark place we find ourselves, and a little more knowledge lights our way.**
+**Always find opportunities to make someone smile, and to offer random acts of kindness in everyday life.**
 
-Yoda
+Roy T. Bennett
