@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything you've ever wanted is on the other side of fear.**
+**There's never enough time to do everything, but there's always enough time to do the most important thing.**
 
-George Addair
+Dean Bokhari
