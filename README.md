@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love who you are, embrace who you are. Love yourself.**
+**It's not who you are that holds you back, it's who you think you're not.**
 
-Lilly Singh
+Anonymous
