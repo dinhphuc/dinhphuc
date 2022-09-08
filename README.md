@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence comes from discipline and training.**
+**Impossible is nothing.**
 
-Robert Kiyosaki
+Muhammad Ali
