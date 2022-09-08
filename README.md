@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Impossible is nothing.**
+**Love who you are, embrace who you are. Love yourself.**
 
-Muhammad Ali
+Lilly Singh
