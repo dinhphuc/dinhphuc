@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always find opportunities to make someone smile, and to offer random acts of kindness in everyday life.**
+**Until you're broken, you don't know what you're made of.**
 
-Roy T. Bennett
+Anonymous
