@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**None of us is as smart as all of us.**
+**Never stop trying. Never stop believing. Never give up. Your day will come.**
 
-Ken Blanchard
+Anonymous
