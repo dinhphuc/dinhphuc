@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Plenty of people miss their share of happiness, not because they never found it, but because they didn't stop to enjoy it.**
+**When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.**
 
-William Feather
+Henry Ford
