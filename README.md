@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence is something you create in yourself by believing in who you are.**
+**You've got to be willing to lose everything to gain yourself.**
 
-Anonymous
+Iyanla Vanzant
