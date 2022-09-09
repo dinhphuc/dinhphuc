@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe and act as if it were impossible to fail.**
+**Always find opportunities to make someone smile, and to offer random acts of kindness in everyday life.**
 
-Charles Kettering
+Roy T. Bennett
