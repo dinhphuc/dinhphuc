@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.**
+**Believe and act as if it were impossible to fail.**
 
-Henry Ford
+Charles Kettering
