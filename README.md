@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never stop trying. Never stop believing. Never give up. Your day will come.**
+**No marathon gets easier later. The halfway point only marks the end of the beginning.**
 
-Anonymous
+Joe Henderson
