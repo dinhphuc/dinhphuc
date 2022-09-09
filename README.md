@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Champions keep playing until they get it right.**
+**A team is not a group of people that work together. A team is a group of people that trust each other.**
 
-Billie Jean King
+Simon Sinek
