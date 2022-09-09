@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Learn to value yourself, which means: fight for your happiness.**
+**Love is not running away or giving up, it is standing and fighting for every moment.**
 
-Ayn Rand
+M.F. Moonzajer
