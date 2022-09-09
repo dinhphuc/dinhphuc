@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No marathon gets easier later. The halfway point only marks the end of the beginning.**
+**Life is really simple, but we insist on making it complicated.**
 
-Joe Henderson
+Confucius
