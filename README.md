@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success trains. Failure complains.**
+**Champions keep playing until they get it right.**
 
-Anonymous
+Billie Jean King
