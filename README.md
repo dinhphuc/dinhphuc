@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Better than a thousand days of diligent study is one day with a great teacher.**
+**You can if you think you can.**
 
-Jim Afremow
+George Reeves
