@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is no accident. It is hard work, perseverance, learning, studying, sacrifice and most of all, love of what you are doing or learning to do.**
+**Better than a thousand days of diligent study is one day with a great teacher.**
 
-Pele
+Jim Afremow
