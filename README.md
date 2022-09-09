@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A team is not a group of people that work together. A team is a group of people that trust each other.**
+**Whatever you hold in your mind on a consistent basis is exactly what you will experience in your life.**
 
-Simon Sinek
+Tony Robbins
