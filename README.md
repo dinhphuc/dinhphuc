@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is really simple, but we insist on making it complicated.**
+**Confidence is something you create in yourself by believing in who you are.**
 
-Confucius
+Anonymous
