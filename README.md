@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love is not running away or giving up, it is standing and fighting for every moment.**
+**None of us is as smart as all of us.**
 
-M.F. Moonzajer
+Ken Blanchard
