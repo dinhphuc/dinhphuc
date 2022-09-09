@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you hold in your mind on a consistent basis is exactly what you will experience in your life.**
+**Learn to value yourself, which means: fight for your happiness.**
 
-Tony Robbins
+Ayn Rand
