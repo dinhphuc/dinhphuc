@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't want to look back and know you could have done better.**
+**That is bad news... if you do not believe in yourself.**
 
-Anonymous
+Master Oogway
