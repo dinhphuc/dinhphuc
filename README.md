@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Until you're broken, you don't know what you're made of.**
+**You don't want to look back and know you could have done better.**
 
 Anonymous
