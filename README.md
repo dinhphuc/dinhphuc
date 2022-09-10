@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love has no age, no limit; and no death.**
+**To know the road ahead, ask those coming back.**
 
-John Galsworthy
+Chinese Proverb
