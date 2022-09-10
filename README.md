@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not the mountain we conquer, but ourselves.**
+**Stay strong. You never know who you are inspiring.**
 
-Sir Edmund Hillary
+Anonymous
