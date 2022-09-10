@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness resides not in possessions, and not in gold, happiness dwells in the soul.**
+**Do something today that your future self will thank you for.**
 
-Democritus
+Anonymous
