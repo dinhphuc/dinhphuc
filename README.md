@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I attribute my success to this: I never gave or took any excuse.**
+**Working hard for something we don't care about is called stress; working hard for somthing we love is called passion.**
 
-Florence Nightingale
+Simon Sinek
