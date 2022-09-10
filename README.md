@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pain is temporary. Quitting lasts forever.**
+**Life is not a problem to be solved, but a reality to be experienced.**
 
-Lance Armstrong
+Soren Kierkegaard
