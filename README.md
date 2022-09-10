@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't wait around for other people to be happy for you. Any happiness you get, you've got to make yourself.**
+**Love has no age, no limit; and no death.**
 
-Alice Walker
+John Galsworthy
