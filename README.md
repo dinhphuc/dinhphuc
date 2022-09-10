@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love isn't something you find. Love is something that finds you.**
+**Almost every successful person begins their journey with two core beliefs: the future can be better than the present, and I have the power to make it so.**
 
-Loretta Young
+Anonymous
