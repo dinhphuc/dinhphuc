@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Positive thinking will let you do everything better than negative thinking will.**
+**Love has no age, no limit; and no death.**
 
-Zig Ziglar
+John Galsworthy
