@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To know the road ahead, ask those coming back.**
+**Find a place inside where there's joy, and the joy will burn out the pain.**
 
-Chinese Proverb
+Joseph Campbell
