@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The purpose of our lives is to be happy.**
+**We either make ourselves miserable or we make ourselves strong. The amount of work is the same.**
 
-Dalai Lama
+Carlos Costaneda
