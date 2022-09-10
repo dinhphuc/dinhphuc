@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Positive anything is better than negative nothing.**
+**Honesty is the first chapter in the book of wisdom.**
 
-Elbert Hubbard
+Thomas Jefferson
