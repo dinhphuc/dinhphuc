@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do something today that your future self will thank you for.**
+**Pain is temporary. Quitting lasts forever.**
 
-Anonymous
+Lance Armstrong
