@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't ask what the world needs. Ask what makes you come alive and go do it. Because what the world needs is more people who have come alive.**
+**One day you will wake up and there won't be any time to do the things you've always wanted to do. Do it now.**
 
-Howard Thurman
+Paulo Coelho
