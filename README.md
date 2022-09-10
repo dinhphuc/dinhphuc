@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Stay strong. You never know who you are inspiring.**
+**The purpose of our lives is to be happy.**
 
-Anonymous
+Dalai Lama
