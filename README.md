@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is short, and it is up to you to make it sweet.**
+**Strength isn't about how much you can handle before you break. It's about how much you can endure after you've been broken.**
 
-Sarah Louise Delany
+Anonymous
