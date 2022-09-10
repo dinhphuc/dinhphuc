@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We either make ourselves miserable or we make ourselves strong. The amount of work is the same.**
+**Skill is only developed by hours and hours of work.**
 
-Carlos Costaneda
+Usain Bolt
