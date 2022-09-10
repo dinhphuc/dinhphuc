@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't just glov, dazzle.**
+**Happiness resides not in possessions, and not in gold, happiness dwells in the soul.**
 
-Anonymous
+Democritus
