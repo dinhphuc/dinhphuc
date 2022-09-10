@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Working hard for something we don't care about is called stress; working hard for somthing we love is called passion.**
+**Love isn't something you find. Love is something that finds you.**
 
-Simon Sinek
+Loretta Young
