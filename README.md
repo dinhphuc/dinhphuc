@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Find a place inside where there's joy, and the joy will burn out the pain.**
+**Positive anything is better than negative nothing.**
 
-Joseph Campbell
+Elbert Hubbard
