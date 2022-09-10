@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Skill is only developed by hours and hours of work.**
+**Don't just glov, dazzle.**
 
-Usain Bolt
+Anonymous
