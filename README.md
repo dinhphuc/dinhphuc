@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All that matters is how you see yourself.**
+**Life is short, and it is up to you to make it sweet.**
 
-Conor McGregor
+Sarah Louise Delany
