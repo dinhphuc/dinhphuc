@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One day you will wake up and there won't be any time to do the things you've always wanted to do. Do it now.**
+**Don't wait around for other people to be happy for you. Any happiness you get, you've got to make yourself.**
 
-Paulo Coelho
+Alice Walker
