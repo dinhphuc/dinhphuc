@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Honesty is the first chapter in the book of wisdom.**
+**All that matters is how you see yourself.**
 
-Thomas Jefferson
+Conor McGregor
