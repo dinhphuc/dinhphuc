@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The more positive thoughts you have, the better you feel, which causes you to have more positive thoughts, then you feel even better.**
+**Whenever you see a successful person, you only see the public glories, never the private sacrifices to reach them.**
 
-James Borg
+Vaibhav Shah
