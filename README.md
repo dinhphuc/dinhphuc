@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your hardest times often lead to the greatest moments of your life. Keep going. Tough situations build strong people in the end.**
+**Positive thinking will let you do everything better than negative thinking will.**
 
-Roy T. Bennett
+Zig Ziglar
