@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In every success story, you will find someone who made a courageous decision.**
+**If you're going through hell, keep going.**
 
-Peter Drucker
+Winston Churchill
