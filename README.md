@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you love what you have, you have everything you need.**
+**I learned that courage was not the absence of fear, but the triumph over it.**
 
-Anonymous
+Nelson Mandela
