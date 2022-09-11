@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be afraid to give up the good to go for the great.**
+**The first duty of love is to listen.**
 
-John D. Rockefeller
+Paul Tillich
