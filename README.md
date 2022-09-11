@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In a battle between elephants, the ants get squashed.**
+**The greatest victory in life is to rise above the material things that we once valued most.**
 
-Thai Proverb
+Muhammad Ali
