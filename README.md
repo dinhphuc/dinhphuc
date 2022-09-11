@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest victory in life is to rise above the material things that we once valued most.**
+**The first place where self-esteem begins its journey is within us.**
 
-Muhammad Ali
+Stephen Richards
