@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is during our darkest moments that we must focus to see the light.**
+**Everything you can imagine is real.**
 
-Aristotle Onassis
+Pablo Picasso
