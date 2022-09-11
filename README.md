@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If I have the belief that I can do it, I shall surely acquire the capacity to do it even if I may not have it at the beginning.**
+**The greatest victory in life is to rise above the material things that we once valued most.**
 
-Gandhi
+Muhammad Ali
