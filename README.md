@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're going through hell, keep going.**
+**Because of your smile, you make life more beautiful.**
 
-Winston Churchill
+Thich Nhat Hanh
