@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Walk on with hope in your heart, and you'll never walk alone.**
+**Nothing will work unless you do.**
 
-Shah Rukh Khan
+Maya Angelou
