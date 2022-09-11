@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything you can imagine is real.**
+**Nothing will work unless you do.**
 
-Pablo Picasso
+Maya Angelou
