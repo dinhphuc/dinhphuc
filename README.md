@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It matters not what someone is born, but what they grow to be.**
+**It is during our darkest moments that we must focus to see the light.**
 
-Master Oogway
+Aristotle Onassis
