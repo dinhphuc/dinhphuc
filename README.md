@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The first place where self-esteem begins its journey is within us.**
+**To give anything less than your best is to sacrifice the gift.**
 
-Stephen Richards
+Steve Prefontaine
