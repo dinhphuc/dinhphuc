@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The first duty of love is to listen.**
+**Just think how happy you would be if you lost everything you have right now, and then got it back again.**
 
-Paul Tillich
+Frances Rodman
