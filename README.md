@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To give anything less than your best is to sacrifice the gift.**
+**Be you. Do you. For you.**
 
-Steve Prefontaine
+Anonymous
