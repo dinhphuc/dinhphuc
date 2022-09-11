@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing will work unless you do.**
+**In a battle between elephants, the ants get squashed.**
 
-Maya Angelou
+Thai Proverb
