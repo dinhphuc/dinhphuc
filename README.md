@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The first duty of love is to listen.**
+**It matters not what someone is born, but what they grow to be.**
 
-Paul Tillich
+Master Oogway
