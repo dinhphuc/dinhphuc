@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**For every minute you are angry you lose sixty seconds of happiness.**
+**In every success story, you will find someone who made a courageous decision.**
 
-Ralph Waldo Emerson
+Peter Drucker
