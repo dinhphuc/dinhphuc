@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm not telling you it is going to be easy, I'm telling you it's going to be worth it.**
+**Don't be afraid to give up the good to go for the great.**
 
-Art Williams
+John D. Rockefeller
