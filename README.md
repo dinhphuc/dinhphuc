@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**As we express our gratitude, we must never forget that the highest appreciation is not to utter words, but to live by them.**
+**For every minute you are angry you lose sixty seconds of happiness.**
 
-John F. Kennedy
+Ralph Waldo Emerson
