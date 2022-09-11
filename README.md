@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life works for my benefit.**
+**The journey of a thousand miles begins with one step.**
 
-Anonymous
+Lao Tzu
