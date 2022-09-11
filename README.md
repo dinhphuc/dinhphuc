@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Losers quit when they're tired. Winners quit when they've won.**
+**Sometimes the bravest thing you can do is to keep going when you really feel like giving up.**
 
 Anonymous
