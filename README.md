@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whenever you see a successful person, you only see the public glories, never the private sacrifices to reach them.**
+**I'm not telling you it is going to be easy, I'm telling you it's going to be worth it.**
 
-Vaibhav Shah
+Art Williams
