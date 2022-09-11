@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When it comes to success, there are no shortcuts.**
+**When you love what you have, you have everything you need.**
 
-Bo Bennett
+Anonymous
