@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep your face always toward the sunshine - and shadows will fall behind you.**
+**When it comes to success, there are no shortcuts.**
 
-Walt Whitman
+Bo Bennett
