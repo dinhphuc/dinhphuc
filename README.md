@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every morning you have a new opportunity to become a happier version of yourself.**
+**Sometimes the bravest thing you can do is to keep going when you really feel like giving up.**
 
 Anonymous
