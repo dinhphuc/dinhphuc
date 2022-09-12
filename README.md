@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**With virtue, you can't be completely poor; without it, you can't be truly rich.**
+**Attachment leads to jealously. The shadow of greed, that is.**
 
-Chinese Proverb
+Yoda
