@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't give up on yourself. You're worth it.**
+**Learning never exhausts the mind.**
 
-Anonymous
+Leonardo da Vinci
