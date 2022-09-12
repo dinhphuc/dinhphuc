@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Self-control is strength. Right thought is mastery. Calmness is power.**
+**Love who you are, embrace who you are. Love yourself.**
 
-James Allen
+Lilly Singh
