@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never let the fear of striking out keep you from playing the game.**
+**It's not about perfect. It's about effort.**
 
-Babe Ruth
+Jillian Michaels
