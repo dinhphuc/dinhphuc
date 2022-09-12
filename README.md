@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you set your goals ridiculously high and it's a failure, you will fail above everyone else's success.**
+**Live for yourself and don't ever stop.**
 
-James Cameron
+John Tew
