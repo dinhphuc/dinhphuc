@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A runner must run with dreams in his heart.**
+**Don't give up on yourself. You're worth it.**
 
-Emil Zatopek
+Anonymous
