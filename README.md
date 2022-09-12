@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not about perfect. It's about effort.**
+**Self-control is strength. Right thought is mastery. Calmness is power.**
 
-Jillian Michaels
+James Allen
