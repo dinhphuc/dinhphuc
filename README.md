@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Learning never exhausts the mind.**
+**Always believe that something wonderful is about to happen.**
 
-Leonardo da Vinci
+Anonymous
