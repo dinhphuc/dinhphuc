@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always believe that something wonderful is about to happen.**
+**You've never lived this day before, and you never will again. Make the most of it!**
 
 Anonymous
