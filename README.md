@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be the change you are trying to create.**
+**In this life we cannot do great things. We can only do small things with great love.**
 
-Mahatma Gandhi
+Mother Teresa
