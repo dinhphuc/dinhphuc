@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I learned that courage was not the absence of fear, but the triumph over it.**
+**A team is not a group of people that work together. A team is a group of people that trust each other.**
 
-Nelson Mandela
+Simon Sinek
