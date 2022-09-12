@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will be blessed the moment you realize you already are.**
+**The good life is a process, not a state of being. It is a direction, not a destination.**
 
-Bryant Mcgill
+Carl Rogers
