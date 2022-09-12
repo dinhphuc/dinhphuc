@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I hated every minute of training, but I said, 'Don't quit. Suffer now and live the rest of your life as a champion'.**
+**With virtue, you can't be completely poor; without it, you can't be truly rich.**
 
-Muhammad Ali
+Chinese Proverb
