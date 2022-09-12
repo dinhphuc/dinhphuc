@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live for yourself and don't ever stop.**
+**Never let the fear of striking out keep you from playing the game.**
 
-John Tew
+Babe Ruth
