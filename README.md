@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember that not getting what you want is sometimes a wonderful stroke of luck.**
+**Someone who is busier than you is running right now.**
 
-Dalai Lama
+Nike
