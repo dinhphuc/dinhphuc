@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A team is not a group of people that work together. A team is a group of people that trust each other.**
+**There are only two mistakes one can make along the road to truth; not going all the way, and not starting.**
 
-Simon Sinek
+Buddha
