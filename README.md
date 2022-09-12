@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The biggest adventure you can take is to live the life of your dreams.**
+**Remember that not getting what you want is sometimes a wonderful stroke of luck.**
 
-Oprah Winfrey
+Dalai Lama
