@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You've never lived this day before, and you never will again. Make the most of it!**
+**I hated every minute of training, but I said, 'Don't quit. Suffer now and live the rest of your life as a champion'.**
 
-Anonymous
+Muhammad Ali
