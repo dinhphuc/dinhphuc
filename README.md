@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Difficult roads always lead to beautiful destinations.**
+**When you know what you want, and want it bad enough, you'll find a way to get it.**
 
-Zig Ziglar
+Jim Rohn
