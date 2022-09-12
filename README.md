@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are only two mistakes one can make along the road to truth; not going all the way, and not starting.**
+**Be the change you are trying to create.**
 
-Buddha
+Mahatma Gandhi
