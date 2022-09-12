@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are wonderfully made.**
+**Do something today that your future self will thank you for.**
 
 Anonymous
