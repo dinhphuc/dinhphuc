@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In this life we cannot do great things. We can only do small things with great love.**
+**A runner must run with dreams in his heart.**
 
-Mother Teresa
+Emil Zatopek
