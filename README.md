@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Someone who is busier than you is running right now.**
+**If you set your goals ridiculously high and it's a failure, you will fail above everyone else's success.**
 
-Nike
+James Cameron
