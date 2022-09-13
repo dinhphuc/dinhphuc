@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The starting point of all achievement is desire.**
+**Believe with all of your heart that you will do what you were made to do.**
 
-Napoleon Hill
+Orison Swett Marden
