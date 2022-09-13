@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I think that the good and the great are only separated by the willingness to sacrifice.**
+**The things you regret most in life are the risks you didn't take.**
 
-Kareem Abdul-Jabbar
+Anonymous
