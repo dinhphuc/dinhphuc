@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We can't help everyone, but everyone can help someone.**
+**I find that the harder I work, the more luck I seem to have.**
 
-Ronald Reagan
+Thomas Jefferson
