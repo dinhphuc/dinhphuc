@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I find that the harder I work, the more luck I seem to have.**
+**Whoever gossips to you will gossip about you.**
 
-Thomas Jefferson
+Spanish Proverb
