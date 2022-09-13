@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Difficult to see. Always in motion is the future.**
+**The question isn't who is going to let me; it's who is going to stop me.**
 
-Yoda
+Ayn Rand
