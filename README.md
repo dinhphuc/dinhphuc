@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe with all of your heart that you will do what you were made to do.**
+**Your problem isn't the problem, it's your attitude about the problem.**
 
-Orison Swett Marden
+Ann Brashares
