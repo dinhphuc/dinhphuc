@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**That is bad news... if you do not believe in yourself.**
+**I think that the good and the great are only separated by the willingness to sacrifice.**
 
-Master Oogway
+Kareem Abdul-Jabbar
