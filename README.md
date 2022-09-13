@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The harder the battle. The sweeter the victory.**
+**In a battle between elephants, the ants get squashed.**
 
-Les Brown
+Thai Proverb
