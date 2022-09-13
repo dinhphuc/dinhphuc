@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your problem isn't the problem, it's your attitude about the problem.**
+**Start where you are. Use what you have. Do what you can.**
 
-Ann Brashares
+Arthur Ashe
