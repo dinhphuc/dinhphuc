@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In a battle between elephants, the ants get squashed.**
+**Get going ... walk if you have to, but finish the damned race.**
 
-Thai Proverb
+Ron Hill
