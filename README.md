@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only those who risk going too far, can possibly find out how far one can go.**
+**We can't help everyone, but everyone can help someone.**
 
-T.S. Elliot
+Ronald Reagan
