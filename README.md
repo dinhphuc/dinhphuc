@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When we point to obstacles we inhibit progress. When we offer solutions we advance.**
+**Today is a beautiful day and I will attract good things into my life.**
 
-Simon Sinek
+Anonymous
