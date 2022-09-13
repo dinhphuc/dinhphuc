@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A hero is an ordinary individual who finds the strength to persevere and endure in spite of overwhelming obstacles.**
+**Only those who risk going too far, can possibly find out how far one can go.**
 
-Christopher Reeve
+T.S. Elliot
