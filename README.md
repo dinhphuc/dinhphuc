@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every accomplishment begins with the decision to try.**
+**There is no charm equal to tenderness of heart.**
 
-Anonymous
+Jane Austen
