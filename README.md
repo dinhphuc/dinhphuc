@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no charm equal to tenderness of heart.**
+**If you want it, you'll find a way. If you don't, you'll find an excuse.**
 
-Jane Austen
+Anonymous
