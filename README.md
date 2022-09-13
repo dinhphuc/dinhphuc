@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The things you regret most in life are the risks you didn't take.**
+**Every accomplishment begins with the decision to try.**
 
 Anonymous
