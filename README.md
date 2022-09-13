@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It always seems impossible until it's done.**
+**The starting point of all achievement is desire.**
 
-Nelson Mandela
+Napoleon Hill
