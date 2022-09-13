@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Think gold and never settle for silver.**
+**When we point to obstacles we inhibit progress. When we offer solutions we advance.**
 
-Jim Afremow
+Simon Sinek
