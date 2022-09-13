@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Get going ... walk if you have to, but finish the damned race.**
+**It always seems impossible until it's done.**
 
-Ron Hill
+Nelson Mandela
