@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The question isn't who is going to let me; it's who is going to stop me.**
+**Think gold and never settle for silver.**
 
-Ayn Rand
+Jim Afremow
