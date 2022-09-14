@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No marathon gets easier later. The halfway point only marks the end of the beginning.**
+**You don't go up to the top, you grow up to the top.**
 
-Joe Henderson
+John C. Maxwell
