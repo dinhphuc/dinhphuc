@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Time is an illusion, there is only the now.**
+**No marathon gets easier later. The halfway point only marks the end of the beginning.**
 
-Master Shifu
+Joe Henderson
