@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will never always be motivated. You have to learn to be disciplined.**
+**Be helpful. When you see a person without a smile, give them yours.**
 
-Anonymous
+Zig Ziglar
