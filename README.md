@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Go after the things you want.**
+**Fear is temporary. Regret is forever.**
 
-Simon Sinek
+Anonymous
