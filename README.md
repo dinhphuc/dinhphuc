@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your life does not get better by chance, it gets better by change.**
+**The difference between ordinary and extraordinary is that little extra.**
 
-Anonymous
+Jimmy Johnson
