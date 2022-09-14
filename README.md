@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember the entrance to the sanctuary is inside you.**
+**You may say I'm a dreamer but I'm not the only one.**
 
-Rumi
+John Lennon
