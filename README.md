@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching.**
+**Time is an illusion, there is only the now.**
 
-Satchel Paige
+Master Shifu
