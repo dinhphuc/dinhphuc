@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Goals may give focus, but dreams give power.**
+**We should never change our minds about where we are going, but always be curious about different ways to get there.**
 
-John Maxwell
+Simon Sinek
