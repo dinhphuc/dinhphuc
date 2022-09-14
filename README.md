@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Alone, we can do so little; together we can do so much.**
+**To be calm is the highest achievement of the self.**
 
-Helen Keller
+Zen Proverb
