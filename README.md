@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pessimism leads to weakness, optimism to power.**
+**A leader is one who knows the way, goes the way, and shows the way.**
 
-William James
+John C. Maxwell
