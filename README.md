@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You may say I'm a dreamer but I'm not the only one.**
+**Get going ... walk if you have to, but finish the damned race.**
 
-John Lennon
+Ron Hill
