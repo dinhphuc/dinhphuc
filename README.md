@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**An attitude of positive expectation is the mark of the superior personality.**
+**We love life, not because we are used to living but because we are used to loving.**
 
-Brian Tracy
+Friedrich Nietzsche
