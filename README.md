@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We love life, not because we are used to living but because we are used to loving.**
+**Go after the things you want.**
 
-Friedrich Nietzsche
+Simon Sinek
