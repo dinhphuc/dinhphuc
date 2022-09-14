@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't go up to the top, you grow up to the top.**
+**Pessimism leads to weakness, optimism to power.**
 
-John C. Maxwell
+William James
