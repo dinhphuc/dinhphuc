@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be helpful. When you see a person without a smile, give them yours.**
+**Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching.**
 
-Zig Ziglar
+Satchel Paige
