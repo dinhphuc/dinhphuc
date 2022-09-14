@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember the entrance to the sanctuary is inside you.**
+**You yourself, as much as anybody in the entire universe, deserve your love and affection.**
 
-Rumi
+Buddha
