@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Get going ... walk if you have to, but finish the damned race.**
+**There is a difference between giving up and knowing when you've had enough.**
 
-Ron Hill
+Anonymous
