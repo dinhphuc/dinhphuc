@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To be calm is the highest achievement of the self.**
+**Remember the entrance to the sanctuary is inside you.**
 
-Zen Proverb
+Rumi
