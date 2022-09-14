@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Fear is temporary. Regret is forever.**
+**You will never always be motivated. You have to learn to be disciplined.**
 
 Anonymous
