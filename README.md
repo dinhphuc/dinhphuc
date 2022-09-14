@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Today is a beautiful day and I will attract good things into my life.**
+**An attitude of positive expectation is the mark of the superior personality.**
 
-Anonymous
+Brian Tracy
