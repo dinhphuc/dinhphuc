@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A leader is one who knows the way, goes the way, and shows the way.**
+**Examine what is said, not who speaks.**
 
-John C. Maxwell
+Arab Proverb
