@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life only comes around once, so do whatever makes you happy, and be with whoever makes you smile.**
+**Alone, we can do so little; together we can do so much.**
 
-Anonymous
+Helen Keller
