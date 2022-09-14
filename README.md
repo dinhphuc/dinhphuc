@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life chips away at us all. Some play the victim. Some choose to be a survivor. And then there are those who choose to conquer.**
+**As I look back on my life, I realize that every time I thought I was being rejected from something good, I was actually being re-directed to something better.**
 
 Anonymous
