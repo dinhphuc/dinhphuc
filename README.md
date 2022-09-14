@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between ordinary and extraordinary is that little extra.**
+**Goals may give focus, but dreams give power.**
 
-Jimmy Johnson
+John Maxwell
