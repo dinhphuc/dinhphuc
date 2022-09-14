@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One of the simplest ways to be happy is letting go of the things that make you sad.**
+**Life only comes around once, so do whatever makes you happy, and be with whoever makes you smile.**
 
 Anonymous
