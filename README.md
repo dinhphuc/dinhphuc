@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Examine what is said, not who speaks.**
+**Your life does not get better by chance, it gets better by change.**
 
-Arab Proverb
+Anonymous
