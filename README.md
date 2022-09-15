@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every morning you have a new opportunity to become a happier version of yourself.**
+**There is no shame in not knowing; the shame lies in not finding out.**
 
-Anonymous
+Russian Proverb
