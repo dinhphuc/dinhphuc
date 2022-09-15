@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pessimism leads to weakness, optimism to power.**
+**Don't wait for opportunity. Create it.**
 
-William James
+Anonymous
