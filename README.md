@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When it gets difficult is often right before you succeed.**
+**Don't waste a minute not being happy. If one door closes, run to the next window - or break down a door.**
 
-Jeffrey Walker
+Brooke Shields
