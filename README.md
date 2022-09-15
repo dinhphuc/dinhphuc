@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Winning doesn't always mean being first. Winning means you're doing better than you've done before.**
+**The greatest discovery of all time is that a person can change their future by merely changing their attitude.**
 
-Bonnie Blair
+Oprah Winfrey
