@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no shame in not knowing; the shame lies in not finding out.**
+**Pessimism leads to weakness, optimism to power.**
 
-Russian Proverb
+William James
