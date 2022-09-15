@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of change is to focus all of your energy, not on fighting the old, but on building the new.**
+**Every morning you have a new opportunity to become a happier version of yourself.**
 
-Socrates
+Anonymous
