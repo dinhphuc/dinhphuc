@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Speed is irrelevant if you are going in the wrong direction.**
+**Confidence comes from discipline and training.**
 
-Mahatma Gandhi
+Robert Kiyosaki
