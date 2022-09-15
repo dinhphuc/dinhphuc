@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Peace begins When expectation ends.**
+**When times are good, be grateful, and when times are tough, be graceful.**
 
-Sri Chinmoy
+Dustin Poirier
