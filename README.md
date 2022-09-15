@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success consists of getting up just one more time than you fall.**
+**Faith is taking the first step even when you don't see the whole staircase.**
 
-Oliver Goldsmith
+Martin Luther King
