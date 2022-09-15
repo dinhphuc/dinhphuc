@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up. You only get one life. Go for it.**
+**Speed is irrelevant if you are going in the wrong direction.**
 
-Richard E. Grant
+Mahatma Gandhi
