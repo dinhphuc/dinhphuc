@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence comes from discipline and training.**
+**Success consists of getting up just one more time than you fall.**
 
-Robert Kiyosaki
+Oliver Goldsmith
