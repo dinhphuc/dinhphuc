@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The vision of a champion is someone who is bent over, drenched in sweat, at the point of exhaustion when no one else is watching.**
+**When it gets difficult is often right before you succeed.**
 
-Jim Afremow
+Jeffrey Walker
