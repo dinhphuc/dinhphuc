@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**An attitude of positive expectation is the mark of the superior personality.**
+**There is nothing on this earth more to be prized than true friendship.**
 
-Brian Tracy
+Thomas Aquinas
