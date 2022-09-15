@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Faith is taking the first step even when you don't see the whole staircase.**
+**The secret of change is to focus all of your energy, not on fighting the old, but on building the new.**
 
-Martin Luther King
+Socrates
