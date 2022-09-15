@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One who moves a mountain begins by carrying away small stones.**
+**We must embrace pain and burn it as fuel for our journey.**
 
-Confucius
+Kenji Miyazawa
