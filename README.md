@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is nothing on this earth more to be prized than true friendship.**
+**Never give up. You only get one life. Go for it.**
 
-Thomas Aquinas
+Richard E. Grant
