@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pass on what you have learned.**
+**Don't judge each day by the harvest you reap but by the seeds that you plant.**
 
-Yoda
+Robert Louis Stevenson
