@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't waste a minute not being happy. If one door closes, run to the next window - or break down a door.**
+**A secret to happiness is letting every situatiuon be what it is instead of what you think it should be.**
 
-Brooke Shields
+Anonymous
