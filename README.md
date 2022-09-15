@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile in the mirror. Do that every morning and you'll start to see a big difference in your life.**
+**One who moves a mountain begins by carrying away small stones.**
 
-Yoko Ono
+Confucius
