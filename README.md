@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest discovery of all time is that a person can change their future by merely changing their attitude.**
+**An attitude of positive expectation is the mark of the superior personality.**
 
-Oprah Winfrey
+Brian Tracy
