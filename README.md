@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We must embrace pain and burn it as fuel for our journey.**
+**Winning doesn't always mean being first. Winning means you're doing better than you've done before.**
 
-Kenji Miyazawa
+Bonnie Blair
