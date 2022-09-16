@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Maybe it won't work out. But maybe seeing if it does will be the best adventure ever.**
+**I can and I will. Watch me.**
 
-Anonymous
+Carrie Green
