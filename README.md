@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Get going ... walk if you have to, but finish the damned race.**
+**Smile at strangers and you just might change a life.**
 
-Ron Hill
+Steve Maraboli
