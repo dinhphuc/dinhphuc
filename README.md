@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The wise listens to her mind, the foolish to the mob.**
+**If you want to change the world, start with yourself.**
 
-Chinese Proverb
+Mahatma Gandhi
