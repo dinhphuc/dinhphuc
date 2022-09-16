@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I can and I will. Watch me.**
+**Champions keep playing until they get it right.**
 
-Carrie Green
+Billie Jean King
