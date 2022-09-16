@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To fall in love with yourself is the first secret to happiness.**
+**Gratitude turns what we have into enough.**
 
-Robert Morley
+Anonymous
