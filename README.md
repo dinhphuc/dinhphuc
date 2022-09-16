@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Champions keep playing until they get it right.**
+**Wherever you go, go with all your heart.**
 
-Billie Jean King
+Confucius
