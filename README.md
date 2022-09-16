@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only journey is the one within.**
+**Everything you can imagine is real.**
 
-Rainer Maria Rilke
+Pablo Picasso
