@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your problem isn't the problem, it's your attitude about the problem.**
+**Maybe it won't work out. But maybe seeing if it does will be the best adventure ever.**
 
-Ann Brashares
+Anonymous
