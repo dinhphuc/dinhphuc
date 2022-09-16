@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Gratitude turns what we have into enough.**
+**Climb the mountains to see lowlands.**
 
-Anonymous
+Chinese Proverb
