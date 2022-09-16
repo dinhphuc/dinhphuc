@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never let the fear of striking out keep you from playing the game.**
+**Just when the caterpillar thought the world was ending, it turned into a butterfly.**
 
-Babe Ruth
+Anonymous
