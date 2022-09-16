@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to change the world, start with yourself.**
+**Your problem isn't the problem, it's your attitude about the problem.**
 
-Mahatma Gandhi
+Ann Brashares
