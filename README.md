@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile at strangers and you just might change a life.**
+**Staying positive does not mean that things will turn out okay. Rather it is knowing that you will be okay no matter how things turn out.**
 
-Steve Maraboli
+Anonymous
