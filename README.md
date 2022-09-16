@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Courage is taking those first steps toward your dreams even if you can't see the path ahead.**
+**Make the most of yourself....for that is all there is of you.**
 
-Anonymous
+Ralph Waldo Emerson
