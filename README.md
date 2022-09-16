@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Limitations live only in our minds. But if we use our imaginations, our possibilities become limitless.**
+**Never let the fear of striking out keep you from playing the game.**
 
-Jamie Paolinetti
+Babe Ruth
