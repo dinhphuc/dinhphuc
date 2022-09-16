@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Make the most of yourself....for that is all there is of you.**
+**The wise listens to her mind, the foolish to the mob.**
 
-Ralph Waldo Emerson
+Chinese Proverb
