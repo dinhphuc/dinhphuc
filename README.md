@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**And in the end, the love you take, is equal to the love you make.**
+**Courage is one step ahead of fear.**
 
-The Beatles
+Coleman Young
