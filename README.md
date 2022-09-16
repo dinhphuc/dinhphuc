@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Shine like the whole universe is yours.**
+**The only journey is the one within.**
 
-Rumi
+Rainer Maria Rilke
