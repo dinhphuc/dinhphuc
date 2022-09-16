@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Courage is one step ahead of fear.**
+**Limitations live only in our minds. But if we use our imaginations, our possibilities become limitless.**
 
-Coleman Young
+Jamie Paolinetti
