@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Climb the mountains to see lowlands.**
+**Get going ... walk if you have to, but finish the damned race.**
 
-Chinese Proverb
+Ron Hill
