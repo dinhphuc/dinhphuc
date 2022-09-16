@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Just when the caterpillar thought the world was ending, it turned into a butterfly.**
+**To fall in love with yourself is the first secret to happiness.**
 
-Anonymous
+Robert Morley
