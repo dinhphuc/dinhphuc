@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When the 'why' is clear, the 'how' is easy.**
+**Instead of feeding myself excuses why I can't, I give myself reasons why I can.**
 
 Anonymous
