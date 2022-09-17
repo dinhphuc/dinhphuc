@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Beauty begins the moment you decide to be yourself.**
+**You don't manifest dreams without taking chances.**
 
-Coco Chanel
+Stephen Richards
