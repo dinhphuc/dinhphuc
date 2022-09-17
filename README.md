@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Change your thoughts and you change your world.**
+**Don't explain your philosophy. Embody it.**
 
-Norman Vincent Peale
+Epictetus
