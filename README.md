@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Even if I knew that tomorrow the world would go to pieces, I would still plant my apple tree.**
+**A difficult time can be more readily endured if we retain the conviction that our existence holds a purpose - a cause to pursue, a person to love, a goal to achieve.**
 
-Martin Luther
+John Maxwell
