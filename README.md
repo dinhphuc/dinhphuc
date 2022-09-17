@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To be calm is the highest achievement of the self.**
+**The happiness of your life depends upon the quality of your thoughts.**
 
-Zen Proverb
+Marcus Aurelius
