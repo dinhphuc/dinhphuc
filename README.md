@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It never gets easier. You just get better.**
+**When the 'why' is clear, the 'how' is easy.**
 
-Jordan Hoechlin
+Anonymous
