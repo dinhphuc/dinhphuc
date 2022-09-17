@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The happiness of your life depends upon the quality of your thoughts.**
+**Don't fear moving slowly forward...fear standing still.**
 
-Marcus Aurelius
+Kathleen Harris
