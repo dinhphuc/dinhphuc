@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Peace begins When expectation ends.**
+**Beauty begins the moment you decide to be yourself.**
 
-Sri Chinmoy
+Coco Chanel
