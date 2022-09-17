@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't manifest dreams without taking chances.**
+**Whatever you decide to do, make sure it makes you happy.**
 
-Stephen Richards
+Anonymous
