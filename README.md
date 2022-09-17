@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't explain your philosophy. Embody it.**
+**Doubt kills more dreams than failure ever will.**
 
-Epictetus
+Suzy Kassem
