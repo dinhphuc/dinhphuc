@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Doubt kills more dreams than failure ever will.**
+**A winner never stops trying.**
 
-Suzy Kassem
+Tom Landry
