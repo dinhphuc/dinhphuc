@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A winner never stops trying.**
+**Smiling doesn't necessarily mean you're happy. Sometimes it just means you're strong.**
 
-Tom Landry
+Anonymous
