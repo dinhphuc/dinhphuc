@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of success is to do the common thing uncommonly well.**
+**To be the best, you must be able to handle the worst.**
 
-John D. Rockefeller Jr
+Wilson Kanadi
