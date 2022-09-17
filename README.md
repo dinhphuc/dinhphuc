@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is no accident. It is hard work, perseverance, learning, studying, sacrifice and most of all, love of what you are doing or learning to do.**
+**Very little is needed to make a happy life; it is all within yourself, in your way of thinking.**
 
-Pele
+Marcus Aurelius
