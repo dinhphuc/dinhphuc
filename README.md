@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength grows in the moments when you think you can't go on but you keep going anyway.**
+**The secret of success is to do the common thing uncommonly well.**
 
-Anonymous
+John D. Rockefeller Jr
