@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest weakness lies in giving up. The most certain way to succeed is to just try one more time.**
+**When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.**
 
-Thomas Edison
+Henry Ford
