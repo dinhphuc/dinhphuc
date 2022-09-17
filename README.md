@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To be the best, you must be able to handle the worst.**
+**To be calm is the highest achievement of the self.**
 
-Wilson Kanadi
+Zen Proverb
