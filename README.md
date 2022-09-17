@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't fear moving slowly forward...fear standing still.**
+**Change your thoughts and you change your world.**
 
-Kathleen Harris
+Norman Vincent Peale
