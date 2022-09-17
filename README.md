@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't get what you wish for. You get what you work for.**
+**Strength grows in the moments when you think you can't go on but you keep going anyway.**
 
 Anonymous
