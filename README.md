@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.**
+**We don't develop courage by being happy every day. We develop it by surviving difficult times and challenging adversity.**
 
-Henry Ford
+Barbara De Angelis
