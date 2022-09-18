@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot prevent the birds of sadness from passing over your head, but you can prevent their making a nest in your hair.**
+**There is no better than adversity. Every defeat, every heartbreak, every loss, contains its own seed, its own lesson on how to improve your performance the next time.**
 
-Chinese Proverb
+Malcolm X
