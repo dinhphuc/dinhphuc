@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**People will see you the way you see yourself.**
+**People who make you feel better about yourself when you're sad are so important.**
 
-Sergio Diaz
+Anonymous
