@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**How wonderful it is that nobody need wait a single moment before starting to improve the world.**
+**Don't think about what might go wrong. Think about what might go right.**
 
-Anne Frank
+Anonymous
