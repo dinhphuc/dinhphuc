@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you have exhausted all possibilities, remember this: you haven't.**
+**It ain't as bad as you think. It will look better in the morning.**
 
-Thomas Edison
+Colin Powell
