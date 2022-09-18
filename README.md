@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**He who sweats more in training bleeds less in war.**
+**Anyone who has grown mentally, physically or spiritually knows that growth is not found in comfort.**
 
-Greek Proverb
+Anonymous
