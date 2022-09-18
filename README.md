@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It ain't as bad as you think. It will look better in the morning.**
+**He who sweats more in training bleeds less in war.**
 
-Colin Powell
+Greek Proverb
