@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Anyone who has grown mentally, physically or spiritually knows that growth is not found in comfort.**
+**Our greatest ability as humans is not to change the world; but to change ourselves.**
 
-Anonymous
+Mahatma Gandhi
