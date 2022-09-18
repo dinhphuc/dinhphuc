@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I compete only with myself, and I try to become a better human being. This is my goal.**
+**Don't worry about failure; you only have to be right once.**
 
-Sri Chinmoy
+Drew Houston
