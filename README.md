@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't worry about failure; you only have to be right once.**
+**If you want to achieve greatness, stop asking for permission.**
 
-Drew Houston
+Anonymous
