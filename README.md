@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Look for something positive in each day, even if some days you have to look a little harder.**
+**Happiness is when what you think, what you say, and what you do are in harmony.**
 
-Anonymous
+Mahatma Gandhi
