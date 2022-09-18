@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**He who lives in harmony with himself lives in harmony with the universe.**
+**Determination is doing what needs to be done even when you don't feel like doing it.**
 
-Marcus Aurelius
+Anonymous
