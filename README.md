@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't think about what might go wrong. Think about what might go right.**
+**Anyone who has grown mentally, physically or spiritually knows that growth is not found in comfort.**
 
 Anonymous
