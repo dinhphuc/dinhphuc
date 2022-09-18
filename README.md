@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Many of the truths that we cling to depend on our point of view.**
+**Life is about making an impact, not making an income.**
 
-Yoda
+Kevin Kruse
