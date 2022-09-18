@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**People who make you feel better about yourself when you're sad are so important.**
+**How wonderful it is that nobody need wait a single moment before starting to improve the world.**
 
-Anonymous
+Anne Frank
