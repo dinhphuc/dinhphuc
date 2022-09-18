@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Determination is doing what needs to be done even when you don't feel like doing it.**
+**You cannot prevent the birds of sadness from passing over your head, but you can prevent their making a nest in your hair.**
 
-Anonymous
+Chinese Proverb
