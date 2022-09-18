@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live as if you were to die tomorrow. Learn as if you were to live forever.**
+**People will see you the way you see yourself.**
 
-Mahatma Gandhi
+Sergio Diaz
