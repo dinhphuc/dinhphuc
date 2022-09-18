@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is about making an impact, not making an income.**
+**I alone cannot change the world, but I can cast a stone across the water to create many ripples.**
 
-Kevin Kruse
+Mother Teresa
