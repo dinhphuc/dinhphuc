@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is trying things to see if they work.**
+**The best way to gain self-confidence is to do what you are afraid to do.**
 
-Ray Bradbury
+Swati Sharma
