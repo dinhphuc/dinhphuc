@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're offered a seat on a rocket ship, don't ask what seat! Just get on.**
+**So certain were you. Go back and closer you must look.**
 
-Sheryl Sandberg
+Yoda
