@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is trying things to see if they work.**
+**Look for something positive in each day, even if some days you have to look a little harder.**
 
-Ray Bradbury
+Anonymous
