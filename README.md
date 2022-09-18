@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A new command I give you: Love one another.**
+**Runners just do it - they run for the finish line even if someone else has reached it first.**
 
-Jesus Christ
+Unknown
