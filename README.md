@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**So certain were you. Go back and closer you must look.**
+**Many of the truths that we cling to depend on our point of view.**
 
 Yoda
