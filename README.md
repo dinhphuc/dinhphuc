@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**An inch of gold can't buy an inch of time.**
+**The greatest mistake you can make in life is to continually fear that you will make one.**
 
-Chinese Proverb
+Elbert Hubbard
