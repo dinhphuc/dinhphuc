@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile at strangers and you just might change a life.**
+**Don't waste a minute not being happy. If one door closes, run to the next window - or break down a door.**
 
-Steve Maraboli
+Brooke Shields
