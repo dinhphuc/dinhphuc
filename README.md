@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up, stay focused, stay positive, stay strong.**
+**You will never always be motivated. You have to learn to be disciplined.**
 
 Anonymous
