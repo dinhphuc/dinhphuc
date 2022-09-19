@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You should never give up. No matter how hard the situation is, always believe that something beautiful is going to happen.**
+**The more grateful I am, the more beauty I see.**
 
-Anonymous
+Mary Davis
