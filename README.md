@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest ability as humans is not to change the world; but to change ourselves.**
+**You should never give up. No matter how hard the situation is, always believe that something beautiful is going to happen.**
 
-Mahatma Gandhi
+Anonymous
