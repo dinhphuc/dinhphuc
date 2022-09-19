@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot propel yourself forward by patting yourself on the back.**
+**Life is a magical ride. Enjoy every moment.**
 
-Steve Prefontaine
+Anonymous
