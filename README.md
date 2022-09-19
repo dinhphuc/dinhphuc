@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love the life you live. Live the life you love.**
+**Whatever you hold in your mind on a consistent basis is exactly what you will experience in your life.**
 
-Bob Marley
+Tony Robbins
