@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you do, be different. If you're different, you will stand out.**
+**Never give up, stay focused, stay positive, stay strong.**
 
-Anita Roddick
+Anonymous
