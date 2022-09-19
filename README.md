@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will never always be motivated. You have to learn to be disciplined.**
+**Beauty lies in the eye of the beholder.**
 
-Anonymous
+English Proverb
