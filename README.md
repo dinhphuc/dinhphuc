@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everywhere you go, take a smile with you.**
+**Whatever you do, be different. If you're different, you will stand out.**
 
-Sasha Azevedo
+Anita Roddick
