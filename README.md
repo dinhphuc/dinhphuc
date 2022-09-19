@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you stumble, make it part of the dance.**
+**Everywhere you go, take a smile with you.**
 
-Anonymous
+Sasha Azevedo
