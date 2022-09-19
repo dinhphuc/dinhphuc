@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't waste a minute not being happy. If one door closes, run to the next window - or break down a door.**
+**Count your age by friends, not years. Count your life by smiles, not tears.**
 
-Brooke Shields
+John Lennon
