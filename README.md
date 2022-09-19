@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love the life you live. Live the life you love.**
+**Dream big. Start small. But most of all, start.**
 
-Bob Marley
+Simon Sinek
