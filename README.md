@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you hold in your mind on a consistent basis is exactly what you will experience in your life.**
+**Smile at strangers and you just might change a life.**
 
-Tony Robbins
+Steve Maraboli
