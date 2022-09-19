@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Beauty lies in the eye of the beholder.**
+**You have to fight through some bad days to earn the best days of your life.**
 
-English Proverb
+Anonymous
