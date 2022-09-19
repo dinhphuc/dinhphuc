@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You have to fight through some bad days to earn the best days of your life.**
+**The secret of change is to focus all of your energy, not on fighting the old, but on building the new.**
 
-Anonymous
+Socrates
