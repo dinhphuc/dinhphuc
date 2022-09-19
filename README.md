@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The more grateful I am, the more beauty I see.**
+**Let your unique awesomeness and positive energy inspire confidence in others.**
 
-Mary Davis
+Anonymous
