@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hope never abandons you, you abandon it.**
+**Love the life you live. Live the life you love.**
 
-George Weinberg
+Bob Marley
