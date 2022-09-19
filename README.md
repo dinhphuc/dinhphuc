@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Let your unique awesomeness and positive energy inspire confidence in others.**
+**Hope never abandons you, you abandon it.**
 
-Anonymous
+George Weinberg
