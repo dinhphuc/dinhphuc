@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is a magical ride. Enjoy every moment.**
+**An inch of gold can't buy an inch of time.**
 
-Anonymous
+Chinese Proverb
