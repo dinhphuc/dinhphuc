@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It feels good when you can put a smile on someone's face by simply being yourself.**
+**If you only do what you can do, you will never be more than you are now.**
 
-Anonymous
+Master Oogway
