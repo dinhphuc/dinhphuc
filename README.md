@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A warm smile is the universal language of kindness.**
+**Today is a beautiful day and I will attract good things into my life.**
 
-William Arthur Ward
+Anonymous
