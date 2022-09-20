@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Start where you are. Use what you have. Do what you can.**
+**Life isn't about waiting for the storm to pass, it's about learning how to dance in the rain.**
 
-Arthur Ashe
+Vivian Greene
