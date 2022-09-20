@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will be exactly as happy as you decide to be.**
+**All souls are lost until they are found.**
 
-Anonymous
+Kate McGahan
