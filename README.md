@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Continuous effort - not strength or intelligence - is the key to unlocking our potential.**
+**Success is what comes after you stop making excuses.**
 
-Liane Cardes
+Luis Galarza
