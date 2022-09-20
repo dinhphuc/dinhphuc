@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I have learned over the years that when one's mind is made up, this diminishes fear.**
+**Laugh. It's free medicine you don't need insurance for.**
 
-Rosa Parks
+Anonymous
