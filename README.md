@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Set a goal that makes you want to jump out of bed in the morning.**
+**Give up on being perfect and start working on becoming yourself.**
 
-Anonymous
+Anna Quindlen
