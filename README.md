@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you only do what you can do, you will never be more than you are now.**
+**We must embrace pain and burn it as fuel for our journey.**
 
-Master Oogway
+Kenji Miyazawa
