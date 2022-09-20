@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Give up on being perfect and start working on becoming yourself.**
+**A warm smile is the universal language of kindness.**
 
-Anna Quindlen
+William Arthur Ward
