@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All souls are lost until they are found.**
+**Do what makes you happy.**
 
-Kate McGahan
+Rachel Ann Nunes
