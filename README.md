@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are loved.**
+**Friends show their love in times of trouble, not in happiness.**
 
-Anonymous
+Euripides
