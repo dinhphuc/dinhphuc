@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life isn't about waiting for the storm to pass, it's about learning how to dance in the rain.**
+**Set a goal that makes you want to jump out of bed in the morning.**
 
-Vivian Greene
+Anonymous
