@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Friends show their love in times of trouble, not in happiness.**
+**Many of life's failures are people who did not realize how close they were to success when they gave up.**
 
-Euripides
+Thomas A. Edison
