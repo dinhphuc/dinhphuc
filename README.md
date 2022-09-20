@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Today is a beautiful day and I will attract good things into my life.**
+**Continuous effort - not strength or intelligence - is the key to unlocking our potential.**
 
-Anonymous
+Liane Cardes
