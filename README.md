@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is what comes after you stop making excuses.**
+**Optimism is a happiness magnet. If you stay positive, good things and good people will be drawn to you.**
 
-Luis Galarza
+Mary Lou Retton
