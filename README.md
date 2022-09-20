@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Laugh. It's free medicine you don't need insurance for.**
+**Start where you are. Use what you have. Do what you can.**
 
-Anonymous
+Arthur Ashe
