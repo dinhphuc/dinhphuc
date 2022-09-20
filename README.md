@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We must embrace pain and burn it as fuel for our journey.**
+**If you look at what you have in life, you'll always have more. If you look at what you don't have in life, you'll never have enough.**
 
-Kenji Miyazawa
+Oprah Winfrey
