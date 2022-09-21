@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life isn't about finding yourself. Life is about creating yourself.**
+**Don't sail out farther than you can row back.**
 
-George Bernard Shaw
+Danish Proverb
