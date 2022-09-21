@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your relationship with yourself sets the tone for every other relationship you have.**
+**Don't waste a minute not being happy. If one door closes, run to the next window - or break down a door.**
 
-Anonymous
+Brooke Shields
