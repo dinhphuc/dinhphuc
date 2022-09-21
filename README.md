@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**As long as we have hope, we have direction, the energy to move, and the map to move by.**
+**Fear is temporary. Regret is forever.**
 
-Lao Tzu
+Anonymous
