@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Train your mind to see the positive in any situation and keep going.**
+**Before telling secrets on the road, look in the bushes.**
 
-Anonymous
+Chinese Proverb
