@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile at strangers and you just might change a life.**
+**One of the simplest ways to be happy is letting go of the things that make you sad.**
 
-Steve Maraboli
+Anonymous
