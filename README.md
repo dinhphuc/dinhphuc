@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm too grateful to be hateful. I am too blessed to be stressed.**
+**As long as we have hope, we have direction, the energy to move, and the map to move by.**
 
-El DeBarge
+Lao Tzu
