@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A successful man is one who can lay a firm foundation with the bricks others have thrown at him.**
+**Your relationship with yourself sets the tone for every other relationship you have.**
 
-David Brinkley
+Anonymous
