@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life's a journey not a race.**
+**Don't just glov, dazzle.**
 
-Meir Ezra
+Anonymous
