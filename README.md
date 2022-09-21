@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our own self-esteem is something we can actually twist in whatever way we want.**
+**Be strong now, because things will get better. It might be stormy now, but it can't rain forever.**
 
-Stephen Richards
+Anonymous
