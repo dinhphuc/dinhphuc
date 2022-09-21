@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always remember you are braver than you believe, stronger than you seem, and smarter than you think.**
+**When things are bad, remember: it won't always be this way. Take one day at a time.**
 
-Christopher Robin
+Anonymous
