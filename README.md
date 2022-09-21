@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Before telling secrets on the road, look in the bushes.**
+**Strength isn't about how much you can handle before you break. It's about how much you can endure after you've been broken.**
 
-Chinese Proverb
+Anonymous
