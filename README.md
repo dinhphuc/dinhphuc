@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When the 'why' is clear, the 'how' is easy.**
+**Train your mind to see the positive in any situation and keep going.**
 
 Anonymous
