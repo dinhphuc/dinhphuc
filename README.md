@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**May the Force be with you.**
+**Smile at strangers and you just might change a life.**
 
-Yoda
+Steve Maraboli
