@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Look in the mirror. That's your competition.**
+**Wanting to be someone else is a waste of the person you are.**
 
-John Assaraf
+Marilyn Monroe
