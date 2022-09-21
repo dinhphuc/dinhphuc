@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength isn't about how much you can handle before you break. It's about how much you can endure after you've been broken.**
+**Life's a journey not a race.**
 
-Anonymous
+Meir Ezra
