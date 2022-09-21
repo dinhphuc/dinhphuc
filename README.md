@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Wanting to be someone else is a waste of the person you are.**
+**A successful man is one who can lay a firm foundation with the bricks others have thrown at him.**
 
-Marilyn Monroe
+David Brinkley
