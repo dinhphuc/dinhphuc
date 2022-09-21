@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Control, control, you must learn control!**
+**Life isn't about finding yourself. Life is about creating yourself.**
 
-Yoda
+George Bernard Shaw
