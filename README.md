@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't sail out farther than you can row back.**
+**May the Force be with you.**
 
-Danish Proverb
+Yoda
