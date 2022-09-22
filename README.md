@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Walk on with hope in your heart, and you'll never walk alone.**
+**A successful man is one who can lay a firm foundation with the bricks others have thrown at him.**
 
-Shah Rukh Khan
+David Brinkley
