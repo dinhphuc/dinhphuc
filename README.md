@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success usually comes to those who are too busy to be looking for it.**
+**So certain were you. Go back and closer you must look.**
 
-Henry David Thoreau
+Yoda
