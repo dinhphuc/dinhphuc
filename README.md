@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be afraid to give up the good to go for the great.**
+**If your dreams don't scare you, they aren't big enough.**
 
-John D. Rockefeller
+Muhammad Ali
