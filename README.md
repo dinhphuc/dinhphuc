@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you cannot do great things, do small things in a great way.**
+**Make sure your worst enemy doesn't live between your own two ears.**
 
-Napoleon Hill
+Laird Hamilton
