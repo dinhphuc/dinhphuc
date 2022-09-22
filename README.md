@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I was angry that I had no shoes. Then I met a man who had no feet.**
+**Success usually comes to those who are too busy to be looking for it.**
 
-Chinese Proverb
+Henry David Thoreau
