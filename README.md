@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how tough it may get, never give up on yourself or you will look back and regret it.**
+**I find that the harder I work, the more luck I seem to have.**
 
-Anonymous
+Thomas Jefferson
