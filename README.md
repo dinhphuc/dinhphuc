@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile, and let the world wonder why.**
+**Success usually comes to those who are too busy to be looking for it.**
 
-Minnie Mouse
+Henry David Thoreau
