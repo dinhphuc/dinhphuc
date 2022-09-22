@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**So certain were you. Go back and closer you must look.**
+**We don't develop courage by being happy every day. We develop it by surviving difficult times and challenging adversity.**
 
-Yoda
+Barbara De Angelis
