@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We know what we are, but know not what we may be.**
+**I was angry that I had no shoes. Then I met a man who had no feet.**
 
-William Shakespeare
+Chinese Proverb
