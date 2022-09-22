@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If your dreams don't scare you, they aren't big enough.**
+**When a new day begins, dare to smile gratefully.**
 
-Muhammad Ali
+Steve Maraboli
