@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I alone cannot change the world, but I can cast a stone across the water to create many ripples.**
+**Don't be afraid to give up the good to go for the great.**
 
-Mother Teresa
+John D. Rockefeller
