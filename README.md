@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Wherever you go, no matter what the weather, always bring your own sunshine.**
+**Sometimes the bravest thing you can do is to keep going when you really feel like giving up.**
 
-Anthony J. D'Angelo
+Anonymous
