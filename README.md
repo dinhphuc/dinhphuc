@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't waste a minute not being happy. If one door closes, run to the next window - or break down a door.**
+**If you cannot do great things, do small things in a great way.**
 
-Brooke Shields
+Napoleon Hill
