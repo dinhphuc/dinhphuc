@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Successful people have fear, successful people have doubts, and successful people have worries. They just don't let these feelings stop them.**
+**We know what we are, but know not what we may be.**
 
-T. Harv Eker
+William Shakespeare
