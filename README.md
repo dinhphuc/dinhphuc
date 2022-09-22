@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Make sure your worst enemy doesn't live between your own two ears.**
+**No matter how tough it may get, never give up on yourself or you will look back and regret it.**
 
-Laird Hamilton
+Anonymous
