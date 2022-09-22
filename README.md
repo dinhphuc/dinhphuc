@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success usually comes to those who are too busy to be looking for it.**
+**I attribute my success to this: I never gave or took any excuse.**
 
-Henry David Thoreau
+Florence Nightingale
