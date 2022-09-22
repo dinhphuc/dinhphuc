@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I attribute my success to this: I never gave or took any excuse.**
+**Ask yourself: Can I give more? The answer is usually: Yes.**
 
-Florence Nightingale
+Paul Tergat
