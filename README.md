@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I knew that if I failed I wouldn't regret that. But I would regret not trying.**
+**Walk on with hope in your heart, and you'll never walk alone.**
 
-Jeff Bezos
+Shah Rukh Khan
