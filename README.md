@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how you feel, get up, dress up, show up and never give up.**
+**You may say I'm a dreamer but I'm not the only one.**
 
-Anonymous
+John Lennon
