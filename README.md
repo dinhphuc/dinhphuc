@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You may say I'm a dreamer but I'm not the only one.**
+**An attitude of positive expectation is the mark of the superior personality.**
 
-John Lennon
+Brian Tracy
