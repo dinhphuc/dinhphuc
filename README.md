@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**An attitude of positive expectation is the mark of the superior personality.**
+**Passion first and everything will fall into place.**
 
-Brian Tracy
+Holly Holm
