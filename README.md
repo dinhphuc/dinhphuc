@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When written in Chinese the word "crisis" is composed of two characters - one represents danger and the other represents opportunity.**
+**Wherever you go, no matter what the weather, always bring your own sunshine.**
 
-John F. Kennedy
+Anthony J. D'Angelo
