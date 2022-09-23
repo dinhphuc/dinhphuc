@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will never always be motivated. You have to learn to be disciplined.**
+**If you are positive, you'll see opportunities instead of obstacles.**
 
-Anonymous
+Widad Akrawi
