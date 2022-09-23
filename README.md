@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I ask not for a lighter burden, but for broader shoulders.**
+**The best way to predict your future is to create it.**
 
-Jewish Proverb
+Peter F. Drucker
