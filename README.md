@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always believe that something wonderful is about to happen.**
+**You will never always be motivated. You have to learn to be disciplined.**
 
 Anonymous
