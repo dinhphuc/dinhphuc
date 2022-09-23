@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only way to do great work is to love what you do.**
+**There is nothing permanent except change.**
 
-Steve Jobs
+Heraclitus
