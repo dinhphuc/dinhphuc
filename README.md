@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**That is bad news... if you do not believe in yourself.**
+**If you cannot do great things, do small things in a great way.**
 
-Master Oogway
+Napoleon Hill
