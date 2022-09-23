@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The way to get started is to quit talking and begin doing.**
+**Smaller in number are we, but larger in mind.**
 
-Walt Disney
+Yoda
