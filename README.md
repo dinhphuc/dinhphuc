@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The best way to predict your future is to create it.**
+**I find that the harder I work, the more luck I seem to have.**
 
-Peter F. Drucker
+Thomas Jefferson
