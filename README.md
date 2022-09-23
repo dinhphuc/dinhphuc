@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's your place in the world; it's your life. Go on and do all you can with it, and make it the life you want to live.**
+**I ask not for a lighter burden, but for broader shoulders.**
 
-Mae Jemison
+Jewish Proverb
