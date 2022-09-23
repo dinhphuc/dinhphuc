@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you cannot do great things, do small things in a great way.**
+**Today you are you! That is truer than true! There is no one alive who is you-er than you!**
 
-Napoleon Hill
+Dr. Seuss
