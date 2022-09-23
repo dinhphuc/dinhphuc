@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**An attitude of positive expectation is the mark of the superior personality.**
+**The difference between the impossible and the possible lies in a person's determination.**
 
-Brian Tracy
+Tommy Lasorda
