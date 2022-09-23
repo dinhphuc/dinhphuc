@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't get what you wish for. You get what you work for.**
+**Teachers open the door; you enter by yourself.**
 
-Anonymous
+Chinese Proverb
