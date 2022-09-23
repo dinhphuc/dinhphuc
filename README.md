@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Train yourself to let go of everything you fear to lose.**
+**Always believe that something wonderful is about to happen.**
 
-Yoda
+Anonymous
