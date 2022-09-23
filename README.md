@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are positive, you'll see opportunities instead of obstacles.**
+**That is bad news... if you do not believe in yourself.**
 
-Widad Akrawi
+Master Oogway
