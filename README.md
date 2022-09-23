@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is nothing permanent except change.**
+**Always believe that something wonderful is about to happen.**
 
-Heraclitus
+Anonymous
