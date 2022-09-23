@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Train your mind to see the positive in any situation and keep going.**
+**The only way to do great work is to love what you do.**
 
-Anonymous
+Steve Jobs
