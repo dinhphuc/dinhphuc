@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I find that the harder I work, the more luck I seem to have.**
+**No matter how you feel, get up, dress up, show up and never give up.**
 
-Thomas Jefferson
+Anonymous
