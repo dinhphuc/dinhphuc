@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Difficult roads always lead to beautiful destinations.**
+**You don't get what you wish for. You get what you work for.**
 
-Zig Ziglar
+Anonymous
