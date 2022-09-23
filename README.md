@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Wherever you go, no matter what the weather, always bring your own sunshine.**
+**Train your mind to see the positive in any situation and keep going.**
 
-Anthony J. D'Angelo
+Anonymous
