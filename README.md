@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No one who can rise before dawn three hundred sixty days a year fails to make his family rich.**
+**Stop doubting yourself. Work hard and make it happen.**
 
-Malcolm Gladwell
+Anonymous
