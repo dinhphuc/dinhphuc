@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be strong enough to let go and patient enough to wait for what you deserve.**
+**Always remember that you are absolutely unique. Just like everyone else.**
 
-Anonymous
+Margaret Mead
