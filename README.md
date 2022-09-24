@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always remember that you are absolutely unique. Just like everyone else.**
+**Self-control is strength. Right thought is mastery. Calmness is power.**
 
-Margaret Mead
+James Allen
