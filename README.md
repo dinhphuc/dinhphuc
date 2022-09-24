@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Train yourself to let go of everything you fear to lose.**
+**If you want it, you'll find a way. If you don't, you'll find an excuse.**
 
-Yoda
+Anonymous
