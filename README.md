@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want it, you'll find a way. If you don't, you'll find an excuse.**
+**Optimism is a happiness magnet. If you stay positive, good things and good people will be drawn to you.**
 
-Anonymous
+Mary Lou Retton
