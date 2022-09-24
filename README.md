@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe in yourself and you can be anything.**
+**Give up on being perfect and start working on becoming yourself.**
 
-Katy Perry
+Anna Quindlen
