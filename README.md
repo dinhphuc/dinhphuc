@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't blame gravity for falling in love.**
+**Confidence is the ability to feel beautiful, without needing someone to tell you.**
 
-Albert Einstein
+Anonymous
