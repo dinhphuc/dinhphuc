@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not how much we have, but how much we enjoy, that makes happiness.**
+**Faith is taking the first step even when you don't see the whole staircase.**
 
-Charles Spurgeon
+Martin Luther King
