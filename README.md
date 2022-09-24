@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Optimism is a happiness magnet. If you stay positive, good things and good people will be drawn to you.**
+**No matter how old I get, the race remains one of life's most rewarding experiences.**
 
-Mary Lou Retton
+George Sheehan
