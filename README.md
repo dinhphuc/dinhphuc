@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I alone cannot change the world, but I can cast a stone across the water to create many ripples.**
+**No one who can rise before dawn three hundred sixty days a year fails to make his family rich.**
 
-Mother Teresa
+Malcolm Gladwell
