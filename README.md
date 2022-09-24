@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence is the ability to feel beautiful, without needing someone to tell you.**
+**I alone cannot change the world, but I can cast a stone across the water to create many ripples.**
 
-Anonymous
+Mother Teresa
