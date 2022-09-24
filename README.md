@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I hated every minute of training, but I said, 'Don't quit. Suffer now and live the rest of your life as a champion'.**
+**Be strong enough to let go and patient enough to wait for what you deserve.**
 
-Muhammad Ali
+Anonymous
