@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**How you do anything is how you do everything.**
+**You cannot shake hands with a clenched fist.**
 
-T. Harv Eker
+Indira Gandhi
