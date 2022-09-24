@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Give up on being perfect and start working on becoming yourself.**
+**Cheerfulness is the very flower of health.**
 
-Anna Quindlen
+Anonymous
