@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how old I get, the race remains one of life's most rewarding experiences.**
+**You can't blame gravity for falling in love.**
 
-George Sheehan
+Albert Einstein
