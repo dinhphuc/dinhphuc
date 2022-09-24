@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Self-control is strength. Right thought is mastery. Calmness is power.**
+**The harder the struggle, the more glorious the triumph.**
 
-James Allen
+Anonymous
