@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You have to be at your strongest when you're feeling at your weakest.**
+**Your relationship with yourself sets the tone for every other relationship you have.**
 
 Anonymous
