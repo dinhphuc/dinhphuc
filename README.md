@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Successful people are not gifted; they just work hard, then succeed on purpose.**
+**Where there is love there is life.**
 
-G.K. Nielson
+Mahatma Gandhi
