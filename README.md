@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Another day another blessing.**
+**What you see in yourself is what you see in the world.**
 
-Anonymous
+Afghan Proverb
