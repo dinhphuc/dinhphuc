@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your relationship with yourself sets the tone for every other relationship you have.**
+**Success is the sum of small efforts repeated day-in and day-out.**
 
-Anonymous
+Robert Collier
