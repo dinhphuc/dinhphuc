@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Like the morning sun, you too shall rise and continue to shine.**
+**Choosing to be positive and having a grateful attitude is going to determine how you're going to live your life.**
 
-Anonymous
+Joel Osteen
