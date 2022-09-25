@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.**
+**Only a life lived for others is a life worthwhile.**
 
-Napoleon Hill
+Albert Einstein
