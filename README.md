@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success seems to be connected with action. Successful people keep moving. They make mistakes, but they don't quit.**
+**Earn your confidence, nurture it, then help to build it in others.**
 
-Conrad Hilton
+Alex Malley
