@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whoever is happy will make others happy too.**
+**Successful people are not gifted; they just work hard, then succeed on purpose.**
 
-Anonymous
+G.K. Nielson
