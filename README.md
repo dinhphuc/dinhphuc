@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you see in yourself is what you see in the world.**
+**Always plan for the fact that no plan ever goes according to plan.**
 
-Afghan Proverb
+Simon Sinek
