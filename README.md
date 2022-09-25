@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are willing to do more than you are paid to do, eventually you will be paid to do more than you do.**
+**You don't get what you wish for. You get what you work for.**
 
 Anonymous
