@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Successful people are not gifted; they just work hard, then succeed on purpose.**
+**Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.**
 
-G.K. Nielson
+Napoleon Hill
