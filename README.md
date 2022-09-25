@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only a life lived for others is a life worthwhile.**
+**Life isn't about getting and having, it's about giving and being.**
 
-Albert Einstein
+Kevin Kruse
