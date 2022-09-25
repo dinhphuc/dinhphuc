@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The pain you feel today will be the strength you feel tomorrow.**
+**I find that the harder I work, the more luck I seem to have.**
 
-Anonymous
+Thomas Jefferson
