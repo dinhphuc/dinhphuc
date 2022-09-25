@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live as if you were to die tomorrow. Learn as if you were to live forever.**
+**If you are willing to do more than you are paid to do, eventually you will be paid to do more than you do.**
 
-Mahatma Gandhi
+Anonymous
