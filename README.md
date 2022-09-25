@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Leadership is not about being in charge. Leadership is about taking care of those in your charge.**
+**In a battle between elephants, the ants get squashed.**
 
-Simon Sinek
+Thai Proverb
