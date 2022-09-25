@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between ordinary and extraordinary is that little extra.**
+**The pain you feel today will be the strength you feel tomorrow.**
 
-Jimmy Johnson
+Anonymous
