@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Work hard in silence. Let success make the noise.**
+**Positive anything is better than negative nothing.**
 
-Anonymous
+Elbert Hubbard
