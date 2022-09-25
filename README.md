@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always plan for the fact that no plan ever goes according to plan.**
+**Leadership is not about being in charge. Leadership is about taking care of those in your charge.**
 
 Simon Sinek
