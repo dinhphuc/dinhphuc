@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In a battle between elephants, the ants get squashed.**
+**Whoever is happy will make others happy too.**
 
-Thai Proverb
+Anonymous
