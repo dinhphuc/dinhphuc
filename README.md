@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between ordinary and extraordinary is that little extra.**
+**There are two ways of spreading light: to be the candle, or the mirror that reflects it.**
 
-Jimmy Johnson
+Edith Wharton
