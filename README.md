@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Positive anything is better than negative nothing.**
+**Like the morning sun, you too shall rise and continue to shine.**
 
-Elbert Hubbard
+Anonymous
