@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only a life lived for others is a life worthwhile.**
+**Live as if you were to die tomorrow. Learn as if you were to live forever.**
 
-Albert Einstein
+Mahatma Gandhi
