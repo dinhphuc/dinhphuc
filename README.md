@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Earn your confidence, nurture it, then help to build it in others.**
+**People who make you feel better about yourself when you're sad are so important.**
 
-Alex Malley
+Anonymous
