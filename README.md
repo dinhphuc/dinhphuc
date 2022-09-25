@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**People who make you feel better about yourself when you're sad are so important.**
+**Work hard in silence. Let success make the noise.**
 
 Anonymous
