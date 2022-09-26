@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A warm smile is the universal language of kindness.**
+**Sometimes you face difficulties not because you're doing something wrong but because you're doing something right.**
 
-William Arthur Ward
+Anonymous
