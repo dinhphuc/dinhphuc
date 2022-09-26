@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't wait around for other people to be happy for you. Any happiness you get, you've got to make yourself.**
+**Whatever you do, be different. If you're different, you will stand out.**
 
-Alice Walker
+Anita Roddick
