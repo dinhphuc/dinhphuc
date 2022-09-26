@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always be yourself and have faith in yourself. Do not go out and look for a successful personality and try to duplicate it.**
+**When I hear somebody sigh, 'Life is hard,' I am always tempted to ask, 'Compared to what?'**
 
-Bruce Lee
+Sydney Harris
