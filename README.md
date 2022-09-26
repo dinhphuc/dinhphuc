@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When we point to obstacles we inhibit progress. When we offer solutions we advance.**
+**Successful people build each other up. They inspire, motivate, and push each other. Unsuccessful people just hate, blame, and complain.**
 
-Simon Sinek
+Anonymous
