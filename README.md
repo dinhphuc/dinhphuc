@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When I hear somebody sigh, 'Life is hard,' I am always tempted to ask, 'Compared to what?'**
+**Hustle until your haters ask if you are hiring.**
 
-Sydney Harris
+Anonymous
