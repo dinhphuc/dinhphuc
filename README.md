@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't get what you wish for. You get what you work for.**
+**When we point to obstacles we inhibit progress. When we offer solutions we advance.**
 
-Anonymous
+Simon Sinek
