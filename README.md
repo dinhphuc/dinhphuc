@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't try to be perfect. Just try to be better than you were yesterday.**
+**To be the best, you must be able to handle the worst.**
 
-Anonymous
+Wilson Kanadi
