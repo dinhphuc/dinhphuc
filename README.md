@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The man who views the world at 50 the same as he did at 20 has wasted 30 years of his life.**
+**Don't wait around for other people to be happy for you. Any happiness you get, you've got to make yourself.**
 
-Muhammad Ali
+Alice Walker
