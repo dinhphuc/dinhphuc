@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only those who dare to fail greatly can ever achieve greatly.**
+**Believe you can and you're halfway there.**
 
-Robert F. Kennedy
+Theodore Roosevelt
