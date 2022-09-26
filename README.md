@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Wisdom is knowing when you can't be wise.**
+**You walk through life much easier with a smile on your face.**
 
-Muhammad Ali
+Sweet Paul
