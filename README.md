@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't just glov, dazzle.**
+**Sometimes you face difficulties not because you're doing something wrong but because you're doing something right.**
 
 Anonymous
