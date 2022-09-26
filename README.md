@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you see in yourself is what you see in the world.**
+**Only those who dare to fail greatly can ever achieve greatly.**
 
-Afghan Proverb
+Robert F. Kennedy
