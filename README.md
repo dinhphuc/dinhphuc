@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You walk through life much easier with a smile on your face.**
+**A fault confessed is half redressed.**
 
-Sweet Paul
+Zulu Proverb
