@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A fault confessed is half redressed.**
+**Great minds discuss ideas; average minds discuss events; small minds discuss people.**
 
-Zulu Proverb
+Eleanor Roosevelt
