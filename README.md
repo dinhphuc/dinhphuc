@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Great minds discuss ideas; average minds discuss events; small minds discuss people.**
+**Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.**
 
-Eleanor Roosevelt
+Napoleon Hill
