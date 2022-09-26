@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Before you score, you first must have a goal.**
+**What you see in yourself is what you see in the world.**
 
-Greek Proverb
+Afghan Proverb
