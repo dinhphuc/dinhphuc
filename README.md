@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.**
+**Never give up, stay focused, stay positive, stay strong.**
 
-Napoleon Hill
+Anonymous
