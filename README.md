@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe you can and you're halfway there.**
+**A warm smile is the universal language of kindness.**
 
-Theodore Roosevelt
+William Arthur Ward
