@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you do, be different. If you're different, you will stand out.**
+**Wisdom is knowing when you can't be wise.**
 
-Anita Roddick
+Muhammad Ali
