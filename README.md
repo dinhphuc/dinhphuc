@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up, stay focused, stay positive, stay strong.**
+**Don't try to be perfect. Just try to be better than you were yesterday.**
 
 Anonymous
