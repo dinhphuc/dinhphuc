@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hustle until your haters ask if you are hiring.**
+**There is no charm equal to tenderness of heart.**
 
-Anonymous
+Jane Austen
