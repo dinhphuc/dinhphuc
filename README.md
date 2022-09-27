@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Opportunities don't happen. You create them.**
+**The people who make you smile from just seeing them, those are my favorite people.**
 
-Chris Grosser
+Koi Fresco
