@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Tension is who you think you should be. Relaxation is who you are.**
+**Hard times don't create heroes. It is during the hard times when the 'hero' within us is revealed.**
 
-Jim Afremow
+Bob Riley
