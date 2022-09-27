@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To give anything less than your best is to sacrifice the gift.**
+**If you really look closely, most overnight successes took a long time.**
 
-Steve Prefontaine
+Steve Jobs
