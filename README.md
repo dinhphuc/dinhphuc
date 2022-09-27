@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you cannot do great things, do small things in a great way.**
+**It always seems impossible until it's done.**
 
-Napoleon Hill
+Nelson Mandela
