@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To be the best, you must be able to handle the worst.**
+**People will see you the way you see yourself.**
 
-Wilson Kanadi
+Sergio Diaz
