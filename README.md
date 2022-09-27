@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is a habit - cultivate it.**
+**When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.**
 
-Elbert Hubbard
+Henry Ford
