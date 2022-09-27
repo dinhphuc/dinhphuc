@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A challenge lifelong it is, not to bend fear into anger.**
+**Keep smiling, because life is a beautiful thing and there's so much to smile about.**
 
-Yoda
+Marilyn Monroe
