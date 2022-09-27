@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only those who risk going too far, can possibly find out how far one can go.**
+**Do all things with love.**
 
-T.S. Elliot
+Og Mandino
