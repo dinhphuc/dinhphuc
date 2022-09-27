@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you're thinking is what you're becoming.**
+**If you can't stop thinking about it, don't stop working for it.**
 
-Muhammad Ali
+Anonymous
