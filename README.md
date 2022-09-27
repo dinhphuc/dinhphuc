@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In order to carry a positive action we must develop here a positive vision.**
+**The only journey is the one within.**
 
-Dalai Lama
+Rainer Maria Rilke
