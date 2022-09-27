@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A team is not a group of people that work together. A team is a group of people that trust each other.**
+**If you cannot do great things, do small things in a great way.**
 
-Simon Sinek
+Napoleon Hill
