@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between the impossible and the possible lies in a person's determination.**
+**I know I have unlimited potential to create the life of my dreams.**
 
-Tommy Lasorda
+Anonymous
