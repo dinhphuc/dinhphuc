@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do all things with love.**
+**Tension is who you think you should be. Relaxation is who you are.**
 
-Og Mandino
+Jim Afremow
