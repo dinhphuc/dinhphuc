@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To give anything less than your best is to sacrifice the gift.**
+**The difference between the impossible and the possible lies in a person's determination.**
 
-Steve Prefontaine
+Tommy Lasorda
