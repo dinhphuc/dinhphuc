@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Go confidently in the direction of your dreams! Live the life you've imagined.**
+**Every morning you have a new opportunity to become a happier version of yourself.**
 
-Henry David Thoreau
+Anonymous
