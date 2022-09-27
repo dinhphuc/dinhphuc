@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only journey is the one within.**
+**Opportunities don't happen. You create them.**
 
-Rainer Maria Rilke
+Chris Grosser
