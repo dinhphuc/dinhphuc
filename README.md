@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can't stop thinking about it, don't stop working for it.**
+**A challenge lifelong it is, not to bend fear into anger.**
 
-Anonymous
+Yoda
