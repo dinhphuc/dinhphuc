@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The more positive thoughts you have, the better you feel, which causes you to have more positive thoughts, then you feel even better.**
+**The purpose of our lives is to be happy.**
 
-James Borg
+Dalai Lama
