@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.**
+**Go confidently in the direction of your dreams! Live the life you've imagined.**
 
-Henry Ford
+Henry David Thoreau
