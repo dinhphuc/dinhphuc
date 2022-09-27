@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The purpose of our lives is to be happy.**
+**Only those who risk going too far, can possibly find out how far one can go.**
 
-Dalai Lama
+T.S. Elliot
