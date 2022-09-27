@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The people who make you smile from just seeing them, those are my favorite people.**
+**The more positive thoughts you have, the better you feel, which causes you to have more positive thoughts, then you feel even better.**
 
-Koi Fresco
+James Borg
