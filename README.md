@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every morning you have a new opportunity to become a happier version of yourself.**
+**In order to carry a positive action we must develop here a positive vision.**
 
-Anonymous
+Dalai Lama
