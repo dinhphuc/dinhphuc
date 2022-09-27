@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It always seems impossible until it's done.**
+**What you're thinking is what you're becoming.**
 
-Nelson Mandela
+Muhammad Ali
