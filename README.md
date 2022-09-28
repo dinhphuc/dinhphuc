@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live for yourself and don't ever stop.**
+**You will find only what you bring in.**
 
-John Tew
+Yoda
