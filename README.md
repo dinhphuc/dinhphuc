@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It takes courage to grow up and become who you really are.**
+**Think gold and never settle for silver.**
 
-E.E. Cummings
+Jim Afremow
