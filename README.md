@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
+**Keep your face always toward the sunshine - and shadows will fall behind you.**
 
-Anonymous
+Walt Whitman
