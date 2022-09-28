@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A smile is the beauty of the soul.**
+**Don't regret the past, just learn from it.**
 
-Lailah Gifty
+Ben Ipock
