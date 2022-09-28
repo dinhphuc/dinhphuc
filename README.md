@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe in yourself. You are braver than you think, more talented than you know, and capable of more than you imagine.**
+**Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no hope at all.**
 
-Roy T. Bennett
+Dale Carnegie
