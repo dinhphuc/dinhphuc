@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Think well of all, be patient with all, and try to find the good in all.**
+**Some people ask me 'How to be happy' and my answer is always the same: just be happy!**
 
-Muhammad Ali
+Anonymous
