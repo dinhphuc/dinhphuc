@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't get discouraged by what you're going through. Your time is coming. Where you are is not where you're going to stay.**
+**A fault confessed is half redressed.**
 
-Anonymous
+Zulu Proverb
