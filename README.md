@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are loved.**
+**It takes courage to grow up and become who you really are.**
 
-Anonymous
+E.E. Cummings
