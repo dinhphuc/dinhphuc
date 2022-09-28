@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A warm smile is the universal language of kindness.**
+**If you really look closely, most overnight successes took a long time.**
 
-William Arthur Ward
+Steve Jobs
