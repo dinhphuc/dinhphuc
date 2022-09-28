@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you set your goals ridiculously high and it's a failure, you will fail above everyone else's success.**
+**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
 
-James Cameron
+Anonymous
