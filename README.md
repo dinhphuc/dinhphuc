@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't regret the past, just learn from it.**
+**A fault confessed is half redressed.**
 
-Ben Ipock
+Zulu Proverb
