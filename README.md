@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep your face always toward the sunshine - and shadows will fall behind you.**
+**When written in Chinese the word "crisis" is composed of two characters - one represents danger and the other represents opportunity.**
 
-Walt Whitman
+John F. Kennedy
