@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One of the best ways of being happy with life is to make someone happy.**
+**Think well of all, be patient with all, and try to find the good in all.**
 
-Anonymous
+Muhammad Ali
