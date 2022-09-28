@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A fault confessed is half redressed.**
+**Your body is made to move so move it.**
 
-Zulu Proverb
+Toni Sorenson
