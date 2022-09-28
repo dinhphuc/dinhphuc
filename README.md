@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When written in Chinese the word "crisis" is composed of two characters - one represents danger and the other represents opportunity.**
+**A warm smile is the universal language of kindness.**
 
-John F. Kennedy
+William Arthur Ward
