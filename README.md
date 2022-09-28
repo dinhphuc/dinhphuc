@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your body is made to move so move it.**
+**Don't explain your philosophy. Embody it.**
 
-Toni Sorenson
+Epictetus
