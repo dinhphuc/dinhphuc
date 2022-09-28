@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Some people ask me 'How to be happy' and my answer is always the same: just be happy!**
+**A smile is the beauty of the soul.**
 
-Anonymous
+Lailah Gifty
