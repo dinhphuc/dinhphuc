@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will find only what you bring in.**
+**No man can paddle two canoes at the same time.**
 
-Yoda
+Bantu Proverb
