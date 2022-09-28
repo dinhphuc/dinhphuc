@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hard times don't create heroes. It is during the hard times when the 'hero' within us is revealed.**
+**Don't get discouraged by what you're going through. Your time is coming. Where you are is not where you're going to stay.**
 
-Bob Riley
+Anonymous
