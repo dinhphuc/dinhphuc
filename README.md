@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you really look closely, most overnight successes took a long time.**
+**If you cannot do great things, do small things in a great way.**
 
-Steve Jobs
+Napoleon Hill
