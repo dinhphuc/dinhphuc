@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Open your eyes and notice the beauty of this wonderful world.**
+**Love cures people - both the ones who give it and the ones who receive it.**
 
-Anonymous
+Karl A. Menninger
