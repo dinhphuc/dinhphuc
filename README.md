@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe with all of your heart that you will do what you were made to do.**
+**You cannot fail at being yourself.**
 
-Orison Swett Marden
+Wayne Dyer
