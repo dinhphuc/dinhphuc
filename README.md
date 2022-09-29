@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smaller in number are we, but larger in mind.**
+**I've got nothing to do today but smile.**
 
-Yoda
+Paul Simon
