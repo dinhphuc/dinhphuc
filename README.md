@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**People are just as happy as they make up their minds to be.**
+**Believe with all of your heart that you will do what you were made to do.**
 
-Abraham Lincoln
+Orison Swett Marden
