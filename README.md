@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pass on what you have learned.**
+**Nothing is more beautiful than the smile that has struggled through the tears.**
 
-Yoda
+Demi Lovato
