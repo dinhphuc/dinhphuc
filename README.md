@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Look at this tree. I cannot make it blossom when it suits me, nor make it bear fruit before its time.**
+**If no mistake have you made, yet losing you are... a different game you should play.**
 
-Master Oogway
+Yoda
