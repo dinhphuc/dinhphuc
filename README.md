@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I've got nothing to do today but smile.**
+**Look at this tree. I cannot make it blossom when it suits me, nor make it bear fruit before its time.**
 
-Paul Simon
+Master Oogway
