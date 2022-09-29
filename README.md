@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Tough times don't last. Tough people do.**
+**If you are positive, you'll see opportunities instead of obstacles.**
 
-Robert H. Schuller
+Widad Akrawi
