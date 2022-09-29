@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I find that the harder I work, the more luck I seem to have.**
+**Pass on what you have learned.**
 
-Thomas Jefferson
+Yoda
