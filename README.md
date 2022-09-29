@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are positive, you'll see opportunities instead of obstacles.**
+**Life is too short to spend it at war with yourself.**
 
-Widad Akrawi
+Anonymous
