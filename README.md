@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When the 'why' is clear, the 'how' is easy.**
+**The future belongs to those who believe in the beauty of their dreams.**
 
-Anonymous
+Franklin D. Roosevelt
