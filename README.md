@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no hope at all.**
+**Only in the darkness can you see the stars.**
 
-Dale Carnegie
+Martin Luther King, Jr.
