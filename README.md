@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If no mistake have you made, yet losing you are... a different game you should play.**
+**When the 'why' is clear, the 'how' is easy.**
 
-Yoda
+Anonymous
