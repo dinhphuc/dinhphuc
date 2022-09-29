@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot fail at being yourself.**
+**Smaller in number are we, but larger in mind.**
 
-Wayne Dyer
+Yoda
