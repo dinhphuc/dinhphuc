@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The future belongs to those who believe in the beauty of their dreams.**
+**Love cures people - both the ones who give it and the ones who receive it.**
 
-Franklin D. Roosevelt
+Karl A. Menninger
