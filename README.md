@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing is more beautiful than the smile that has struggled through the tears.**
+**Today you are you! That is truer than true! There is no one alive who is you-er than you!**
 
-Demi Lovato
+Dr. Seuss
