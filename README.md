@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do not blame the world. Find a solution.**
+**In order to carry a positive action we must develop here a positive vision.**
 
-Sri Chinmoy
+Dalai Lama
