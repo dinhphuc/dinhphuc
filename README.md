@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In order to carry a positive action we must develop here a positive vision.**
+**All you need is love.**
 
-Dalai Lama
+The Beatles
