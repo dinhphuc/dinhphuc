@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to go fast, go alone. If you want to go far, go together.**
+**We are made to persist. That's how we find out who we are.**
 
-African Proverb
+Tobias Wolff
