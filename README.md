@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You've never lived this day before, and you never will again. Make the most of it!**
+**Attitude will always define who we are in life.**
 
-Anonymous
+Mark A. Brennan
