@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All you need is love.**
+**Only in the darkness can you see the stars.**
 
-The Beatles
+Martin Luther King, Jr.
