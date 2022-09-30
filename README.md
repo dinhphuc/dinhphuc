@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We are made to persist. That's how we find out who we are.**
+**People who make you feel better about yourself when you're sad are so important.**
 
-Tobias Wolff
+Anonymous
