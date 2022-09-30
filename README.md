@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hope never abandons you, you abandon it.**
+**Cheerfulness is the very flower of health.**
 
-George Weinberg
+Anonymous
