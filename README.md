@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't give up on yourself. You're worth it.**
+**Victory is always possible for the person who refuses to stop fighting.**
 
-Anonymous
+Napoleon Hill
