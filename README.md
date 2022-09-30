@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life works for my benefit.**
+**You have a choice. You can throw in the towel, or you can use it to wipe the sweat off of your face.**
 
-Anonymous
+Gatorade
