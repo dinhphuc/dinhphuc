@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everytime you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**
+**Don't give up on yourself. You're worth it.**
 
-Mother Teresa
+Anonymous
