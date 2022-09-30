@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you love what you have, you have everything you need.**
+**Make the mind tougher by exposing it to adversity.**
 
-Anonymous
+Robert Greene
