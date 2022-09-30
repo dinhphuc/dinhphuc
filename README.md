@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure is not the opposite of success. Its part of success.**
+**Difficult roads always lead to beautiful destinations.**
 
-Anonymous
+Zig Ziglar
