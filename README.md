@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do or do not. There is no try.**
+**When you find your why, you find a way to make it happen.**
 
-Yoda
+Eric Thomas
