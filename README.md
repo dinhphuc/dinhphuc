@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only in the darkness can you see the stars.**
+**Do or do not. There is no try.**
 
-Martin Luther King, Jr.
+Yoda
