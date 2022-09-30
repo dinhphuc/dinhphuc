@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Easy choices, hard life. Hard choices, easy life.**
+**Failure is not the opposite of success. Its part of success.**
 
-Jerzy Gregorek
+Anonymous
