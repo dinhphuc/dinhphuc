@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Well I am here to tell you that one of the best ways to make a difference, is by sharing a smile and radiating good positive energy.**
+**Everytime you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**
 
-Anonymous
+Mother Teresa
