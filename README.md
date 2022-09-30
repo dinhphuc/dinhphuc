@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Just one smile, immensely increases the beauty, of the universe.**
+**Do not blame the world. Find a solution.**
 
 Sri Chinmoy
