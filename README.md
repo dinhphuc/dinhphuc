@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Victory is always possible for the person who refuses to stop fighting.**
+**Just one smile, immensely increases the beauty, of the universe.**
 
-Napoleon Hill
+Sri Chinmoy
