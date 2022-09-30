@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**With virtue, you can't be completely poor; without it, you can't be truly rich.**
+**You've never lived this day before, and you never will again. Make the most of it!**
 
-Chinese Proverb
+Anonymous
