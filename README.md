@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you find your why, you find a way to make it happen.**
+**With virtue, you can't be completely poor; without it, you can't be truly rich.**
 
-Eric Thomas
+Chinese Proverb
