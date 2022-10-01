@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hate. It has caused a lot of problems in this world but has not solved one yet.**
+**You're braver than you believe, and stronger than you seem, and smarter than you think.**
 
-Maya Angelou
+A.A. Mine
