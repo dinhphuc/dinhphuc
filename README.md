@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I am an ordinary man who worked hard to develop the talent I was given. I believed in myself, and I believe in the goodness of others.**
+**There may be people that have more talent than you, but theres no excuse for anyone to work harder than you.**
 
-Muhammad Ali
+Derek Jeter
