@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want it, you'll find a way. If you don't, you'll find an excuse.**
+**We either make ourselves miserable or we make ourselves strong. The amount of work is the same.**
 
-Anonymous
+Carlos Costaneda
