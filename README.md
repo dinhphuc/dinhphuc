@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When obstacles arise, you change your direction to reach your goal, you do not change your decision to get there.**
+**Being happy is the greatest form of success.**
 
-Zig Ziglar
+Anonymous
