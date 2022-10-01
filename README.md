@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You're braver than you believe, and stronger than you seem, and smarter than you think.**
+**All souls are lost until they are found.**
 
-A.A. Mine
+Kate McGahan
