@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure is not the falling down but the staying down.**
+**Never underestimate the power you have to take your life in a new direction.**
 
-Anonymous
+Germany Kent
