@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The harder the battle. The sweeter the victory.**
+**We all make mistakes, but the winner knows that success comes from perseverance: trying, failing, learning, and doing it again until he succeeds.**
 
-Les Brown
+Judy Ford
