@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I don't count my sit-ups; I only start counting when it starts hurting because they're the only ones that count.**
+**Failure is not the falling down but the staying down.**
 
-Muhammad Ali
+Anonymous
