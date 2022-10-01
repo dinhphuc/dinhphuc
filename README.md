@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Two wrongs don't make a right.**
+**If you are willing to do more than you are paid to do, eventually you will be paid to do more than you do.**
 
-English Proverb
+Anonymous
