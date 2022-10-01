@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The vision of a champion is someone who is bent over, drenched in sweat, at the point of exhaustion when no one else is watching.**
+**Your task is not to seek for love, but merely to seek and find all the barriers within yourself that you have built against it.**
 
-Jim Afremow
+Rumi
