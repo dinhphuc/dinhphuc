@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You have a choice. You can throw in the towel, or you can use it to wipe the sweat off of your face.**
+**No man can paddle two canoes at the same time.**
 
-Gatorade
+Bantu Proverb
