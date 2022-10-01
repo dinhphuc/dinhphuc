@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We all make mistakes, but the winner knows that success comes from perseverance: trying, failing, learning, and doing it again until he succeeds.**
+**Strength grows in the moments when you think you can't go on but you keep going anyway.**
 
-Judy Ford
+Anonymous
