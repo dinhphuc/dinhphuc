@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No man can paddle two canoes at the same time.**
+**Laugh. It's free medicine you don't need insurance for.**
 
-Bantu Proverb
+Anonymous
