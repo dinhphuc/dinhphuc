@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There may be people that have more talent than you, but theres no excuse for anyone to work harder than you.**
+**Positive thinking will let you do everything better than negative thinking will.**
 
-Derek Jeter
+Zig Ziglar
