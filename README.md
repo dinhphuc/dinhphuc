@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whoever is happy will make others happy too.**
+**Don't waste a minute not being happy. If one door closes, run to the next window - or break down a door.**
 
-Anonymous
+Brooke Shields
