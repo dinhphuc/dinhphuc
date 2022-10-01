@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Positive thinking will let you do everything better than negative thinking will.**
+**Anyone who has grown mentally, physically or spiritually knows that growth is not found in comfort.**
 
-Zig Ziglar
+Anonymous
