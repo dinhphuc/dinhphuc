@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Anyone who has grown mentally, physically or spiritually knows that growth is not found in comfort.**
+**When obstacles arise, you change your direction to reach your goal, you do not change your decision to get there.**
 
-Anonymous
+Zig Ziglar
