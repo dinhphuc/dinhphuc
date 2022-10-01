@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We either make ourselves miserable or we make ourselves strong. The amount of work is the same.**
+**You have a choice. You can throw in the towel, or you can use it to wipe the sweat off of your face.**
 
-Carlos Costaneda
+Gatorade
