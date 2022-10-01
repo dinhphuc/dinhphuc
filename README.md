@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Being happy is the greatest form of success.**
+**Go after the things you want.**
 
-Anonymous
+Simon Sinek
