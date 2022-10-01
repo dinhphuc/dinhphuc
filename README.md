@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can have everything you want in life if you just help enough people get what they want in life.**
+**We don't develop courage by being happy every day. We develop it by surviving difficult times and challenging adversity.**
 
-Zig Ziglar
+Barbara De Angelis
