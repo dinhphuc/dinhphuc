@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We don't develop courage by being happy every day. We develop it by surviving difficult times and challenging adversity.**
+**If you want it, you'll find a way. If you don't, you'll find an excuse.**
 
-Barbara De Angelis
+Anonymous
