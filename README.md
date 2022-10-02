@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It makes a big difference in your life when you stay positive.**
+**Strength is the product of struggle. You must do what others don't to achieve what others wont.**
 
-Ellen DeGeneres
+Henry Rollins
