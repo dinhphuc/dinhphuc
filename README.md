@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Plenty of people miss their share of happiness, not because they never found it, but because they didn't stop to enjoy it.**
+**It's not about perfect. It's about effort.**
 
-William Feather
+Jillian Michaels
