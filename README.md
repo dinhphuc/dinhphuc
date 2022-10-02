@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be you. Do you. For you.**
+**Even the greatest were beginners. Don't be afraid to take that first step.**
 
 Anonymous
