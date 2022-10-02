@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The biggest adventure you can take is to live the life of your dreams.**
+**I attribute my success to this: I never gave or took any excuse.**
 
-Oprah Winfrey
+Florence Nightingale
