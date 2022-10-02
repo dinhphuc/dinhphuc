@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Cheerfulness is the very flower of health.**
+**How you do anything is how you do everything.**
 
-Anonymous
+T. Harv Eker
