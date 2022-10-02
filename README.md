@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Go after the things you want.**
+**Our greatest weakness lies in giving up. The most certain way to succeed is to just try one more time.**
 
-Simon Sinek
+Thomas Edison
