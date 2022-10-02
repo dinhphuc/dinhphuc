@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success isn't just about what you accomplish in life. It's about what you inspire others to do.**
+**Don't be afraid to start over. It's a brand new opportunity to rebuild what you truly want.**
 
 Anonymous
