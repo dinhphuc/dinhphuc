@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hope never abandons you, you abandon it.**
+**Happy people don't have the best of everything they make the best of everything.**
 
-George Weinberg
+Anonymous
