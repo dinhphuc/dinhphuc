@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be afraid to start over. It's a brand new opportunity to rebuild what you truly want.**
+**Be you. Do you. For you.**
 
 Anonymous
