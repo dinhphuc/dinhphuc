@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Even the greatest were beginners. Don't be afraid to take that first step.**
+**The more grateful I am, the more beauty I see.**
 
-Anonymous
+Mary Davis
