@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The more grateful I am, the more beauty I see.**
+**Your positive action combined with positive thinking results in success.**
 
-Mary Davis
+Anonymous
