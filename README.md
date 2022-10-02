@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You've never lived this day before, and you never will again. Make the most of it!**
+**Once you replace negative thoughts with positive ones, you'll start having positive results.**
 
-Anonymous
+Willie Nelson
