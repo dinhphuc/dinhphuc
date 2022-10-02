@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter who you are, no matter what you did, no matter where you've come from, you can always change, and become a better version of yourself.**
+**A difficult time can be more readily endured if we retain the conviction that our existence holds a purpose - a cause to pursue, a person to love, a goal to achieve.**
 
-Madonna
+John Maxwell
