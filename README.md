@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength is the product of struggle. You must do what others don't to achieve what others wont.**
+**Do all things with love.**
 
-Henry Rollins
+Og Mandino
