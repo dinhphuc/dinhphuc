@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I attribute my success to this: I never gave or took any excuse.**
+**Hope never abandons you, you abandon it.**
 
-Florence Nightingale
+George Weinberg
