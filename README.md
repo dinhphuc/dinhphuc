@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do all things with love.**
+**The biggest adventure you can take is to live the life of your dreams.**
 
-Og Mandino
+Oprah Winfrey
