@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence comes from discipline and training.**
+**Nobody can bring you peace but yourself.**
 
-Robert Kiyosaki
+Ralph Waldo Emerson
