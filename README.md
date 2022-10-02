@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will be blessed the moment you realize you already are.**
+**It makes a big difference in your life when you stay positive.**
 
-Bryant Mcgill
+Ellen DeGeneres
