@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever the mind can conceive and believe, it can achieve.**
+**No one controls how I feel about myself, but me.**
 
-Napoleon Hill
+Anonymous
