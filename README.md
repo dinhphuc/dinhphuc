@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The absence of adversity is an indicator that my goals aren't significant enough.**
+**Confidence comes from discipline and training.**
 
-Clint Bruce
+Robert Kiyosaki
