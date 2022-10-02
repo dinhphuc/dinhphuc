@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happy people don't have the best of everything they make the best of everything.**
+**Whatever the mind can conceive and believe, it can achieve.**
 
-Anonymous
+Napoleon Hill
