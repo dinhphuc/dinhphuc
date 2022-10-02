@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No one controls how I feel about myself, but me.**
+**Don't worry about failure; you only have to be right once.**
 
-Anonymous
+Drew Houston
