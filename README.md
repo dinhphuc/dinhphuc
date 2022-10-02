@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody can bring you peace but yourself.**
+**You will be blessed the moment you realize you already are.**
 
-Ralph Waldo Emerson
+Bryant Mcgill
