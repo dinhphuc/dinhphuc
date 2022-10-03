@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Find a place inside where there's joy, and the joy will burn out the pain.**
+**Great minds discuss ideas; average minds discuss events; small minds discuss people.**
 
-Joseph Campbell
+Eleanor Roosevelt
