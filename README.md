@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**He who lives in harmony with himself lives in harmony with the universe.**
+**Enjoy the little things, for one day you may look back and realize they were the big things.**
 
-Marcus Aurelius
+Robert Brault
