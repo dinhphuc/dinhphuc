@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Enjoy the little things, for one day you may look back and realize they were the big things.**
+**I failed my way to success.**
 
-Robert Brault
+Thomas Edison
