@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Look in the mirror. That's your competition.**
+**A champion is someone who gets up when they can't.**
 
-John Assaraf
+Jack Dempsey
