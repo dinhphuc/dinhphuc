@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never let the fear of striking out keep you from playing the game.**
+**The starting point of all achievement is desire.**
 
-Babe Ruth
+Napoleon Hill
