@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Gratitude turns what we have into enough.**
+**Look in the mirror. That's your competition.**
 
-Anonymous
+John Assaraf
