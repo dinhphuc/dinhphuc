@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Enjoy the little things, for one day you may look back and realize they were the big things.**
+**You deserve to be happy. You deserve to live a life you are excited about. Don't let others make you forget that.**
 
-Robert Brault
+Anonymous
