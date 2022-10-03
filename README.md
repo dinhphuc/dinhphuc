@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We are made to persist. That's how we find out who we are.**
+**Doing what you like is freedom. Liking what you do is happiness.**
 
-Tobias Wolff
+Anonymous
