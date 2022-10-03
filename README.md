@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A champion is someone who gets up when they can't.**
+**We are made to persist. That's how we find out who we are.**
 
-Jack Dempsey
+Tobias Wolff
