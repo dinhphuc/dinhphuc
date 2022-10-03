@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you have exhausted all possibilities, remember this: you haven't.**
+**If it is important to you, you will find a way. If not, you'll find an excuse.**
 
-Thomas Edison
+Anonymous
