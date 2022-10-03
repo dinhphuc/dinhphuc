@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is a magical ride. Enjoy every moment.**
+**Look in the mirror. That's your competition.**
 
-Anonymous
+John Assaraf
