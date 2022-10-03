@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The starting point of all achievement is desire.**
+**Make today so awesome yesterday gets jealous.**
 
-Napoleon Hill
+Anonymous
