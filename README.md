@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to lift yourself up, lift up someone else.**
+**It's not whether you get knocked down. It's whether you get back up.**
 
-Booker T. Washington
+Vince Lombardi
