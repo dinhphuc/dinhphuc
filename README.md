@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is about making an impact, not making an income.**
+**What you choose to focus on expands and grows.**
 
-Kevin Kruse
+Anonymous
