@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Make today so awesome yesterday gets jealous.**
+**You know that it's a fool who plays it cool by making his world a little colder.**
 
-Anonymous
+The Beatles
