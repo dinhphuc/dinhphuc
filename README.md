@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You know that it's a fool who plays it cool by making his world a little colder.**
+**He who lives in harmony with himself lives in harmony with the universe.**
 
-The Beatles
+Marcus Aurelius
