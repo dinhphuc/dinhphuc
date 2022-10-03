@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not bragging if you can back it up.**
+**Find a place inside where there's joy, and the joy will burn out the pain.**
 
-Muhammed Ali
+Joseph Campbell
