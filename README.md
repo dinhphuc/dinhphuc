@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You deserve to be happy. You deserve to live a life you are excited about. Don't let others make you forget that.**
+**If you want to lift yourself up, lift up someone else.**
 
-Anonymous
+Booker T. Washington
