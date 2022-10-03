@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Great minds discuss ideas; average minds discuss events; small minds discuss people.**
+**Never let the fear of striking out keep you from playing the game.**
 
-Eleanor Roosevelt
+Babe Ruth
