@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**That is bad news... if you do not believe in yourself.**
+**Life is a magical ride. Enjoy every moment.**
 
-Master Oogway
+Anonymous
