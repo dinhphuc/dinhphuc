@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When I hear somebody sigh, 'Life is hard,' I am always tempted to ask, 'Compared to what?'**
+**The man who views the world at 50 the same as he did at 20 has wasted 30 years of his life.**
 
-Sydney Harris
+Muhammad Ali
