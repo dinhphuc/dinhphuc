@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is a journey ... not a destination.**
+**Success is what happens after you have survived all of your disappointments.**
 
-Ben Sweetland
+Anonymous
