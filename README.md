@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Float like a butterfly, sting like a bee. The hands can't hit what the eyes can't see.**
+**Live for yourself and don't ever stop.**
 
-Muhammad Ali
+John Tew
