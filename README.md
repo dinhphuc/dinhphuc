@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be crazy. Be stupid. Be silly. Be weird. Be whatever. Because life is too short to be anything but happy.**
+**When you don't talk, there's a lot of stuff that ends up not getting said.**
 
-Anonymous
+Catherine Gilbert Murdock
