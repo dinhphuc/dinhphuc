@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no charm equal to tenderness of heart.**
+**You don't have to be great to start. But you do have to start to be great.**
 
-Jane Austen
+Zig Ziglar
