@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't judge each day by the harvest you reap but by the seeds that you plant.**
+**The reputation of a thousand years may be determined by the conduct of one hour.**
 
-Robert Louis Stevenson
+Japanese Proverb
