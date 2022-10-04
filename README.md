@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When it's pouring rain and you're bowling along through the wet, there's satisfaction in knowing you're out there and the others aren't.**
+**When will you realize, the more you take, the less you have.**
 
-Peter Snell
+Master Oogway
