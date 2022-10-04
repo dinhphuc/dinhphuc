@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is what happens after you have survived all of your disappointments.**
+**Start doing things to make you happy.**
 
-Anonymous
+Reyna Biddy
