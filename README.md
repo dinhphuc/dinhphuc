@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When written in Chinese the word "crisis" is composed of two characters - one represents danger and the other represents opportunity.**
+**Be yourself. An original is so much better than a copy.**
 
-John F. Kennedy
+Anonymous
