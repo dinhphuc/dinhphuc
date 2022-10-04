@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your time is limited, so don't waste it living someone else's life.**
+**Be not afraid of life. Believe that life is worth living, and your belief will help create the fact.**
 
-Steve Jobs
+William James
