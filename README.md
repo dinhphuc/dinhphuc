@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't have to be great to start. But you do have to start to be great.**
+**When written in Chinese the word "crisis" is composed of two characters - one represents danger and the other represents opportunity.**
 
-Zig Ziglar
+John F. Kennedy
