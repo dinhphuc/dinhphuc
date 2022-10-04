@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your relationship with yourself sets the tone for every other relationship you have.**
+**People are just as happy as they make up their minds to be.**
 
-Anonymous
+Abraham Lincoln
