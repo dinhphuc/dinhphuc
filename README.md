@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**People are just as happy as they make up their minds to be.**
+**Staying positive does not mean that things will turn out okay. Rather it is knowing that you will be okay no matter how things turn out.**
 
-Abraham Lincoln
+Anonymous
