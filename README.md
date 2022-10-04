@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live for yourself and don't ever stop.**
+**You don't have to be great to start. But you do have to start to be great.**
 
-John Tew
+Zig Ziglar
