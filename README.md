@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When will you realize, the more you take, the less you have.**
+**Don't judge each day by the harvest you reap but by the seeds that you plant.**
 
-Master Oogway
+Robert Louis Stevenson
