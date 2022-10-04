@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be not afraid of life. Believe that life is worth living, and your belief will help create the fact.**
+**If you look the right way, you can see that the whole world is a garden.**
 
-William James
+Frances Hodgson Burnett
