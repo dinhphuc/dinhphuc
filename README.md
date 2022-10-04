@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't have to be great to start. But you do have to start to be great.**
+**Your time is limited, so don't waste it living someone else's life.**
 
-Zig Ziglar
+Steve Jobs
