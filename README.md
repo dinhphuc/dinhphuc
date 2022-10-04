@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The pessimist sees difficulty in every opportunity. The optimist sees opportunity in every difficulty.**
+**Happiness is a journey ... not a destination.**
 
-Winston Churchill
+Ben Sweetland
