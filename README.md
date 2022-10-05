@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hard times don't create heroes. It is during the hard times when the 'hero' within us is revealed.**
+**Be so good they can't ignore you.**
 
-Bob Riley
+Steve Martin
