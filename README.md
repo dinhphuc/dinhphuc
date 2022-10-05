@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember the entrance to the sanctuary is inside you.**
+**My heart is always open to love.**
 
-Rumi
+Anonymous
