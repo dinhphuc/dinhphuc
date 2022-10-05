@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is a magical ride. Enjoy every moment.**
+**Nothing will work unless you do.**
 
-Anonymous
+Maya Angelou
