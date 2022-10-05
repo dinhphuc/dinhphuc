@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We should never change our minds about where we are going, but always be curious about different ways to get there.**
+**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
 
-Simon Sinek
+Wayne Dyer
