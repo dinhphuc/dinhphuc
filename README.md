@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Difficult to see. Always in motion is the future.**
+**I'm too grateful to be hateful. I am too blessed to be stressed.**
 
-Yoda
+El DeBarge
