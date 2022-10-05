@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
+**You don't have to control your thoughts; you just have to stop letting them control you.**
 
-Wayne Dyer
+Dan Millman
