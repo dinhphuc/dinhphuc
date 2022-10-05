@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can if you think you can.**
+**The journey of a thousand miles begins with one step.**
 
-George Reeves
+Lao Tzu
