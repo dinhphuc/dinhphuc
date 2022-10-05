@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**My heart is always open to love.**
+**Leadership is not about being in charge. Leadership is about taking care of those in your charge.**
 
-Anonymous
+Simon Sinek
