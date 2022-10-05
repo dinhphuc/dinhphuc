@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Work hard in silence. Let success make the noise.**
+**If you set your goals ridiculously high and it's a failure, you will fail above everyone else's success.**
 
-Anonymous
+James Cameron
