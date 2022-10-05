@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When it rains look for rainbows.**
+**Think well of all, be patient with all, and try to find the good in all.**
 
-Oscar Wilde
+Muhammad Ali
