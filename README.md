@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't have to control your thoughts; you just have to stop letting them control you.**
+**Remember the entrance to the sanctuary is inside you.**
 
-Dan Millman
+Rumi
