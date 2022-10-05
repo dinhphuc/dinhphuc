@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your problem isn't the problem, it's your attitude about the problem.**
+**Life is a magical ride. Enjoy every moment.**
 
-Ann Brashares
+Anonymous
