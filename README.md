@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Leadership is not about being in charge. Leadership is about taking care of those in your charge.**
+**Stop doubting yourself. Work hard and make it happen.**
 
-Simon Sinek
+Anonymous
