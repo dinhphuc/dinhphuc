@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be so good they can't ignore you.**
+**If you set your goals ridiculously high and it's a failure, you will fail above everyone else's success.**
 
-Steve Martin
+James Cameron
