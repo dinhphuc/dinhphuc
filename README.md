@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The journey of a thousand miles begins with one step.**
+**Work hard in silence. Let success make the noise.**
 
-Lao Tzu
+Anonymous
