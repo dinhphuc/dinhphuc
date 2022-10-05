@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is only real when shared.**
+**A person who never made a mistake never tried anything new.**
 
-Jon Krakauer
+Albert Einstein
