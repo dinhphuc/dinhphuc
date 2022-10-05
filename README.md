@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your path you must decide.**
+**Once you're beat mentally, you might as well not even go to the starting line.**
 
-Yoda
+Todd Williams
