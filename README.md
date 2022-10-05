@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You may say I'm a dreamer but I'm not the only one.**
+**Once you choose hope, anything's possible.**
 
-John Lennon
+Christopher Reeve
