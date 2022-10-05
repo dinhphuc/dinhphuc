@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Think well of all, be patient with all, and try to find the good in all.**
+**Difficult to see. Always in motion is the future.**
 
-Muhammad Ali
+Yoda
