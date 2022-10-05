@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you set your goals ridiculously high and it's a failure, you will fail above everyone else's success.**
+**We should never change our minds about where we are going, but always be curious about different ways to get there.**
 
-James Cameron
+Simon Sinek
