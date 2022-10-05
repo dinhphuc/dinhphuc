@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Blessings sometimes show up in unrecognizable disguises.**
+**You may say I'm a dreamer but I'm not the only one.**
 
-Janette Oke
+John Lennon
