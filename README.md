@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm too grateful to be hateful. I am too blessed to be stressed.**
+**Blessings sometimes show up in unrecognizable disguises.**
 
-El DeBarge
+Janette Oke
