@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love the life you live. Live the life you love.**
+**Hard times don't create heroes. It is during the hard times when the 'hero' within us is revealed.**
 
-Bob Marley
+Bob Riley
