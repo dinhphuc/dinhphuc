@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The best preparation for tomorrow is doing your best today.**
+**Life is too short to spend it at war with yourself.**
 
-H. Jackson Brown, Jr
+Anonymous
