@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Patience you must have, my young padawan.**
+**He who sweats more in training bleeds less in war.**
 
-Yoda
+Greek Proverb
