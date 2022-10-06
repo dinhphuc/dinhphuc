@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**He who sweats more in training bleeds less in war.**
+**Look for something positive in each day, even if some days you have to look a little harder.**
 
-Greek Proverb
+Anonymous
