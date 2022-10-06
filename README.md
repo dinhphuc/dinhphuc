@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Beauty lies in the eye of the beholder.**
+**Tension is who you think you should be. Relaxation is who you are.**
 
-English Proverb
+Jim Afremow
