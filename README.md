@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A person who never made a mistake never tried anything new.**
+**The greatest mistake you can make in life is to continually fear that you will make one.**
 
-Albert Einstein
+Elbert Hubbard
