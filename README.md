@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you know what you want, and want it bad enough, you'll find a way to get it.**
+**Sometimes the bravest thing you can do is to keep going when you really feel like giving up.**
 
-Jim Rohn
+Anonymous
