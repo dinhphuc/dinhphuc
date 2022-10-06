@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The best way to gain self-confidence is to do what you are afraid to do.**
+**You don't go up to the top, you grow up to the top.**
 
-Swati Sharma
+John C. Maxwell
