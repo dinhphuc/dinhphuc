@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you do, be different. If you're different, you will stand out.**
+**Climb the mountains to see lowlands.**
 
-Anita Roddick
+Chinese Proverb
