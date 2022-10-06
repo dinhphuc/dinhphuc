@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Sometimes the bravest thing you can do is to keep going when you really feel like giving up.**
+**Whatever you do, be different. If you're different, you will stand out.**
 
-Anonymous
+Anita Roddick
