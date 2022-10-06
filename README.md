@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't gain anything from stressing. Remember that.**
+**Beauty lies in the eye of the beholder.**
 
-Anonymous
+English Proverb
