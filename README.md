@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you depersonalize abrasive behavior and see it as a call for help you become a catalyst for the best kind of change.**
+**Patience you must have, my young padawan.**
 
-Marilyn Suttle
+Yoda
