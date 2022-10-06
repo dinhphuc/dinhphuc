@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Tension is who you think you should be. Relaxation is who you are.**
+**Don't let the past steal your present.**
 
-Jim Afremow
+Terri Guillemets
