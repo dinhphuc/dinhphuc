@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Wherever you go, no matter what the weather, always bring your own sunshine.**
+**The first and greatest victory is to conquer self.**
 
-Anthony J. D'Angelo
+Plato
