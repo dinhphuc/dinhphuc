@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't let the past steal your present.**
+**Failure will never overtake me if my determination to succeed is strong enough.**
 
-Terri Guillemets
+Og Mandino
