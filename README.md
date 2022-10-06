@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The very best thing you can do for the whole world is to make the best of yourself.**
+**He who sweats more in training bleeds less in war.**
 
-Anonymous
+Greek Proverb
