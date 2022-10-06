@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Instead of feeding myself excuses why I can't, I give myself reasons why I can.**
+**Wherever you go, no matter what the weather, always bring your own sunshine.**
 
-Anonymous
+Anthony J. D'Angelo
