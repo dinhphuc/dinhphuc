@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing will work unless you do.**
+**The best preparation for tomorrow is doing your best today.**
 
-Maya Angelou
+H. Jackson Brown, Jr
