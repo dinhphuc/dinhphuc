@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure will never overtake me if my determination to succeed is strong enough.**
+**Wherever you go, no matter what the weather, always bring your own sunshine.**
 
-Og Mandino
+Anthony J. D'Angelo
