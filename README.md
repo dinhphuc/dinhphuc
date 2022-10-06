@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is too short to spend it at war with yourself.**
+**Honesty is the first chapter in the book of wisdom.**
 
-Anonymous
+Thomas Jefferson
