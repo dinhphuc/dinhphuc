@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest mistake you can make in life is to continually fear that you will make one.**
+**Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no hope at all.**
 
-Elbert Hubbard
+Dale Carnegie
