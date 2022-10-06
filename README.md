@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Look for something positive in each day, even if some days you have to look a little harder.**
+**A person who never made a mistake never tried anything new.**
 
-Anonymous
+Albert Einstein
