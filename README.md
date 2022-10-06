@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The first and greatest victory is to conquer self.**
+**Live life to the fullest and focus on the positive.**
 
-Plato
+Matt Cameron
