@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A hero is an ordinary individual who finds the strength to persevere and endure in spite of overwhelming obstacles.**
+**No matter who you are, no matter what you did, no matter where you've come from, you can always change, and become a better version of yourself.**
 
-Christopher Reeve
+Madonna
