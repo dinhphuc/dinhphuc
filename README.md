@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Look at this tree. I cannot make it blossom when it suits me, nor make it bear fruit before its time.**
+**A hero is an ordinary individual who finds the strength to persevere and endure in spite of overwhelming obstacles.**
 
-Master Oogway
+Christopher Reeve
