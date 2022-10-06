@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Climb the mountains to see lowlands.**
+**The best way to gain self-confidence is to do what you are afraid to do.**
 
-Chinese Proverb
+Swati Sharma
