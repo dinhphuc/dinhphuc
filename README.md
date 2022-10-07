@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We don't develop courage by being happy every day. We develop it by surviving difficult times and challenging adversity.**
+**'Thank you' is the best prayer that anyone could say.**
 
-Barbara De Angelis
+Alice Walker
