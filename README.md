@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want light to come into your life, you need to stand where it is shining.**
+**Work hard and be nice to people.**
 
-Guy Finley
+Anonymous
