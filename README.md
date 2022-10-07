@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To be calm is the highest achievement of the self.**
+**If you only do what you can do, you will never be more than you are now.**
 
-Zen Proverb
+Master Oogway
