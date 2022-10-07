@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Courage doesn't always roar, sometimes it's the quiet voice at the end of the day whispering 'I will try again tomorrow'.**
+**Always two there are, no more, no less. A master and an apprentice.**
 
-Mary Anne Radmacher
+Yoda
