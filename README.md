@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness resides not in possessions, and not in gold, happiness dwells in the soul.**
+**Today is a beautiful day and I will attract good things into my life.**
 
-Democritus
+Anonymous
