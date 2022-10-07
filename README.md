@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't cry because it's over, smile because it happened.**
+**You can either complain about it or grind, I choose to grind.**
 
-Dr. Seuss
+Kyle Vidrine
