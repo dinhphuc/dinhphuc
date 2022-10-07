@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always two there are, no more, no less. A master and an apprentice.**
+**The difference between the impossible and the possible lies in a person's determination.**
 
-Yoda
+Tommy Lasorda
