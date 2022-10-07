@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Today is a beautiful day and I will attract good things into my life.**
+**Often it isn't the mountains ahead that wear you out, it's the little pebble in your shoe.**
 
-Anonymous
+Muhammad Ali
