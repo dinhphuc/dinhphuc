@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not how much we have, but how much we enjoy, that makes happiness.**
+**You can either complain about it or grind, I choose to grind.**
 
-Charles Spurgeon
+Kyle Vidrine
