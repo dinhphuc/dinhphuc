@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The starting point of all achievement is desire.**
+**Happiness resides not in possessions, and not in gold, happiness dwells in the soul.**
 
-Napoleon Hill
+Democritus
