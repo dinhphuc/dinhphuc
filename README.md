@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Choosing to be positive and having a grateful attitude is going to determine how you're going to live your life.**
+**The greatest glory in living lies not in never falling, but in rising every time we fall.**
 
-Joel Osteen
+Nelson Mandela
