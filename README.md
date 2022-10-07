@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**'Thank you' is the best prayer that anyone could say.**
+**May you live all the days of your life.**
 
-Alice Walker
+Jonathan Swift
