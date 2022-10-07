@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Often it isn't the mountains ahead that wear you out, it's the little pebble in your shoe.**
+**You don't gain anything from stressing. Remember that.**
 
-Muhammad Ali
+Anonymous
