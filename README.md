@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between the impossible and the possible lies in a person's determination.**
+**It is not how much we have, but how much we enjoy, that makes happiness.**
 
-Tommy Lasorda
+Charles Spurgeon
