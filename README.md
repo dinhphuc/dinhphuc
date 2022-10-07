@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can either complain about it or grind, I choose to grind.**
+**The starting point of all achievement is desire.**
 
-Kyle Vidrine
+Napoleon Hill
