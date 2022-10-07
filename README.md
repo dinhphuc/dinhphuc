@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can either complain about it or grind, I choose to grind.**
+**Live your life for you.**
 
-Kyle Vidrine
+Anonymous
