@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be humble in your confidence yet courageous in your character.**
+**At first they'll ask you why you're doing it. Later they'll ask how you did it.**
 
-Melanie Koulouris
+Anonymous
