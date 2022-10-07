@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It ain't as bad as you think. It will look better in the morning.**
+**Don't cry because it's over, smile because it happened.**
 
-Colin Powell
+Dr. Seuss
