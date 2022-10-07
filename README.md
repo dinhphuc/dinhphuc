@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**At first they'll ask you why you're doing it. Later they'll ask how you did it.**
+**You will be blessed the moment you realize you already are.**
 
-Anonymous
+Bryant Mcgill
