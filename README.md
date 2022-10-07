@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live your life for you.**
+**With virtue, you can't be completely poor; without it, you can't be truly rich.**
 
-Anonymous
+Chinese Proverb
