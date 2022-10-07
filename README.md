@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**May you live all the days of your life.**
+**Make the most of yourself....for that is all there is of you.**
 
-Jonathan Swift
+Ralph Waldo Emerson
