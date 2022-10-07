@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't gain anything from stressing. Remember that.**
+**Be humble in your confidence yet courageous in your character.**
 
-Anonymous
+Melanie Koulouris
