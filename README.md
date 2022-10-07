@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Work hard and be nice to people.**
+**The only easy day was yesterday.**
 
-Anonymous
+Navy Seals
