@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live life to the fullest and focus on the positive.**
+**To be calm is the highest achievement of the self.**
 
-Matt Cameron
+Zen Proverb
