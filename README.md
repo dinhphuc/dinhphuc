@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**With virtue, you can't be completely poor; without it, you can't be truly rich.**
+**To fall in love with yourself is the first secret to happiness.**
 
-Chinese Proverb
+Robert Morley
