@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only easy day was yesterday.**
+**If you stumble, make it part of the dance.**
 
-Navy Seals
+Anonymous
