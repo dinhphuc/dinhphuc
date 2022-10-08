@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You may never know what results come of your actions, but if you do nothing, there will be no results.**
+**Self-control is strength. Right thought is mastery. Calmness is power.**
 
-Mahatma Gandhi
+James Allen
