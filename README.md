@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you want to succeed as bad as you want to breathe, you will be successful.**
+**Take it all one day at a time and enjoy the journey.**
 
-Eric Thomas
+Kristi Bartlett
