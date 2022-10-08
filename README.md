@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Where there is love there is life.**
+**Motivation is what gets you started. Habit is what keeps you going.**
 
-Mahatma Gandhi
+Jim Rohn
