@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Train your mind to see the positive in any situation and keep going.**
+**You don't go up to the top, you grow up to the top.**
 
-Anonymous
+John C. Maxwell
