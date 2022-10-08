@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure is not the opposite of success. Its part of success.**
+**Between stimulus and response, there is a space. In that space is our power to choose our response.**
 
-Anonymous
+Viktor Frankl
