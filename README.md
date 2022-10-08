@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When someone told me I lived in a fantasy land, I nearly fell off my unicorn.**
+**To be the best, you must be able to handle the worst.**
 
-Anonymous
+Wilson Kanadi
