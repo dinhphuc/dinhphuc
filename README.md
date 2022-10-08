@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your path you must decide.**
+**When the sun rises, it rises for everyone.**
 
-Yoda
+Cuban Proverb
