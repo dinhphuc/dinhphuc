@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't go up to the top, you grow up to the top.**
+**Your path you must decide.**
 
-John C. Maxwell
+Yoda
