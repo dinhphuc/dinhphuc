@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't fear moving slowly forward...fear standing still.**
+**Failure is not the opposite of success. Its part of success.**
 
-Kathleen Harris
+Anonymous
