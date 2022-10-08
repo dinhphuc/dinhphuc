@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**He who sweats more in training bleeds less in war.**
+**No marathon gets easier later. The halfway point only marks the end of the beginning.**
 
-Greek Proverb
+Joe Henderson
