@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When the sun rises, it rises for everyone.**
+**When we are no longer able to change a situation - we are challenged to change ourselves.**
 
-Cuban Proverb
+Viktor E. Frankl
