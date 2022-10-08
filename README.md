@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you want to succeed as bad as you want to breathe, you will be successful.**
+**He who sweats more in training bleeds less in war.**
 
-Eric Thomas
+Greek Proverb
