@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We are what we repeatedly do. Excellence, then, is not an act, but a habit.**
+**I am in charge of how I feel and today I am choosing happiness.**
 
-Aristotle
+Anonymous
