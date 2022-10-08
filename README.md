@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile in the mirror. Do that every morning and you'll start to see a big difference in your life.**
+**When someone told me I lived in a fantasy land, I nearly fell off my unicorn.**
 
-Yoko Ono
+Anonymous
