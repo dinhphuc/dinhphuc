@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is nothing on this earth more to be prized than true friendship.**
+**Rise up. Start fresh. See the bright opportunity in each new day.**
 
-Thomas Aquinas
+Anonymous
