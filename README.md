@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Between stimulus and response, there is a space. In that space is our power to choose our response.**
+**Champions play to win. Failure is just feedback. There's everything to gain by trying your best.**
 
-Viktor Frankl
+Jim Afremow
