@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Self-confidence is the most attractive quality a person can have. How can anyone see how great you are if you can't see it yourself?**
+**There is no charm equal to tenderness of heart.**
 
-Anonymous
+Jane Austen
