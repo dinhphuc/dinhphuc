@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Champions play to win. Failure is just feedback. There's everything to gain by trying your best.**
+**When you want to succeed as bad as you want to breathe, you will be successful.**
 
-Jim Afremow
+Eric Thomas
