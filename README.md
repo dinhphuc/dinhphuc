@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**He who lives in harmony with himself lives in harmony with the universe.**
+**Where there is love there is life.**
 
-Marcus Aurelius
+Mahatma Gandhi
