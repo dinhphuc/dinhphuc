@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To be the best, you must be able to handle the worst.**
+**Your true success in life begins only when you make the commitment to become excellent at what you do.**
 
-Wilson Kanadi
+Brian Tracy
