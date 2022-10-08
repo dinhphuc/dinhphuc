@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Forgiving yourself, believing in yourself and choosing to love yourself are the best gifts one could receive.**
+**You may never know what results come of your actions, but if you do nothing, there will be no results.**
 
-Brittany Burgunder
+Mahatma Gandhi
