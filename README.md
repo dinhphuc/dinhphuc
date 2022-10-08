@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Self-control is strength. Right thought is mastery. Calmness is power.**
+**Smile in the mirror. Do that every morning and you'll start to see a big difference in your life.**
 
-James Allen
+Yoko Ono
