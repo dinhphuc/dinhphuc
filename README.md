@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When we are no longer able to change a situation - we are challenged to change ourselves.**
+**There is nothing on this earth more to be prized than true friendship.**
 
-Viktor E. Frankl
+Thomas Aquinas
