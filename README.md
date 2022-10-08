@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your true success in life begins only when you make the commitment to become excellent at what you do.**
+**Don't fear moving slowly forward...fear standing still.**
 
-Brian Tracy
+Kathleen Harris
