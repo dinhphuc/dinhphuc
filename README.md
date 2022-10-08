@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hard work beats talent when talent doesn't work hard.**
+**He who lives in harmony with himself lives in harmony with the universe.**
 
-Tim Notke
+Marcus Aurelius
