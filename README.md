@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To fall in love with yourself is the first secret to happiness.**
+**We are what we repeatedly do. Excellence, then, is not an act, but a habit.**
 
-Robert Morley
+Aristotle
