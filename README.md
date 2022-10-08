@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Motivation is what gets you started. Habit is what keeps you going.**
+**I don't care how long it takes me, but I'm going somewhere beautiful.**
 
-Jim Rohn
+Anonymous
