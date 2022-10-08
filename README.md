@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live your life for you.**
+**Train your mind to see the positive in any situation and keep going.**
 
 Anonymous
