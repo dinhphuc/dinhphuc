@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no charm equal to tenderness of heart.**
+**Hard work beats talent when talent doesn't work hard.**
 
-Jane Austen
+Tim Notke
