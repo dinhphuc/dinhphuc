@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile, it is the key that fits the lock of everybody's heart.**
+**Be strong when you are weak, brave when you are scared, and humble when you are victorious.**
 
-Anthony J D'Angelo
+Anonymous
