@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not who you are that holds you back, it's who you think you're not.**
+**You need to spend time crawling alone through shadows to truly appreciate what it is to stand in the sun.**
 
-Anonymous
+Shaun Hick
