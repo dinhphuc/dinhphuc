@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In life, many things do not go according to plan. If you fall, get back up.**
+**Peace begins When expectation ends.**
 
-Anonymous
+Sri Chinmoy
