@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If I have the belief that I can do it, I shall surely acquire the capacity to do it even if I may not have it at the beginning.**
+**It does not matter how slowly you go as long as you do not stop.**
 
-Gandhi
+Confucius
