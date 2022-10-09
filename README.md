@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everytime you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**
+**In life, many things do not go according to plan. If you fall, get back up.**
 
-Mother Teresa
+Anonymous
