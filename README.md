@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Fear is temporary. Regret is forever.**
+**Your hardest times often lead to the greatest moments of your life. Keep going. Tough situations build strong people in the end.**
 
-Anonymous
+Roy T. Bennett
