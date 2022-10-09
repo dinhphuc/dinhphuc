@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Stay strong. You never know who you are inspiring.**
+**Whatever can happen at any time can happen today.**
 
-Anonymous
+Seneca
