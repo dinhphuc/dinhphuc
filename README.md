@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You need to spend time crawling alone through shadows to truly appreciate what it is to stand in the sun.**
+**My heart is always open to love.**
 
-Shaun Hick
+Anonymous
