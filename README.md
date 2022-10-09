@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Find a place inside where there's joy, and the joy will burn out the pain.**
+**Everytime you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**
 
-Joseph Campbell
+Mother Teresa
