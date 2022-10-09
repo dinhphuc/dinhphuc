@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**My heart is always open to love.**
+**Find a place inside where there's joy, and the joy will burn out the pain.**
 
-Anonymous
+Joseph Campbell
