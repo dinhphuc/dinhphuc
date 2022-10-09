@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It does not matter how slowly you go as long as you do not stop.**
+**Of all the things you wear, your expression is the most important.**
 
-Confucius
+Janet Lane
