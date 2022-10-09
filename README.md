@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between the impossible and the possible lies in a person's determination.**
+**Train yourself to let go of everything you fear to lose.**
 
-Tommy Lasorda
+Yoda
