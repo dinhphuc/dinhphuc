@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We become what we think about.**
+**The secret of change is to focus all of your energy, not on fighting the old, but on building the new.**
 
-Earl Nightingale
+Socrates
