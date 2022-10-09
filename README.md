@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of change is to focus all of your energy, not on fighting the old, but on building the new.**
+**Whatever you hold in your mind on a consistent basis is exactly what you will experience in your life.**
 
-Socrates
+Tony Robbins
