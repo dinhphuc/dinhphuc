@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Train yourself to let go of everything you fear to lose.**
+**The struggle you're in today is developing the strength you need tomorrow.**
 
-Yoda
+Robert Tew
