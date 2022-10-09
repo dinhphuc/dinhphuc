@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your hardest times often lead to the greatest moments of your life. Keep going. Tough situations build strong people in the end.**
+**Be strong when you are weak, brave when you are scared, and humble when you are victorious.**
 
-Roy T. Bennett
+Anonymous
