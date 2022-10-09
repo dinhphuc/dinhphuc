@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Of all the things you wear, your expression is the most important.**
+**Nobody can bring you peace but yourself.**
 
-Janet Lane
+Ralph Waldo Emerson
