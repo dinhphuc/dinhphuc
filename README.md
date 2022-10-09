@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life works for my benefit.**
+**When you want to succeed as bad as you want to breathe, you will be successful.**
 
-Anonymous
+Eric Thomas
