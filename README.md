@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We all make mistakes, but the winner knows that success comes from perseverance: trying, failing, learning, and doing it again until he succeeds.**
+**You may never know what results come of your actions, but if you do nothing, there will be no results.**
 
-Judy Ford
+Mahatma Gandhi
