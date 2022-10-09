@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you hold in your mind on a consistent basis is exactly what you will experience in your life.**
+**It's not who you are that holds you back, it's who you think you're not.**
 
-Tony Robbins
+Anonymous
