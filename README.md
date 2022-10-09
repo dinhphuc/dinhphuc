@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you want to succeed as bad as you want to breathe, you will be successful.**
+**Work hard in silence. Let success make the noise.**
 
-Eric Thomas
+Anonymous
