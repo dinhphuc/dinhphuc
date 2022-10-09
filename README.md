@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The reputation of a thousand years may be determined by the conduct of one hour.**
+**One often meets his destiny on the road he takes to avoid it.**
 
-Japanese Proverb
+Master Oogway
