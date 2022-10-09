@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One often meets his destiny on the road he takes to avoid it.**
+**The difference between the impossible and the possible lies in a person's determination.**
 
-Master Oogway
+Tommy Lasorda
