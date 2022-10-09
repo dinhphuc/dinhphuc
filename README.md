@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smaller in number are we, but larger in mind.**
+**The reputation of a thousand years may be determined by the conduct of one hour.**
 
-Yoda
+Japanese Proverb
