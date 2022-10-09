@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Peace begins When expectation ends.**
+**Fear is temporary. Regret is forever.**
 
-Sri Chinmoy
+Anonymous
