@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's gonna get harder before it gets easier. But it will get better, you just gotta make it through the hard stuff first.**
+**Float like a butterfly, sting like a bee. The hands can't hit what the eyes can't see.**
 
-Anonymous
+Muhammad Ali
