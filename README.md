@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody can bring you peace but yourself.**
+**Smaller in number are we, but larger in mind.**
 
-Ralph Waldo Emerson
+Yoda
