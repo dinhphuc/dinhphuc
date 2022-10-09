@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The struggle you're in today is developing the strength you need tomorrow.**
+**It's gonna get harder before it gets easier. But it will get better, you just gotta make it through the hard stuff first.**
 
-Robert Tew
+Anonymous
