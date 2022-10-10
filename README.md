@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Trust the process of life.**
+**Who begins too much accomplishes little.**
 
-Anonymous
+German Proverb
