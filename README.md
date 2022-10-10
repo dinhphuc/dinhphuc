@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you have only one smile in you, give it to the people you love.**
+**Trust the process of life.**
 
-Maya Angelou
+Anonymous
