@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In every success story, you will find someone who made a courageous decision.**
+**Setting goals is the first step into turning the invisible into the visible.**
 
-Peter Drucker
+Tony Robbins
