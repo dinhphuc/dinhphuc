@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love is not running away or giving up, it is standing and fighting for every moment.**
+**In every success story, you will find someone who made a courageous decision.**
 
-M.F. Moonzajer
+Peter Drucker
