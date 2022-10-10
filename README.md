@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you're thinking is what you're becoming.**
+**No one controls how I feel about myself, but me.**
 
-Muhammad Ali
+Anonymous
