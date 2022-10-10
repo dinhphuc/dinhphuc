@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything has beauty, but not everyone can see.**
+**If you have only one smile in you, give it to the people you love.**
 
-Confucius
+Maya Angelou
