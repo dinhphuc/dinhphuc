@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Who begins too much accomplishes little.**
+**You are a masterpiece.**
 
-German Proverb
+Anonymous
