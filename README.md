@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The first and greatest victory is to conquer self.**
+**Friends show their love in times of trouble, not in happiness.**
 
-Plato
+Euripides
