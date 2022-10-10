@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When written in Chinese the word "crisis" is composed of two characters - one represents danger and the other represents opportunity.**
+**How long are you going to wait before you demand the best for yourself?**
 
-John F. Kennedy
+Epictetus
