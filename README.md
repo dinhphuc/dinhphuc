@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody who ever gave their best regretted it.**
+**Working hard for something we don't care about is called stress; working hard for somthing we love is called passion.**
 
-George Halas
+Simon Sinek
