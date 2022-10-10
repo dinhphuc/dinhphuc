@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Why worry? If you've done the very best you can, worrying won't make it any better.**
+**Mind what you have learned. Save you it can.**
 
-Walt Disney
+Yoda
