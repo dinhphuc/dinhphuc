@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**How long are you going to wait before you demand the best for yourself?**
+**To give anything less than your best is to sacrifice the gift.**
 
-Epictetus
+Steve Prefontaine
