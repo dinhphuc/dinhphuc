@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nurture your mind with great thoughts, for you will never go any higher than you think.**
+**Everything has beauty, but not everyone can see.**
 
-Benjamin Disraeli
+Confucius
