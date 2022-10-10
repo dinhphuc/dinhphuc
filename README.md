@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To give anything less than your best is to sacrifice the gift.**
+**Life is too short to spend it at war with yourself.**
 
-Steve Prefontaine
+Anonymous
