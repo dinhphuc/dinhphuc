@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Friends show their love in times of trouble, not in happiness.**
+**Nurture your mind with great thoughts, for you will never go any higher than you think.**
 
-Euripides
+Benjamin Disraeli
