@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Change your thoughts and you change your world.**
+**Why worry? If you've done the very best you can, worrying won't make it any better.**
 
-Norman Vincent Peale
+Walt Disney
