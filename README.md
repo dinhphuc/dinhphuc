@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is too short to spend it at war with yourself.**
+**The key to being happy is knowing you have the power to choose what to accept and what to let go.**
 
 Anonymous
