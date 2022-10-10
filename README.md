@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The key to being happy is knowing you have the power to choose what to accept and what to let go.**
+**If you believe it will work out, you'll see opportunities. If you believe it won't, you will see obstacles.**
 
-Anonymous
+Wayne Dyer
