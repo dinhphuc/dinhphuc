@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever can happen at any time can happen today.**
+**Love is not running away or giving up, it is standing and fighting for every moment.**
 
-Seneca
+M.F. Moonzajer
