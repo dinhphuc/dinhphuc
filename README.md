@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No one controls how I feel about myself, but me.**
+**What you see in yourself is what you see in the world.**
 
-Anonymous
+Afghan Proverb
