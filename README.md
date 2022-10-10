@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The pessimist sees difficulty in every opportunity. The optimist sees opportunity in every difficulty.**
+**What we achieve inwardly will change outer reality.**
 
-Winston Churchill
+Plutarch
