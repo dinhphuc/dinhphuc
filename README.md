@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Mind what you have learned. Save you it can.**
+**Nobody who ever gave their best regretted it.**
 
-Yoda
+George Halas
