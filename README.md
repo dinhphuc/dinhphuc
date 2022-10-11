@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength isn't about how much you can handle before you break. It's about how much you can endure after you've been broken.**
+**There are only two mistakes one can make along the road to truth; not going all the way, and not starting.**
 
-Anonymous
+Buddha
