@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest glory is not in never falling, but in rising every time we fall.**
+**The real opportunity for success lies within the person and not in the job.**
 
-Confucius
+Zig Ziglar
