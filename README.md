@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be humble in your confidence yet courageous in your character.**
+**Time is an illusion, there is only the now.**
 
-Melanie Koulouris
+Master Shifu
