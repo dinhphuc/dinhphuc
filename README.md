@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The real opportunity for success lies within the person and not in the job.**
+**Whatever you hold in your mind on a consistent basis is exactly what you will experience in your life.**
 
-Zig Ziglar
+Tony Robbins
