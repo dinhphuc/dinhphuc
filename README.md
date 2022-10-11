@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A good life is doing what you love as much as you can and doing what you must as much as you should.**
+**You need to spend time crawling alone through shadows to truly appreciate what it is to stand in the sun.**
 
-Savania China
+Shaun Hick
