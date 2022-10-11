@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**None of us is as smart as all of us.**
+**Happiness can be found, even in the darkest of times, if one only remembers to turn on the light.**
 
-Ken Blanchard
+Anonymous
