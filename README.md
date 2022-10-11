@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The wise listens to her mind, the foolish to the mob.**
+**Don't worry about failure; you only have to be right once.**
 
-Chinese Proverb
+Drew Houston
