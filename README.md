@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You need to spend time crawling alone through shadows to truly appreciate what it is to stand in the sun.**
+**Strength isn't about how much you can handle before you break. It's about how much you can endure after you've been broken.**
 
-Shaun Hick
+Anonymous
