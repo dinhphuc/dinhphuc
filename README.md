@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Make today so awesome yesterday gets jealous.**
+**Never stop trying. Never stop believing. Never give up. Your day will come.**
 
 Anonymous
