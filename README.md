@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never stop trying. Never stop believing. Never give up. Your day will come.**
+**Confidence is not 'They will like me'. Confidence is 'I'll be fine if they don't'.**
 
 Anonymous
