@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success trains. Failure complains.**
+**Deep doubts, deep wisdom; small doubts, small wisdom.**
 
-Anonymous
+Chinese Proverb
