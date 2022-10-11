@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are only two mistakes one can make along the road to truth; not going all the way, and not starting.**
+**I am not a product of my circumstances. I am a product of my decisions.**
 
-Buddha
+Stephen Covey
