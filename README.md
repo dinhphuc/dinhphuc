@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I am not a product of my circumstances. I am a product of my decisions.**
+**Life isn't about finding yourself. Life is about creating yourself.**
 
-Stephen Covey
+George Bernard Shaw
