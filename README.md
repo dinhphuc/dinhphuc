@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A good life is doing what you love as much as you can and doing what you must as much as you should.**
+**You cannot fail at being yourself.**
 
-Savania China
+Wayne Dyer
