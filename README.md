@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence is not 'They will like me'. Confidence is 'I'll be fine if they don't'.**
+**The start is what stops most people.**
 
-Anonymous
+Don Shula
