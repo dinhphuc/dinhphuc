@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot fail at being yourself.**
+**It always seems impossible until it's done.**
 
-Wayne Dyer
+Nelson Mandela
