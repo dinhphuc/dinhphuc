@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can either spend your time or invest your time.**
+**The wise listens to her mind, the foolish to the mob.**
 
-Chip Kelly
+Chinese Proverb
