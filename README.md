@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It always seems impossible until it's done.**
+**Our greatest glory is not in never falling, but in rising every time we fall.**
 
-Nelson Mandela
+Confucius
