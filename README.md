@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't worry about failure; you only have to be right once.**
+**Success trains. Failure complains.**
 
-Drew Houston
+Anonymous
