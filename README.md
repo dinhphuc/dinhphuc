@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life isn't about finding yourself. Life is about creating yourself.**
+**Be humble in your confidence yet courageous in your character.**
 
-George Bernard Shaw
+Melanie Koulouris
