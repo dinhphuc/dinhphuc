@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you find an idea that you just can't stop thinking about, that's probably a good one to pursue.**
+**None of us is as smart as all of us.**
 
-Josh James
+Ken Blanchard
