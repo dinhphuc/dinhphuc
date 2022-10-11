@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Time is an illusion, there is only the now.**
+**A good life is doing what you love as much as you can and doing what you must as much as you should.**
 
-Master Shifu
+Savania China
