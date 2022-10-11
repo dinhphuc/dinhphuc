@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you hold in your mind on a consistent basis is exactly what you will experience in your life.**
+**You can either spend your time or invest your time.**
 
-Tony Robbins
+Chip Kelly
