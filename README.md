@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The past does not equal the future.**
+**Dream without fear. Love without limits.**
 
-Tony Robbins
+Dilip Bathija
