@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Measure a thousand times and cut once.**
+**To be the best, you must be able to handle the worst.**
 
-Turkish Proverb
+Wilson Kanadi
