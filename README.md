@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**And in the end, the love you take, is equal to the love you make.**
+**Smile, it is the key that fits the lock of everybody's heart.**
 
-The Beatles
+Anthony J D'Angelo
