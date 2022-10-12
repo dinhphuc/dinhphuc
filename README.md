@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only impossible journey is the one you never begin.**
+**Move fast and break things. If you are not breaking things, you are not moving fast enough.**
 
-Tony Robbins
+Mark Zuckerberg
