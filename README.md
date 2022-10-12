@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness can be found, even in the darkest of times, if one only remembers to turn on the light.**
+**If you cannot do great things, do small things in a great way.**
 
-Anonymous
+Napoleon Hill
