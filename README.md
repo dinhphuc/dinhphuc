@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I alone cannot change the world, but I can cast a stone across the water to create many ripples.**
+**Measure a thousand times and cut once.**
 
-Mother Teresa
+Turkish Proverb
