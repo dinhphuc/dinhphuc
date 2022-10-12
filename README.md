@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live for yourself and don't ever stop.**
+**Life is ours to be spent, not to be saved.**
 
-John Tew
+D. H. Lawrence
