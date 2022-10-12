@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are not willing to risk the usual, you will have to settle for the ordinary.**
+**In life, many things do not go according to plan. If you fall, get back up.**
 
-Jim Rohn
+Anonymous
