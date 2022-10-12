@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you cannot do great things, do small things in a great way.**
+**You yourself, as much as anybody in the entire universe, deserve your love and affection.**
 
-Napoleon Hill
+Buddha
