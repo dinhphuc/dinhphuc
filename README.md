@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Go confidently in the direction of your dreams! Live the life you've imagined.**
+**A beautiful thing is never perfect.**
 
-Henry David Thoreau
+Egyptian Proverb
