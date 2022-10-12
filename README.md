@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Sometimes you face difficulties not because you're doing something wrong but because you're doing something right.**
+**When the 'why' is clear, the 'how' is easy.**
 
 Anonymous
