@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When the 'why' is clear, the 'how' is easy.**
+**The past does not equal the future.**
 
-Anonymous
+Tony Robbins
