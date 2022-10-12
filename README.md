@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are stronger than you think.**
+**It is only possible to live happily ever after on a daily basis.**
 
 Anonymous
