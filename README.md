@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In a dark place we find ourselves, and a little more knowledge lights our way.**
+**Live for yourself and don't ever stop.**
 
-Yoda
+John Tew
