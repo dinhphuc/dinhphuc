@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Speed is irrelevant if you are going in the wrong direction.**
+**And in the end, the love you take, is equal to the love you make.**
 
-Mahatma Gandhi
+The Beatles
