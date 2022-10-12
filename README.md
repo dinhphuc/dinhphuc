@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The sun itself is weak when it first rises, and gathers strength and courage as the day gets on.**
+**I will not follow where the path may lead, but I will go where there is no path, and I will leave a trail.**
 
-Charles Dickens
+Muriel Strode
