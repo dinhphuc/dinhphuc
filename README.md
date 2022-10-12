@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To be the best, you must be able to handle the worst.**
+**The sun itself is weak when it first rises, and gathers strength and courage as the day gets on.**
 
-Wilson Kanadi
+Charles Dickens
