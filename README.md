@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Champions keep playing until they get it right.**
+**The only impossible journey is the one you never begin.**
 
-Billie Jean King
+Tony Robbins
