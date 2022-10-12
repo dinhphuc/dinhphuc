@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Dream without fear. Love without limits.**
+**In a dark place we find ourselves, and a little more knowledge lights our way.**
 
-Dilip Bathija
+Yoda
