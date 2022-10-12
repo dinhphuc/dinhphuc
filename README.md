@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Attachment leads to jealously. The shadow of greed, that is.**
+**Speed is irrelevant if you are going in the wrong direction.**
 
-Yoda
+Mahatma Gandhi
