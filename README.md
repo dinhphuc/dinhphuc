@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is only possible to live happily ever after on a daily basis.**
+**Love has no age, no limit; and no death.**
 
-Anonymous
+John Galsworthy
