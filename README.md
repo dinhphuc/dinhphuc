@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love has no age, no limit; and no death.**
+**There is no shame in not knowing; the shame lies in not finding out.**
 
-John Galsworthy
+Russian Proverb
