@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile, it is the key that fits the lock of everybody's heart.**
+**Champions keep playing until they get it right.**
 
-Anthony J D'Angelo
+Billie Jean King
