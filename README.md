@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is ours to be spent, not to be saved.**
+**Attachment leads to jealously. The shadow of greed, that is.**
 
-D. H. Lawrence
+Yoda
