@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no shame in not knowing; the shame lies in not finding out.**
+**Go confidently in the direction of your dreams! Live the life you've imagined.**
 
-Russian Proverb
+Henry David Thoreau
