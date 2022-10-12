@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I will not follow where the path may lead, but I will go where there is no path, and I will leave a trail.**
+**If you are not willing to risk the usual, you will have to settle for the ordinary.**
 
-Muriel Strode
+Jim Rohn
