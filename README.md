@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**My attitude is if you push me towards a weakness, I will turn that weakness into a strength.**
+**If you really look closely, most overnight successes took a long time.**
 
-Michael Jordan
+Steve Jobs
