@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Train like a silver medalist, compete like a gold.**
+**I am happy because I'm grateful. I choose to be grateful. That gratitude allows me to be happy.**
 
-Anonymous
+Will Arnett
