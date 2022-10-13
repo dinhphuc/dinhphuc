@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Running is therapy anyone can afford.**
+**That is bad news... if you do not believe in yourself.**
 
-Toni Sorenson
+Master Oogway
