@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I attribute my success to this: I never gave or took any excuse.**
+**Wanting to be someone else is a waste of the person you are.**
 
-Florence Nightingale
+Marilyn Monroe
