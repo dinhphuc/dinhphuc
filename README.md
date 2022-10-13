@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Results happen over time, not overnight. Work hard, stay consistent, and be patient.**
+**My attitude is if you push me towards a weakness, I will turn that weakness into a strength.**
 
-Anonymous
+Michael Jordan
