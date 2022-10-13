@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Sometimes the bravest thing you can do is to keep going when you really feel like giving up.**
+**You cannot afford to live in potential for the rest of your life; at some point, you have to unleash the potential and make your move.**
 
-Anonymous
+Eric Thomas
