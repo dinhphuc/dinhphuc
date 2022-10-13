@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't try to be perfect. Just try to be better than you were yesterday.**
+**Winners make a habit of manufacturing their own positive expectations in advance of the event.**
 
-Anonymous
+Brian Tracy
