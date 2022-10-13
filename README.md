@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When will you realize, the more you take, the less you have.**
+**Be happy. It really annoys negative people.**
 
-Master Oogway
+Ricky Gervais
