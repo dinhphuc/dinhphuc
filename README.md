@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life without love is like a tree without blossoms or fruit.**
+**Difficult roads always lead to beautiful destinations.**
 
-Khalil Gibran
+Zig Ziglar
