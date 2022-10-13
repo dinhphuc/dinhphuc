@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One small positive thought in the morning can change your whole day.**
+**Be tolerant with others and strict with yourself.**
 
-Anonymous
+Marcus Aurelius
