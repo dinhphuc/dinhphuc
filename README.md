@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In life, many things do not go according to plan. If you fall, get back up.**
+**Life without love is like a tree without blossoms or fruit.**
 
-Anonymous
+Khalil Gibran
