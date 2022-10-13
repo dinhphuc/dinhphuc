@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you really look closely, most overnight successes took a long time.**
+**Fear is temporary. Regret is forever.**
 
-Steve Jobs
+Anonymous
