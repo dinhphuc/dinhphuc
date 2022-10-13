@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Fear is temporary. Regret is forever.**
+**If you look the right way, you can see that the whole world is a garden.**
 
-Anonymous
+Frances Hodgson Burnett
