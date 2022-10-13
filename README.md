@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Wanting to be someone else is a waste of the person you are.**
+**If you can dream it, then you can achieve it.**
 
-Marilyn Monroe
+Zig Ziglar
