@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**That is bad news... if you do not believe in yourself.**
+**I attribute my success to this: I never gave or took any excuse.**
 
-Master Oogway
+Florence Nightingale
