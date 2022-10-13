@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Difficult roads always lead to beautiful destinations.**
+**All our dreams can come true, if we have the courage to pursue them.**
 
-Zig Ziglar
+Walt Disney
