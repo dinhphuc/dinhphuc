@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be happy. It really annoys negative people.**
+**Running is therapy anyone can afford.**
 
-Ricky Gervais
+Toni Sorenson
