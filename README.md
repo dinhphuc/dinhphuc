@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Motivation is what gets you started. Habit is what keeps you going.**
+**If you really look closely, most overnight successes took a long time.**
 
-Jim Rohn
+Steve Jobs
