@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your true success in life begins only when you make the commitment to become excellent at what you do.**
+**Motivation is what gets you started. Habit is what keeps you going.**
 
-Brian Tracy
+Jim Rohn
