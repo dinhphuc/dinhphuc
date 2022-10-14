@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.**
+**Risk more than others think is safe. Dream more than others think is practical.**
 
-William Arthur Ward
+Anonymous
