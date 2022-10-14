@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never let the fear of striking out keep you from playing the game.**
+**Friends show their love in times of trouble, not in happiness.**
 
-Babe Ruth
+Euripides
