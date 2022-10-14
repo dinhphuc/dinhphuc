@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If it is not right, do not do it, if it is not true, do not say it.**
+**The best way to gain self-confidence is to do what you are afraid to do.**
 
-Marcus Aurelius
+Swati Sharma
