@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When we help ourselves, we find moments of happiness. When we help others, we find lasting fulfillment.**
+**Good judgment comes from experience, and a lot of that comes from bad judgment.**
 
-Simon Sinek
+Will Rogers
