@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No act of kindness, no matter how small, is ever wasted.**
+**Your true success in life begins only when you make the commitment to become excellent at what you do.**
 
-Aesop
+Brian Tracy
