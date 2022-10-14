@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**An attitude of positive expectation is the mark of the superior personality.**
+**Whatever you decide to do, make sure it makes you happy.**
 
-Brian Tracy
+Anonymous
