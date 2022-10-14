@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how you feel, get up, dress up, show up and never give up.**
+**Obstacles don't have to stop you. If you run into a wall, don't turn around and give up. Figure out how to climb it, go through it, or work around it.**
 
-Anonymous
+Michael Jordan
