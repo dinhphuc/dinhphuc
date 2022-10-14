@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good judgment comes from experience, and a lot of that comes from bad judgment.**
+**If you want to find happiness, find gratitude.**
 
-Will Rogers
+Steve Maraboli
