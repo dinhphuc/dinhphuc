@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Risk more than others think is safe. Dream more than others think is practical.**
+**What keeps me going is goals.**
 
-Anonymous
+Muhammad Ali
