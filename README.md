@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The biggest adventure you can take is to live the life of your dreams.**
+**Everything will work out in the end. You don't need to know how. You just have to trust that it will.**
 
-Oprah Winfrey
+Anonymous
