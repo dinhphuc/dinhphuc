@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything will work out in the end. You don't need to know how. You just have to trust that it will.**
+**If it is not right, do not do it, if it is not true, do not say it.**
 
-Anonymous
+Marcus Aurelius
