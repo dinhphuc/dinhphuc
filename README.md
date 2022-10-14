@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What keeps me going is goals.**
+**No matter how you feel, get up, dress up, show up and never give up.**
 
-Muhammad Ali
+Anonymous
