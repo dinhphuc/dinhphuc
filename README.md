@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you really look closely, most overnight successes took a long time.**
+**If you have only one smile in you, give it to the people you love.**
 
-Steve Jobs
+Maya Angelou
