@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hope never abandons you, you abandon it.**
+**When we help ourselves, we find moments of happiness. When we help others, we find lasting fulfillment.**
 
-George Weinberg
+Simon Sinek
