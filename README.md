@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Winners make a habit of manufacturing their own positive expectations in advance of the event.**
+**Never let the fear of striking out keep you from playing the game.**
 
-Brian Tracy
+Babe Ruth
