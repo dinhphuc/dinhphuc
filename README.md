@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how much it hurts, hold your head up and keep going.**
+**No act of kindness, no matter how small, is ever wasted.**
 
-Anonymous
+Aesop
