@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you have only one smile in you, give it to the people you love.**
+**Don't judge each day by the harvest you reap but by the seeds that you plant.**
 
-Maya Angelou
+Robert Louis Stevenson
