@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't judge each day by the harvest you reap but by the seeds that you plant.**
+**An attitude of positive expectation is the mark of the superior personality.**
 
-Robert Louis Stevenson
+Brian Tracy
