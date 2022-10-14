@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you decide to do, make sure it makes you happy.**
+**We can complain because rose bushes have thorns, or rejoice because thorns have roses.**
 
-Anonymous
+Alphonse Karr
