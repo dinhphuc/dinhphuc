@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Winning doesn't always mean being first. Winning means you're doing better than you've done before.**
+**Good friends are like stars. You don't always see them, but you know they're always there.**
 
-Bonnie Blair
+Christy Evans
