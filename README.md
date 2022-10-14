@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Friends show their love in times of trouble, not in happiness.**
+**Good judgment comes from experience, and a lot of that comes from bad judgment.**
 
-Euripides
+Will Rogers
