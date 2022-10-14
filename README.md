@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The best way to gain self-confidence is to do what you are afraid to do.**
+**Winning doesn't always mean being first. Winning means you're doing better than you've done before.**
 
-Swati Sharma
+Bonnie Blair
