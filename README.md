@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to find happiness, find gratitude.**
+**The biggest adventure you can take is to live the life of your dreams.**
 
-Steve Maraboli
+Oprah Winfrey
