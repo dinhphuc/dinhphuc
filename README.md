@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We can complain because rose bushes have thorns, or rejoice because thorns have roses.**
+**The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.**
 
-Alphonse Karr
+William Arthur Ward
