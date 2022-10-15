@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You should never give up. No matter how hard the situation is, always believe that something beautiful is going to happen.**
+**You cannot prevent the birds of sadness from passing over your head, but you can prevent their making a nest in your hair.**
 
-Anonymous
+Chinese Proverb
