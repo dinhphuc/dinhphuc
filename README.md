@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Courage doesn't always roar, sometimes it's the quiet voice at the end of the day whispering 'I will try again tomorrow'.**
+**Optimism is a happiness magnet. If you stay positive, good things and good people will be drawn to you.**
 
-Mary Anne Radmacher
+Mary Lou Retton
