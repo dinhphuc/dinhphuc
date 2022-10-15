@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Try to be a rainbow in someone's cloud.**
+**All that matters is how you see yourself.**
 
-Maya Angelou
+Conor McGregor
