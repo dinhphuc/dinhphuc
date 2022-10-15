@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you stop chasing the wrong things you give the right things a chance to catch you.**
+**Every day may not be good... but there's something good in every day.**
 
-Anonymous
+Alice Morse Earle
