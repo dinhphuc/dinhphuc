@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will face many defeats in life, but never let yourself be defeated.**
+**Whenever you see a successful person, you only see the public glories, never the private sacrifices to reach them.**
 
-Maya Angelou
+Vaibhav Shah
