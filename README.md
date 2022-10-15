@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only in the darkness can you see the stars.**
+**Pass on what you have learned.**
 
-Martin Luther King, Jr.
+Yoda
