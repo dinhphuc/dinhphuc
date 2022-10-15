@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When I hear somebody sigh, 'Life is hard,' I am always tempted to ask, 'Compared to what?'**
+**Only in the darkness can you see the stars.**
 
-Sydney Harris
+Martin Luther King, Jr.
