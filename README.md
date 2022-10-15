@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life without love is like a tree without blossoms or fruit.**
+**You should never give up. No matter how hard the situation is, always believe that something beautiful is going to happen.**
 
-Khalil Gibran
+Anonymous
