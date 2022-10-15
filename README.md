@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is a difference between giving up and knowing when you've had enough.**
+**What you choose to focus on expands and grows.**
 
 Anonymous
