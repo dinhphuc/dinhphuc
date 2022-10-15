@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't use up creativity. The more you use, the more you have.**
+**You will face many defeats in life, but never let yourself be defeated.**
 
 Maya Angelou
