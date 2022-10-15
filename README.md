@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A team is not a group of people that work together. A team is a group of people that trust each other.**
+**Try to be a rainbow in someone's cloud.**
 
-Simon Sinek
+Maya Angelou
