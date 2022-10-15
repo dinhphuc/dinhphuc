@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will never always be motivated. You have to learn to be disciplined.**
+**Life without love is like a tree without blossoms or fruit.**
 
-Anonymous
+Khalil Gibran
