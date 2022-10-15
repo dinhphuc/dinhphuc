@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All that matters is how you see yourself.**
+**You have to fight through some bad days to earn the best days of your life.**
 
-Conor McGregor
+Anonymous
