@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**He who sweats more in training bleeds less in war.**
+**There is a difference between giving up and knowing when you've had enough.**
 
-Greek Proverb
+Anonymous
