@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Trust the process of life.**
+**Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest.**
 
-Anonymous
+Sri Chinmoy
