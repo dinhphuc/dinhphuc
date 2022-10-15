@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pass on what you have learned.**
+**Happy are those who take life day by day, complain very little, and are thankful for the little things in life.**
 
-Yoda
+Anonymous
