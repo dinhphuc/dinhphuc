@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you choose to focus on expands and grows.**
+**You can't use up creativity. The more you use, the more you have.**
 
-Anonymous
+Maya Angelou
