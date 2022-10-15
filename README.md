@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up, stay focused, stay positive, stay strong.**
+**Trust the process of life.**
 
 Anonymous
