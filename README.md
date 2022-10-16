@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no cosmetic for beauty like happiness.**
+**Everything you've ever wanted is on the other side of fear.**
 
-Maria Mitchell
+George Addair
