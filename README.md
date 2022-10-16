@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Mistakes are proof that you are trying.**
+**If we feel inwardly strong, we will have no need or desire to speak ill of others.**
 
-Anonymous
+Sri Chinmoy
