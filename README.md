@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can have everything you want in life if you just help enough people get what they want in life.**
+**You cannot change the direction of the wind - only alter the angle of your sails.**
 
-Zig Ziglar
+Anonymous
