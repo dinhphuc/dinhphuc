@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Where love reigns, the impossible may be attained.**
+**You're off to great places, today is your day. Your mountain is waiting, so get on your way.**
 
-Indian Proverb
+Dr. Seuss
