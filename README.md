@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If we feel inwardly strong, we will have no need or desire to speak ill of others.**
+**All that matters is how you see yourself.**
 
-Sri Chinmoy
+Conor McGregor
