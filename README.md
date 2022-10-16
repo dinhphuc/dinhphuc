@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest.**
+**The man who views the world at 50 the same as he did at 20 has wasted 30 years of his life.**
 
-Sri Chinmoy
+Muhammad Ali
