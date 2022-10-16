@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Of all the things you wear, your expression is the most important.**
+**I think that the good and the great are only separated by the willingness to sacrifice.**
 
-Janet Lane
+Kareem Abdul-Jabbar
