@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's better to light a candle than curse the darkness.**
+**Build your own dreams, or someone else will hire you to build theirs.**
 
-Chinese Proverb
+Farrah Gray
