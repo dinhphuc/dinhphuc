@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only time you fail is when you fall down and stay down.**
+**Where love reigns, the impossible may be attained.**
 
-Stephen Richards
+Indian Proverb
