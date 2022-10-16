@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Build your own dreams, or someone else will hire you to build theirs.**
+**Our problems don't stem from our ignorance so much as our disobedience of that which we know to be right.**
 
-Farrah Gray
+Stephen Covey
