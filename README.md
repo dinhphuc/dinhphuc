@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All that matters is how you see yourself.**
+**Action is the foundational key to all success.**
 
-Conor McGregor
+Pablo Picasso
