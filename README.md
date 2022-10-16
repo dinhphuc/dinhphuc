@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Mistakes are proof that you are trying.**
+**You can have everything you want in life if you just help enough people get what they want in life.**
 
-Anonymous
+Zig Ziglar
