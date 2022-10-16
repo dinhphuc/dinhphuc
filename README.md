@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**'Thank you' is the best prayer that anyone could say.**
+**Sometimes the bravest thing you can do is to keep going when you really feel like giving up.**
 
-Alice Walker
+Anonymous
