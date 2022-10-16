@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We are what we repeatedly do. Excellence, then, is not an act, but a habit.**
+**When it gets difficult is often right before you succeed.**
 
-Aristotle
+Jeffrey Walker
