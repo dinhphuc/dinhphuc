@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Practice 'gratitude' each day and your relationship will last forever.**
+**'Thank you' is the best prayer that anyone could say.**
 
-Anonymous
+Alice Walker
