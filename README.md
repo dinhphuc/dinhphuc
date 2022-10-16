@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot change the direction of the wind - only alter the angle of your sails.**
+**There is no cosmetic for beauty like happiness.**
 
-Anonymous
+Maria Mitchell
