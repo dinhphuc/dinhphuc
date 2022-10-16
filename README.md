@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You're off to great places, today is your day. Your mountain is waiting, so get on your way.**
+**Mistakes are proof that you are trying.**
 
-Dr. Seuss
+Anonymous
