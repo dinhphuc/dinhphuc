@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The past does not equal the future.**
+**Mistakes are proof that you are trying.**
 
-Tony Robbins
+Anonymous
