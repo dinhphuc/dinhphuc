@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The critics only made me work harder.**
+**Of all the things you wear, your expression is the most important.**
 
-Muhammad Ali
+Janet Lane
