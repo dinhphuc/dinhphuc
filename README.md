@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything you've ever wanted is on the other side of fear.**
+**The critics only made me work harder.**
 
-George Addair
+Muhammad Ali
