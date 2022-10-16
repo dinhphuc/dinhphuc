@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Action is the foundational key to all success.**
+**It's not who you are that holds you back, it's who you think you're not.**
 
-Pablo Picasso
+Anonymous
