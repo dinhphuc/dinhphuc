@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between ordinary and extraordinary is that little extra.**
+**Happy are those who take life day by day, complain very little, and are thankful for the little things in life.**
 
-Jimmy Johnson
+Anonymous
