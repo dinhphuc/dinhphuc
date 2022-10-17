@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength grows in the moments when you think you can't go on but you keep going anyway.**
+**The best way to gain self-confidence is to do what you are afraid to do.**
 
-Anonymous
+Swati Sharma
