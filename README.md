@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Examine what is said, not who speaks.**
+**If you go to a donkey's house, don't talk about ears.**
 
-Arab Proverb
+Jamaican Proverb
