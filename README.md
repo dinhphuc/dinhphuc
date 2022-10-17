@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength doesn't come from what you can do. It comes from overcoming the things you once thought you couldn't.**
+**Many of life's failures are people who did not realize how close they were to success when they gave up.**
 
-Rikki Rogers
+Thomas A. Edison
