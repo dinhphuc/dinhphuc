@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hustle until your haters ask if you are hiring.**
+**Confidence is the ability to feel beautiful, without needing someone to tell you.**
 
 Anonymous
