@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Look in the mirror. That's your competition.**
+**Count your age by friends, not years. Count your life by smiles, not tears.**
 
-John Assaraf
+John Lennon
