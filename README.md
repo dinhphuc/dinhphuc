@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is not something ready made. It comes from your own actions.**
+**Hustle until your haters ask if you are hiring.**
 
-Dalai Lama
+Anonymous
