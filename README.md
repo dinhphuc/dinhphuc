@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Difficult to see. Always in motion is the future.**
+**Keep going. Everything you need will come to you at the perfect time.**
 
-Yoda
+Anonymous
