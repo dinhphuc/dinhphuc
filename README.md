@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I failed my way to success.**
+**Each time I thought I had achieved my life's purpose, I discovered it was only another step in my journey.**
 
-Thomas Edison
+Muhammad Ali
