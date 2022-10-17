@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence is the ability to feel beautiful, without needing someone to tell you.**
+**Examine what is said, not who speaks.**
 
-Anonymous
+Arab Proverb
