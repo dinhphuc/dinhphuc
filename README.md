@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**That is bad news... if you do not believe in yourself.**
+**We can't be brave without fear.**
 
-Master Oogway
+Muhammad Ali
