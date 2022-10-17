@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you think of yourself is much more important than what people think of you.**
+**Move fast and break things. If you are not breaking things, you are not moving fast enough.**
 
-Anonymous
+Mark Zuckerberg
