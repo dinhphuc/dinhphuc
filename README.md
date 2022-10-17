@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep going. Everything you need will come to you at the perfect time.**
+**What you think of yourself is much more important than what people think of you.**
 
 Anonymous
