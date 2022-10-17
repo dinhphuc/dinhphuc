@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Many of life's failures are people who did not realize how close they were to success when they gave up.**
+**You have a choice. You can throw in the towel, or you can use it to wipe the sweat off of your face.**
 
-Thomas A. Edison
+Gatorade
