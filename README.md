@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Move fast and break things. If you are not breaking things, you are not moving fast enough.**
+**Beauty begins the moment you decide to be yourself.**
 
-Mark Zuckerberg
+Coco Chanel
