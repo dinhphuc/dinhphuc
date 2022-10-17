@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you go to a donkey's house, don't talk about ears.**
+**That is bad news... if you do not believe in yourself.**
 
-Jamaican Proverb
+Master Oogway
