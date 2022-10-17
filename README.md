@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't want to look back and know you could have done better.**
+**Hustle until your haters ask if you are hiring.**
 
 Anonymous
