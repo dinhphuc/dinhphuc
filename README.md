@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Forgiving yourself, believing in yourself and choosing to love yourself are the best gifts one could receive.**
+**And in the end, the love you take, is equal to the love you make.**
 
-Brittany Burgunder
+The Beatles
