@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Better than a thousand days of diligent study is one day with a great teacher.**
+**Your relationship with yourself sets the tone for every other relationship you have.**
 
-Jim Afremow
+Anonymous
