@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile at strangers and you just might change a life.**
+**The hardest thing to find in life is happiness - money is only hard to find because it gets wasted trying to find happiness.**
 
-Steve Maraboli
+Unknown
