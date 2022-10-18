@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I always like to look on the optimistic side of life, but I am realistic enough to know that life is a complex matter.**
+**Once I realized the problem was not you but within me. I found inner peace and was able to harness the flow of the universe.**
 
-Walt Disney
+Master Shifu
