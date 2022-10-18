@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is during our darkest moments that we must focus to see the light.**
+**There are only two mistakes one can make along the road to truth; not going all the way, and not starting.**
 
-Aristotle Onassis
+Buddha
