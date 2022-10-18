@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The best way to predict your future is to create it.**
+**Happiness is a journey ... not a destination.**
 
-Peter F. Drucker
+Ben Sweetland
