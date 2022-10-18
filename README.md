@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your body is made to move so move it.**
+**If you want to find happiness, find gratitude.**
 
-Toni Sorenson
+Steve Maraboli
