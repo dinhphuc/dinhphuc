@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A house is made of bricks and beams. A home is made of hopes and dreams.**
+**Your body is made to move so move it.**
 
-Anonymous
+Toni Sorenson
