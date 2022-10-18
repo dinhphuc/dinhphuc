@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Even the smallest shift in perspective can bring about the greatest healing.**
+**Smile at strangers and you just might change a life.**
 
-Joshua Kai
+Steve Maraboli
