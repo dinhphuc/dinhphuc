@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is a journey ... not a destination.**
+**You are somebody's reason to smile.**
 
-Ben Sweetland
+Anonymous
