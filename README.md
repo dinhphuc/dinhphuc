@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life's a journey not a race.**
+**It is during our darkest moments that we must focus to see the light.**
 
-Meir Ezra
+Aristotle Onassis
