@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to find happiness, find gratitude.**
+**Better than a thousand days of diligent study is one day with a great teacher.**
 
-Steve Maraboli
+Jim Afremow
