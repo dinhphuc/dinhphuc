@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We can't be brave without fear.**
+**Even the smallest shift in perspective can bring about the greatest healing.**
 
-Muhammad Ali
+Joshua Kai
