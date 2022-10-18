@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Alone, we can do so little; together we can do so much.**
+**I always like to look on the optimistic side of life, but I am realistic enough to know that life is a complex matter.**
 
-Helen Keller
+Walt Disney
