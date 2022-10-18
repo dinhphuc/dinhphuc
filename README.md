@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are somebody's reason to smile.**
+**Success is what happens after you have survived all of your disappointments.**
 
 Anonymous
