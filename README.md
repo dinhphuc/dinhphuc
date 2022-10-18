@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I am in charge of how I feel and today I am choosing happiness.**
+**It is far better to be alone, than to be in bad company.**
 
-Anonymous
+George Washington
