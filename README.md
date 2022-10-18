@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your relationship with yourself sets the tone for every other relationship you have.**
+**The best way to predict your future is to create it.**
 
-Anonymous
+Peter F. Drucker
