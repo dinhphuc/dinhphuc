@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is what happens after you have survived all of your disappointments.**
+**A runner must run with dreams in his heart.**
 
-Anonymous
+Emil Zatopek
