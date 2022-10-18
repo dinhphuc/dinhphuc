@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**May you live all the days of your life.**
+**I am in charge of how I feel and today I am choosing happiness.**
 
-Jonathan Swift
+Anonymous
