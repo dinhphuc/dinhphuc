@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**And in the end, the love you take, is equal to the love you make.**
+**Alone, we can do so little; together we can do so much.**
 
-The Beatles
+Helen Keller
