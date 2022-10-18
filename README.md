@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing builds self-esteem and self-confidence like accomplishment.**
+**A house is made of bricks and beams. A home is made of hopes and dreams.**
 
-Thomas Carlyle
+Anonymous
