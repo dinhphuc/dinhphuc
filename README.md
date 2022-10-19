@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whoever gossips to you will gossip about you.**
+**At first they'll ask you why you're doing it. Later they'll ask how you did it.**
 
-Spanish Proverb
+Anonymous
