@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**At first they'll ask you why you're doing it. Later they'll ask how you did it.**
+**In the end, it's not the years in your life that count. It's the life in your years.**
 
-Anonymous
+Abraham Lincoln
