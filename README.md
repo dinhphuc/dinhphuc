@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If only we'd stop trying to be happy we could have a pretty good time.**
+**May the Force be with you.**
 
-Edith Wharton
+Yoda
