@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Winning is fun, but those moments that you can touch someone's life in a very positive way are better.**
+**If only we'd stop trying to be happy we could have a pretty good time.**
 
-Tim Howard
+Edith Wharton
