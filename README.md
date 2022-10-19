@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be strong enough to let go and patient enough to wait for what you deserve.**
+**I've got nothing to do today but smile.**
 
-Anonymous
+Paul Simon
