@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be patient, good things are coming your way.**
+**You're allowed to scream. You're allowed to cry. But don't give up.**
 
 Anonymous
