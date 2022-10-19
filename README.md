@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't get what you wish for. You get what you work for.**
+**Whoever gossips to you will gossip about you.**
 
-Anonymous
+Spanish Proverb
