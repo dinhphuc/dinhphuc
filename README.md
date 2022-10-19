@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Many of life's failures are people who did not realize how close they were to success when they gave up.**
+**One day you will wake up and there won't be any time to do the things you've always wanted to do. Do it now.**
 
-Thomas A. Edison
+Paulo Coelho
