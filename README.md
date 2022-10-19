@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You must do the thing you think you cannot do.**
+**Winning is fun, but those moments that you can touch someone's life in a very positive way are better.**
 
-Eleanor Roosevelt
+Tim Howard
