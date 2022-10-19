@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You're allowed to scream. You're allowed to cry. But don't give up.**
+**It matters not what someone is born, but what they grow to be.**
 
-Anonymous
+Master Oogway
