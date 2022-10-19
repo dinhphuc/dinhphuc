@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One day you will wake up and there won't be any time to do the things you've always wanted to do. Do it now.**
+**If you can't find the opportunities you're looking for...create them.**
 
-Paulo Coelho
+Anonymous
