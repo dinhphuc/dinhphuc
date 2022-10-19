@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A runner must run with dreams in his heart.**
+**Use your smile to change the world; don't let the world change your smile.**
 
-Emil Zatopek
+Chinese proverb
