@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can't find the opportunities you're looking for...create them.**
+**Life is ours to be spent, not to be saved.**
 
-Anonymous
+D. H. Lawrence
