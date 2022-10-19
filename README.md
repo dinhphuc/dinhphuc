@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In the end, it's not the years in your life that count. It's the life in your years.**
+**You must do the thing you think you cannot do.**
 
-Abraham Lincoln
+Eleanor Roosevelt
