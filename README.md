@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Spread love everywhere you go. Let no one ever come to you without leaving happier.**
+**Confidence is not 'They will like me'. Confidence is 'I'll be fine if they don't'.**
 
-Mother Teresa
+Anonymous
