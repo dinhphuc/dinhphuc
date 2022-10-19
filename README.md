@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love isn't something you find. Love is something that finds you.**
+**Be strong enough to let go and patient enough to wait for what you deserve.**
 
-Loretta Young
+Anonymous
