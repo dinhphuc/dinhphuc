@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It matters not what someone is born, but what they grow to be.**
+**The vision of a champion is someone who is bent over, drenched in sweat, at the point of exhaustion when no one else is watching.**
 
-Master Oogway
+Jim Afremow
