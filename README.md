@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Use your smile to change the world; don't let the world change your smile.**
+**It's not whether you get knocked down. It's whether you get back up.**
 
-Chinese proverb
+Vince Lombardi
