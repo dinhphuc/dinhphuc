@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A difficult time can be more readily endured if we retain the conviction that our existence holds a purpose - a cause to pursue, a person to love, a goal to achieve.**
+**Spread love everywhere you go. Let no one ever come to you without leaving happier.**
 
-John Maxwell
+Mother Teresa
