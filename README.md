@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pessimism leads to weakness, optimism to power.**
+**Be patient, good things are coming your way.**
 
-William James
+Anonymous
