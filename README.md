@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We all make mistakes, but the winner knows that success comes from perseverance: trying, failing, learning, and doing it again until he succeeds.**
+**At the end of the day, you can either focus on what's tearing you apart, or you can focus on what's keeping you together.**
 
-Judy Ford
+Anonymous
