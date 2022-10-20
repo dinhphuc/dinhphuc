@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A challenge lifelong it is, not to bend fear into anger.**
+**People want to do business with you because you help them get what they want. They don't do business with you to help you get what you want.**
 
-Yoda
+Don Crowther
