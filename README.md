@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The first place where self-esteem begins its journey is within us.**
+**Attachment leads to jealously. The shadow of greed, that is.**
 
-Stephen Richards
+Yoda
