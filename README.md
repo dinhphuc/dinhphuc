@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Words should be weighed, not counted.**
+**When you dare to dream, dare to follow that dream; dare to suffer through the pain, sacrifice, self-doubts and friction from the world.**
 
-Yiddish Proverb
+Laura Schlessinger
