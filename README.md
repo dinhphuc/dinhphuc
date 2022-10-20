@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You have to fight through some bad days to earn the best days of your life.**
+**Confidence is not 'They will like me'. Confidence is 'I'll be fine if they don't'.**
 
 Anonymous
