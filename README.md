@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Attachment leads to jealously. The shadow of greed, that is.**
+**Nurture your mind with great thoughts, for you will never go any higher than you think.**
 
-Yoda
+Benjamin Disraeli
