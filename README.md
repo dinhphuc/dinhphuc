@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live life to the fullest and focus on the positive.**
+**Attachment leads to jealously. The shadow of greed, that is.**
 
-Matt Cameron
+Yoda
