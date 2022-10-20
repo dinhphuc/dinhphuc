@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The first duty of love is to listen.**
+**We can complain because rose bushes have thorns, or rejoice because thorns have roses.**
 
-Paul Tillich
+Alphonse Karr
