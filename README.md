@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Attachment leads to jealously. The shadow of greed, that is.**
+**Winning isn't everything, but wanting to win is.**
 
-Yoda
+Vince Lombardi
