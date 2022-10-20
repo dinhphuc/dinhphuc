@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life isn't about finding yourself. Life is about creating yourself.**
+**It is not the strongest of the species that survive, nor the most intelligent, but the one most responsive to change.**
 
-George Bernard Shaw
+Charles Darwin
