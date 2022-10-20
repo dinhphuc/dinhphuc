@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Self-control is strength. Right thought is mastery. Calmness is power.**
+**The first place where self-esteem begins its journey is within us.**
 
-James Allen
+Stephen Richards
