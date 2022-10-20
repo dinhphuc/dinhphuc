@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The will to win means nothing without the will to prepare.**
+**Words should be weighed, not counted.**
 
-Juma Ikangaa
+Yiddish Proverb
