@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Move fast and break things. If you are not breaking things, you are not moving fast enough.**
+**Live life to the fullest and focus on the positive.**
 
-Mark Zuckerberg
+Matt Cameron
