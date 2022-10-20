@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whoever is happy will make others happy too.**
+**You have to fight through some bad days to earn the best days of your life.**
 
 Anonymous
