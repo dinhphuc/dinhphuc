@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**At the end of the day, you can either focus on what's tearing you apart, or you can focus on what's keeping you together.**
+**It's not whether you get knocked down. It's whether you get back up.**
 
-Anonymous
+Vince Lombardi
