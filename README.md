@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Kindness is free. Sprinkle that stuff everywhere.**
+**Life isn't about finding yourself. Life is about creating yourself.**
 
-Anonymous
+George Bernard Shaw
