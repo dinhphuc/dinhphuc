@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We can complain because rose bushes have thorns, or rejoice because thorns have roses.**
+**Move fast and break things. If you are not breaking things, you are not moving fast enough.**
 
-Alphonse Karr
+Mark Zuckerberg
