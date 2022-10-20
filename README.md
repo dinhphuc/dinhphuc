@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not whether you get knocked down. It's whether you get back up.**
+**Whoever is happy will make others happy too.**
 
-Vince Lombardi
+Anonymous
