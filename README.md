@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Learn from the past, set vivid, detailed goals for the future, and live in the only moment of time over which you have any control: now.**
+**Kindness is free. Sprinkle that stuff everywhere.**
 
-Denis Waitley
+Anonymous
