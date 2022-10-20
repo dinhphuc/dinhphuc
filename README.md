@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**People want to do business with you because you help them get what they want. They don't do business with you to help you get what you want.**
+**We all make mistakes, but the winner knows that success comes from perseverance: trying, failing, learning, and doing it again until he succeeds.**
 
-Don Crowther
+Judy Ford
