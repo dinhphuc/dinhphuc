@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is no accident. It is hard work, perseverance, learning, studying, sacrifice and most of all, love of what you are doing or learning to do.**
+**Self-control is strength. Right thought is mastery. Calmness is power.**
 
-Pele
+James Allen
