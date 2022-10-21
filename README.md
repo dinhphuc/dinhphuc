@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good judgment comes from experience, and a lot of that comes from bad judgment.**
+**Rock bottom became the solid foundation on which I rebuilt my life.**
 
-Will Rogers
+J.K. Rowling
