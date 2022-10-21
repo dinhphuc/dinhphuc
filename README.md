@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never underestimate the power you have to take your life in a new direction.**
+**Champions play to win. Failure is just feedback. There's everything to gain by trying your best.**
 
-Germany Kent
+Jim Afremow
