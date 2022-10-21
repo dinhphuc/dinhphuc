@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good friends are like stars. You don't always see them, but you know they're always there.**
+**The best preparation for tomorrow is doing your best today.**
 
-Christy Evans
+H. Jackson Brown, Jr
