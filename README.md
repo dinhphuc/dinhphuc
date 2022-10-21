@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everytime you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**
+**Once you're beat mentally, you might as well not even go to the starting line.**
 
-Mother Teresa
+Todd Williams
