@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Winning isn't everything, but wanting to win is.**
+**Even the greatest were beginners. Don't be afraid to take that first step.**
 
-Vince Lombardi
+Anonymous
