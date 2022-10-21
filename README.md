@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once you're beat mentally, you might as well not even go to the starting line.**
+**Every morning you have a new opportunity to become a happier version of yourself.**
 
-Todd Williams
+Anonymous
