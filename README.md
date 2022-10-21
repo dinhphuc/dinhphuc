@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Trust yourself. You know more than you think you do.**
+**Always believe that something wonderful is about to happen.**
 
-Dr. Benjamin Spock
+Anonymous
