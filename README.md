@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember that guy that gave up? Neither does anyone else.**
+**When you stop chasing the wrong things you give the right things a chance to catch you.**
 
 Anonymous
