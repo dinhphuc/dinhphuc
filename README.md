@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The best preparation for tomorrow is doing your best today.**
+**Strength isn't about how much you can handle before you break. It's about how much you can endure after you've been broken.**
 
-H. Jackson Brown, Jr
+Anonymous
