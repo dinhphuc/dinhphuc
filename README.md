@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can alter mood by running.**
+**Remember that guy that gave up? Neither does anyone else.**
 
-Tumpal Sihombing
+Anonymous
