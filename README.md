@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every morning you have a new opportunity to become a happier version of yourself.**
+**It feels good when you can put a smile on someone's face by simply being yourself.**
 
 Anonymous
