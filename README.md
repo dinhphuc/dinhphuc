@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Even the greatest were beginners. Don't be afraid to take that first step.**
+**Everytime you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**
 
-Anonymous
+Mother Teresa
