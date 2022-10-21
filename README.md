@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Trust yourself. You know more than you think you do.**
+**It's important to feel good about yourself. When you feel good about yourself, nothing negative can touch you.**
 
-Dr. Benjamin Spock
+Anonymous
