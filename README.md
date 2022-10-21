@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Learn to be thankful for what you already have, while you pursue all that you want.**
+**Be tolerant with others and strict with yourself.**
 
-Jim Rohn
+Marcus Aurelius
