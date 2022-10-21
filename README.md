@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Champions play to win. Failure is just feedback. There's everything to gain by trying your best.**
+**Trust yourself. You know more than you think you do.**
 
-Jim Afremow
+Dr. Benjamin Spock
