@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's important to feel good about yourself. When you feel good about yourself, nothing negative can touch you.**
+**Strength grows in the moments when you think you can't go on but you keep going anyway.**
 
 Anonymous
