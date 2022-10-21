@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The purpose of our lives is to be happy.**
+**Trust yourself. You know more than you think you do.**
 
-Dalai Lama
+Dr. Benjamin Spock
