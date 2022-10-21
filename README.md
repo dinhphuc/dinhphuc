@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Rock bottom became the solid foundation on which I rebuilt my life.**
+**Winning isn't everything, but wanting to win is.**
 
-J.K. Rowling
+Vince Lombardi
