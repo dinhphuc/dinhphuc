@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you feel like giving up, just look back on how far you are already.**
+**I always like to look on the optimistic side of life, but I am realistic enough to know that life is a complex matter.**
 
-Anonymous
+Walt Disney
