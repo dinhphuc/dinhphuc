@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always believe that something wonderful is about to happen.**
+**Learn to be thankful for what you already have, while you pursue all that you want.**
 
-Anonymous
+Jim Rohn
