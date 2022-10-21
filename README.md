@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**As long as we have hope, we have direction, the energy to move, and the map to move by.**
+**Good friends are like stars. You don't always see them, but you know they're always there.**
 
-Lao Tzu
+Christy Evans
