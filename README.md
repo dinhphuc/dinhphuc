@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It feels good when you can put a smile on someone's face by simply being yourself.**
+**It is better to fail in originality than to succeed in imitation.**
 
-Anonymous
+Herman Melville
