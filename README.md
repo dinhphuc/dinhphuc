@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength grows in the moments when you think you can't go on but you keep going anyway.**
+**If you feel like giving up, just look back on how far you are already.**
 
 Anonymous
