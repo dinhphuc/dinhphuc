@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you stop chasing the wrong things you give the right things a chance to catch you.**
+**Opportunities don't happen. You create them.**
 
-Anonymous
+Chris Grosser
