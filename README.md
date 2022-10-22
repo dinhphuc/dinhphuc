@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The sun itself is weak when it first rises, and gathers strength and courage as the day gets on.**
+**Certain things catch your eye, but pursue only those that capture the heart.**
 
-Charles Dickens
+Ancient Indian Proverb
