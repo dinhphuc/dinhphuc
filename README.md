@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Winning doesn't always mean being first. Winning means you're doing better than you've done before.**
+**Even the smallest shift in perspective can bring about the greatest healing.**
 
-Bonnie Blair
+Joshua Kai
