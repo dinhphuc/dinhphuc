@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Perseverance is the hard work you do after you get tired of doing the hard work you already did.**
+**Strength grows in the moments when you think you can't go on but you keep going anyway.**
 
-Newt Gingrich
+Anonymous
