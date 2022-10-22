@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**How you do anything is how you do everything.**
+**It matters not what someone is born, but what they grow to be.**
 
-T. Harv Eker
+Master Oogway
