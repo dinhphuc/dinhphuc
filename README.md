@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you go to a donkey's house, don't talk about ears.**
+**All that matters is how you see yourself.**
 
-Jamaican Proverb
+Conor McGregor
