@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You're off to great places, today is your day. Your mountain is waiting, so get on your way.**
+**There is no shame in not knowing; the shame lies in not finding out.**
 
-Dr. Seuss
+Russian Proverb
