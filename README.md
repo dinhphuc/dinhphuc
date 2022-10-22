@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All that matters is how you see yourself.**
+**No one who can rise before dawn three hundred sixty days a year fails to make his family rich.**
 
-Conor McGregor
+Malcolm Gladwell
