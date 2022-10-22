@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I compete only with myself, and I try to become a better human being. This is my goal.**
+**When someone told me I lived in a fantasy land, I nearly fell off my unicorn.**
 
-Sri Chinmoy
+Anonymous
