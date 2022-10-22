@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Faith is taking the first step even when you don't see the whole staircase.**
+**Be strong now, because things will get better. It might be stormy now, but it can't rain forever.**
 
-Martin Luther King
+Anonymous
