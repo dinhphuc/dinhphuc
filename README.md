@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One day I'll be at the place I always wanted to be.**
+**If you can't stop thinking about it, don't stop working for it.**
 
 Anonymous
