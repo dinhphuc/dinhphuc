@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To fall in love with yourself is the first secret to happiness.**
+**Spread love everywhere you go. Let no one ever come to you without leaving happier.**
 
-Robert Morley
+Mother Teresa
