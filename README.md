@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Even the smallest shift in perspective can bring about the greatest healing.**
+**The sun itself is weak when it first rises, and gathers strength and courage as the day gets on.**
 
-Joshua Kai
+Charles Dickens
