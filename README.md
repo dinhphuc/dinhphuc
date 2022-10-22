@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is not something ready made. It comes from your own actions.**
+**Better than a thousand days of diligent study is one day with a great teacher.**
 
-Dalai Lama
+Jim Afremow
