@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are only two options regarding commitment. You're either IN or you're OUT. There is no such thing as life in-between.**
+**Perseverance is the hard work you do after you get tired of doing the hard work you already did.**
 
-Pat Riley
+Newt Gingrich
