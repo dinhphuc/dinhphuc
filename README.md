@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When someone told me I lived in a fantasy land, I nearly fell off my unicorn.**
+**Optimism is a happiness magnet. If you stay positive, good things and good people will be drawn to you.**
 
-Anonymous
+Mary Lou Retton
