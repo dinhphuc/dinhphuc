@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not how much we have, but how much we enjoy, that makes happiness.**
+**When someone told me I lived in a fantasy land, I nearly fell off my unicorn.**
 
-Charles Spurgeon
+Anonymous
