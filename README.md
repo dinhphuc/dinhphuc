@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It matters not what someone is born, but what they grow to be.**
+**It's going to be hard. But hard is not impossible.**
 
-Master Oogway
+Anonymous
