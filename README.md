@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Optimism is a happiness magnet. If you stay positive, good things and good people will be drawn to you.**
+**If you go to a donkey's house, don't talk about ears.**
 
-Mary Lou Retton
+Jamaican Proverb
