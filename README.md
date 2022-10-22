@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I don't make excuses. I make results.**
+**You cannot prevent the birds of sadness from passing over your head, but you can prevent their making a nest in your hair.**
 
-Anonymous
+Chinese Proverb
