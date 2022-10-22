@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Better than a thousand days of diligent study is one day with a great teacher.**
+**One often meets his destiny on the road he takes to avoid it.**
 
-Jim Afremow
+Master Oogway
