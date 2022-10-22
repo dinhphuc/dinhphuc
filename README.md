@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One often meets his destiny on the road he takes to avoid it.**
+**Everything you need to accomplish your goals is already in you.**
 
-Master Oogway
+Anonymous
