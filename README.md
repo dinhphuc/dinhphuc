@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Certain things catch your eye, but pursue only those that capture the heart.**
+**There are only two options regarding commitment. You're either IN or you're OUT. There is no such thing as life in-between.**
 
-Ancient Indian Proverb
+Pat Riley
