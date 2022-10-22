@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no shame in not knowing; the shame lies in not finding out.**
+**To fall in love with yourself is the first secret to happiness.**
 
-Russian Proverb
+Robert Morley
