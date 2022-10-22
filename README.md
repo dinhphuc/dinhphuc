@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is better to fail in originality than to succeed in imitation.**
+**I don't make excuses. I make results.**
 
-Herman Melville
+Anonymous
