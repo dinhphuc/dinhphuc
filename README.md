@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot prevent the birds of sadness from passing over your head, but you can prevent their making a nest in your hair.**
+**When something is important enough, you do it even if the odds are not in your favor.**
 
-Chinese Proverb
+Elon Musk
