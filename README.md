@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Work hard in silence. Let success make the noise.**
+**One day I'll be at the place I always wanted to be.**
 
 Anonymous
