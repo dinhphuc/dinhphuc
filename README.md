@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life without love is like a tree without blossoms or fruit.**
+**Faith is taking the first step even when you don't see the whole staircase.**
 
-Khalil Gibran
+Martin Luther King
