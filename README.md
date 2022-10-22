@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When something is important enough, you do it even if the odds are not in your favor.**
+**Winning doesn't always mean being first. Winning means you're doing better than you've done before.**
 
-Elon Musk
+Bonnie Blair
