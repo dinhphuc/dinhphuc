@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Control, control, you must learn control!**
+**I would rather die of passion than of boredom.**
 
-Yoda
+Vincent van Gogh
