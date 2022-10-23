@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I would rather die of passion than of boredom.**
+**You're allowed to scream. You're allowed to cry. But don't give up.**
 
-Vincent van Gogh
+Anonymous
