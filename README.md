@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You're allowed to scream. You're allowed to cry. But don't give up.**
+**Our greatest glory is not in never falling, but in rising every time we fall.**
 
-Anonymous
+Confucius
