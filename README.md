@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We love life, not because we are used to living but because we are used to loving.**
+**Results happen over time, not overnight. Work hard, stay consistent, and be patient.**
 
-Friedrich Nietzsche
+Anonymous
