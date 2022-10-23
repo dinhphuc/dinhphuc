@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When will you realize, the more you take, the less you have.**
+**Run when you can, walk if you have to, crawl if you must; just never give up.**
 
-Master Oogway
+Dean Karnazes
