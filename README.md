@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Run when you can, walk if you have to, crawl if you must; just never give up.**
+**Every next level of your life will demand a different version of you.**
 
-Dean Karnazes
+Anonymous
