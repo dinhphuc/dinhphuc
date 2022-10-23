@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You've got to be willing to lose everything to gain yourself.**
+**If you are positive, you'll see opportunities instead of obstacles.**
 
-Iyanla Vanzant
+Widad Akrawi
