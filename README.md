@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot propel yourself forward by patting yourself on the back.**
+**Control, control, you must learn control!**
 
-Steve Prefontaine
+Yoda
