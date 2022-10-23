@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't ask what the world needs. Ask what makes you come alive and go do it. Because what the world needs is more people who have come alive.**
+**Better than a thousand days of diligent study is one day with a great teacher.**
 
-Howard Thurman
+Jim Afremow
