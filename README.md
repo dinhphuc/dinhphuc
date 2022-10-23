@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No one who can rise before dawn three hundred sixty days a year fails to make his family rich.**
+**Love cures people - both the ones who give it and the ones who receive it.**
 
-Malcolm Gladwell
+Karl A. Menninger
