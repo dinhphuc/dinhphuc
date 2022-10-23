@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Results happen over time, not overnight. Work hard, stay consistent, and be patient.**
+**Not all those who wander are lost.**
 
-Anonymous
+J. R. R. Tolkien
