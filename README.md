@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are positive, you'll see opportunities instead of obstacles.**
+**Our own self-esteem is something we can actually twist in whatever way we want.**
 
-Widad Akrawi
+Stephen Richards
