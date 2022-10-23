@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't get what you wish for. You get what you work for.**
+**Never give up. You only get one life. Go for it.**
 
-Anonymous
+Richard E. Grant
