@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up. You only get one life. Go for it.**
+**When will you realize, the more you take, the less you have.**
 
-Richard E. Grant
+Master Oogway
