@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Not all those who wander are lost.**
+**You don't get what you wish for. You get what you work for.**
 
-J. R. R. Tolkien
+Anonymous
