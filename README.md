@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I compete only with myself, and I try to become a better human being. This is my goal.**
+**You've got to be willing to lose everything to gain yourself.**
 
-Sri Chinmoy
+Iyanla Vanzant
