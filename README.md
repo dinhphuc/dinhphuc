@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't try to be perfect. Just try to be better than you were yesterday.**
+**You yourself, as much as anybody in the entire universe, deserve your love and affection.**
 
-Anonymous
+Buddha
