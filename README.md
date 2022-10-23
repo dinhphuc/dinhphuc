@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every next level of your life will demand a different version of you.**
+**Keep smiling, because life is a beautiful thing and there's so much to smile about.**
 
-Anonymous
+Marilyn Monroe
