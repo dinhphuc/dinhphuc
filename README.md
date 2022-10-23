@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our own self-esteem is something we can actually twist in whatever way we want.**
+**Not all those who wander are lost.**
 
-Stephen Richards
+J. R. R. Tolkien
