@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Better than a thousand days of diligent study is one day with a great teacher.**
+**If you don't sacrifice for what you want, what you wants becomes the sacrifice.**
 
-Jim Afremow
+Anonymous
