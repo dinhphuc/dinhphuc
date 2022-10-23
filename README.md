@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You yourself, as much as anybody in the entire universe, deserve your love and affection.**
+**The harder the battle. The sweeter the victory.**
 
-Buddha
+Les Brown
