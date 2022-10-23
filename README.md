@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't sacrifice for what you want, what you wants becomes the sacrifice.**
+**You cannot propel yourself forward by patting yourself on the back.**
 
-Anonymous
+Steve Prefontaine
