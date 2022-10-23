@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest glory is not in never falling, but in rising every time we fall.**
+**I compete only with myself, and I try to become a better human being. This is my goal.**
 
-Confucius
+Sri Chinmoy
