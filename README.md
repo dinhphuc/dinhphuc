@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Not all those who wander are lost.**
+**I am not a product of my circumstances. I am a product of my decisions.**
 
-J. R. R. Tolkien
+Stephen Covey
