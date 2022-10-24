@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Climb the mountains to see lowlands.**
+**What you're thinking is what you're becoming.**
 
-Chinese Proverb
+Muhammad Ali
