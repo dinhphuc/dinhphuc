@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing is more beautiful than the smile that has struggled through the tears.**
+**Happiness is not out there, it's in you.**
 
-Demi Lovato
+Anonymous
