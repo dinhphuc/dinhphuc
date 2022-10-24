@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure is simply the opportunity to begin again. Except this time more intelligently.**
+**Nothing is impossible, the word itself says "I'm possible"!**
 
-Henry Ford
+Audrey Hepburn
