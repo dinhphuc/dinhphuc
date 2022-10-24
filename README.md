@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Run when you can, walk if you have to, crawl if you must; just never give up.**
+**If you go to a donkey's house, don't talk about ears.**
 
-Dean Karnazes
+Jamaican Proverb
