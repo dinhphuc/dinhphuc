@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You're allowed to scream. You're allowed to cry. But don't give up.**
+**Everything that is done in this world is done by hope.**
 
-Anonymous
+Martin Luther
