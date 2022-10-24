@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once I realized the problem was not you but within me. I found inner peace and was able to harness the flow of the universe.**
+**Nobody who ever gave their best regretted it.**
 
-Master Shifu
+George Halas
