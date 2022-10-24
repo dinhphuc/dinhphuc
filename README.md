@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We become what we think about.**
+**Wherever you go, go with all your heart.**
 
-Earl Nightingale
+Confucius
