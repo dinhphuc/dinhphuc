@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing is impossible, the word itself says "I'm possible"!**
+**We become what we think about.**
 
-Audrey Hepburn
+Earl Nightingale
