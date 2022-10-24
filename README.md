@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you're thinking is what you're becoming.**
+**Failure is simply the opportunity to begin again. Except this time more intelligently.**
 
-Muhammad Ali
+Henry Ford
