@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything that is done in this world is done by hope.**
+**The way I see it, if you want the rainbow, you gotta put up with the rain.**
 
-Martin Luther
+Dolly Parton
