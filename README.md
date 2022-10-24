@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
+**The difference between the impossible and the possible lies in a person's determination.**
 
-Anonymous
+Tommy Lasorda
