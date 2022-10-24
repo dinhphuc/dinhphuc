@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Often it isn't the mountains ahead that wear you out, it's the little pebble in your shoe.**
+**Be who you are and say what you feel because those who mind don't matter and those who matter don't mind.**
 
-Muhammad Ali
+Dr. Seuss
