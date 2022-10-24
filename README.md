@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be who you are and say what you feel because those who mind don't matter and those who matter don't mind.**
+**Run when you can, walk if you have to, crawl if you must; just never give up.**
 
-Dr. Seuss
+Dean Karnazes
