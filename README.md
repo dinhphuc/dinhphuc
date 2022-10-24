@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When I hear somebody sigh, 'Life is hard,' I am always tempted to ask, 'Compared to what?'**
+**You're allowed to scream. You're allowed to cry. But don't give up.**
 
-Sydney Harris
+Anonymous
