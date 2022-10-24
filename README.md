@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I am not a product of my circumstances. I am a product of my decisions.**
+**Success is not final, failure is not fatal: it is the courage to continue that counts.**
 
-Stephen Covey
+Winston Churchill
