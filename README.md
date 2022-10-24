@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The way I see it, if you want the rainbow, you gotta put up with the rain.**
+**Often it isn't the mountains ahead that wear you out, it's the little pebble in your shoe.**
 
-Dolly Parton
+Muhammad Ali
