@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody who ever gave their best regretted it.**
+**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
 
-George Halas
+Anonymous
