@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle.**
+**I don't count my sit-ups; I only start counting when it starts hurting because they're the only ones that count.**
 
-Albert Einstein
+Muhammad Ali
