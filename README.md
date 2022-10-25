@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Set a goal so big that you can't achieve it until you grow into the person who can.**
+**You have to be at your strongest when you're feeling at your weakest.**
 
 Anonymous
