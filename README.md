@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All souls are lost until they are found.**
+**In a dark place we find ourselves, and a little more knowledge lights our way.**
 
-Kate McGahan
+Yoda
