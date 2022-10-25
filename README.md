@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you know what you want, and want it bad enough, you'll find a way to get it.**
+**'Thank you' is the best prayer that anyone could say.**
 
-Jim Rohn
+Alice Walker
