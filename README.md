@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't always control what goes on outside, but you can always control what goes on inside.**
+**Runners just do it - they run for the finish line even if someone else has reached it first.**
 
-Wayne Dyer
+Unknown
