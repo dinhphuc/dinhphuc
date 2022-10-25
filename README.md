@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good people are like candles; they burn themselves up to give others light.**
+**You miss 100% of the shots you don't take.**
 
-Anonymous
+Wayne Gretzky
