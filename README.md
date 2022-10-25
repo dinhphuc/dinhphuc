@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You miss 100% of the shots you don't take.**
+**Work hard and be nice to people.**
 
-Wayne Gretzky
+Anonymous
