@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You're braver than you believe, and stronger than you seem, and smarter than you think.**
+**Life is a magical ride. Enjoy every moment.**
 
-A.A. Mine
+Anonymous
