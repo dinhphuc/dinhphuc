@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Runners just do it - they run for the finish line even if someone else has reached it first.**
+**Good people are like candles; they burn themselves up to give others light.**
 
-Unknown
+Anonymous
