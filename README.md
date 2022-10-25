@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how you feel, get up, dress up, show up and never give up.**
+**Through challenge and difficulty, we learn to see life differently than before.**
 
-Anonymous
+Auliq-Ice
