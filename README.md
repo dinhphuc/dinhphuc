@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**May the Force be with you.**
+**I don't care how long it takes me, but I'm going somewhere beautiful.**
 
-Yoda
+Anonymous
