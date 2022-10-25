@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is never fair, and perhaps it is a good thing for most of us that it is not.**
+**No matter how you feel, get up, dress up, show up and never give up.**
 
-Oscar Wilde
+Anonymous
