@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not about perfect. It's about effort.**
+**You can't always control what goes on outside, but you can always control what goes on inside.**
 
-Jillian Michaels
+Wayne Dyer
