@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Time is an illusion, there is only the now.**
+**Life is never fair, and perhaps it is a good thing for most of us that it is not.**
 
-Master Shifu
+Oscar Wilde
