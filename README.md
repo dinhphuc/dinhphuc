@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Through challenge and difficulty, we learn to see life differently than before.**
+**The secret of being happy is accepting where you are in life and making the most out of everyday.**
 
-Auliq-Ice
+Anonymous
