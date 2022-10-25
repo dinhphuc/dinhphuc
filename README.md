@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is a magical ride. Enjoy every moment.**
+**Time is an illusion, there is only the now.**
 
-Anonymous
+Master Shifu
