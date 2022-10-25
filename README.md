@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If opportunity doesn't knock, build a door.**
+**All souls are lost until they are found.**
 
-Milton Berle
+Kate McGahan
