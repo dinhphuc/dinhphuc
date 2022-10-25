@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Work hard and be nice to people.**
+**Nothing is impossible, the word itself says "I'm possible"!**
 
-Anonymous
+Audrey Hepburn
