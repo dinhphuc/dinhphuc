@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The question isn't who is going to let me; it's who is going to stop me.**
+**Set a goal so big that you can't achieve it until you grow into the person who can.**
 
-Ayn Rand
+Anonymous
