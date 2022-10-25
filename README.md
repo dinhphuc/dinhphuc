@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I don't care how long it takes me, but I'm going somewhere beautiful.**
+**You're braver than you believe, and stronger than you seem, and smarter than you think.**
 
-Anonymous
+A.A. Mine
