@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of being happy is accepting where you are in life and making the most out of everyday.**
+**Always be yourself and have faith in yourself. Do not go out and look for a successful personality and try to duplicate it.**
 
-Anonymous
+Bruce Lee
