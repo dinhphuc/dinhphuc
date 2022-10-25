@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There's nothing that you can do that can't be done.**
+**The question isn't who is going to let me; it's who is going to stop me.**
 
-The Beatles
+Ayn Rand
