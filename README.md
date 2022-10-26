@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everywhere you go, take a smile with you.**
+**A gentle word, a kind look, a good-natured smile can work wonders and accomplish miracles.**
 
-Sasha Azevedo
+William Hazlitt
