@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once you choose hope, anything's possible.**
+**Everywhere you go, take a smile with you.**
 
-Christopher Reeve
+Sasha Azevedo
