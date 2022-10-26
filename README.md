@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every day may not be good... but there's something good in every day.**
+**Be crazy. Be stupid. Be silly. Be weird. Be whatever. Because life is too short to be anything but happy.**
 
-Alice Morse Earle
+Anonymous
