@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do something today that your future self will thank you for.**
+**No beauty shines brighter than that of a good heart.**
 
 Anonymous
