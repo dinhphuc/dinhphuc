@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Go fast enough to get there, but slow enough to see.**
+**You may never know what results come of your actions, but if you do nothing, there will be no results.**
 
-Jimmy Buffett
+Mahatma Gandhi
