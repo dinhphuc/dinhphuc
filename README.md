@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Impossible is nothing.**
+**You can't blame gravity for falling in love.**
 
-Muhammad Ali
+Albert Einstein
