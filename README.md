@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Action is the foundational key to all success.**
+**Everything that is done in this world is done by hope.**
 
-Pablo Picasso
+Martin Luther
