@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are never too old to set another goal or dream a new dream.**
+**Believe and act as if it were impossible to fail.**
 
-Les Brown
+Charles Kettering
