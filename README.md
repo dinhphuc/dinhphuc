@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe and act as if it were impossible to fail.**
+**Success isn't just about what you accomplish in life. It's about what you inspire others to do.**
 
-Charles Kettering
+Anonymous
