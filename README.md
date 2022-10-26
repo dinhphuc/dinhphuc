@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Because of your smile, you make life more beautiful.**
+**It's better to light a candle than curse the darkness.**
 
-Thich Nhat Hanh
+Chinese Proverb
