@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't let the past steal your present.**
+**Go fast enough to get there, but slow enough to see.**
 
-Terri Guillemets
+Jimmy Buffett
