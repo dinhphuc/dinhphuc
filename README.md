@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep smiling. It makes people wonder what you are up to.**
+**You cannot propel yourself forward by patting yourself on the back.**
 
-Anonymous
+Steve Prefontaine
