@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**'Thank you' is the best prayer that anyone could say.**
+**You don't want to look back and know you could have done better.**
 
-Alice Walker
+Anonymous
