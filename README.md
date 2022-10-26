@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Another day another blessing.**
+**Because of your smile, you make life more beautiful.**
 
-Anonymous
+Thich Nhat Hanh
