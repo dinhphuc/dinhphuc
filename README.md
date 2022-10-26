@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success isn't just about what you accomplish in life. It's about what you inspire others to do.**
+**Keep smiling. It makes people wonder what you are up to.**
 
 Anonymous
