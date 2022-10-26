@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You may never know what results come of your actions, but if you do nothing, there will be no results.**
+**The goal is not to be perfect by the end. The goal is to be better today.**
 
-Mahatma Gandhi
+Simon Sinek
