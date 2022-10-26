@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything that is done in this world is done by hope.**
+**Once you choose hope, anything's possible.**
 
-Martin Luther
+Christopher Reeve
