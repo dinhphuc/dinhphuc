@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's better to light a candle than curse the darkness.**
+**Great minds discuss ideas; average minds discuss events; small minds discuss people.**
 
-Chinese Proverb
+Eleanor Roosevelt
