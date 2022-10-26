@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure is simply the opportunity to begin again. Except this time more intelligently.**
+**Success is what happens after you have survived all of your disappointments.**
 
-Henry Ford
+Anonymous
