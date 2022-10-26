@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't blame gravity for falling in love.**
+**Don't let the past steal your present.**
 
-Albert Einstein
+Terri Guillemets
