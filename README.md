@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot propel yourself forward by patting yourself on the back.**
+**Our problems don't stem from our ignorance so much as our disobedience of that which we know to be right.**
 
-Steve Prefontaine
+Stephen Covey
