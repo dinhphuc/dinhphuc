@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The goal is not to be perfect by the end. The goal is to be better today.**
+**Action is the foundational key to all success.**
 
-Simon Sinek
+Pablo Picasso
