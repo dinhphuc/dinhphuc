@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It does not matter how slowly you go as long as you do not stop.**
+**Do something today that your future self will thank you for.**
 
-Confucius
+Anonymous
