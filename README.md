@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everytime you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**
+**It does not matter how slowly you go as long as you do not stop.**
 
-Mother Teresa
+Confucius
