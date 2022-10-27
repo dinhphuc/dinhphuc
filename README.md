@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is letting go of what you think your life is supposed to look like and enjoying it for everything that it is.**
+**You only live once, but if you do it right, once is enough.**
 
-Mandy Hale
+Mae West
