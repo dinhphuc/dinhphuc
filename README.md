@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your problem isn't the problem, it's your attitude about the problem.**
+**If you want your dinner, don't insult the cook.**
 
-Ann Brashares
+Chinese Proverb
