@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Before telling secrets on the road, look in the bushes.**
+**Build your own dreams, or someone else will hire you to build theirs.**
 
-Chinese Proverb
+Farrah Gray
