@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every accomplishment begins with the decision to try.**
+**Keep your face always toward the sunshine - and shadows will fall behind you.**
 
-Anonymous
+Walt Whitman
