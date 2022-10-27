@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Build your own dreams, or someone else will hire you to build theirs.**
+**You cannot shake hands with a clenched fist.**
 
-Farrah Gray
+Indira Gandhi
