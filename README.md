@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot shake hands with a clenched fist.**
+**You are what you believe yourself to be.**
 
-Indira Gandhi
+Paulo Coelho
