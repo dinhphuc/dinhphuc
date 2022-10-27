@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's easy to stand in the crowd but it takes courage to stand alone.**
+**I hated every minute of training, but I said, 'Don't quit. Suffer now and live the rest of your life as a champion'.**
 
-Mahatma Gandhi
+Muhammad Ali
