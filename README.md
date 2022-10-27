@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I am happy because I'm grateful. I choose to be grateful. That gratitude allows me to be happy.**
+**The only impossible journey is the one you never begin.**
 
-Will Arnett
+Tony Robbins
