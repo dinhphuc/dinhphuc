@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Spend your life with people who make you smile, laugh, and feel loved.**
+**Sometimes the bravest thing you can do is to keep going when you really feel like giving up.**
 
-Roy T. Bennett
+Anonymous
