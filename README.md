@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are what you believe yourself to be.**
+**Your problem isn't the problem, it's your attitude about the problem.**
 
-Paulo Coelho
+Ann Brashares
