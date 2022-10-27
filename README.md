@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A dream does not become reality through magic; it takes sweat, determination and hard work.**
+**Never give up. Keep going.**
 
-Colin Powell
+Anonymous
