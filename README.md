@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Go confidently in the direction of your dreams! Live the life you've imagined.**
+**Spend your life with people who make you smile, laugh, and feel loved.**
 
-Henry David Thoreau
+Roy T. Bennett
