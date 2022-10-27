@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Throw kindness around like confetti.**
+**If you can't stop thinking about it, don't stop working for it.**
 
 Anonymous
