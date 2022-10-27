@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep smiling. It makes people wonder what you are up to.**
+**Keep your face always toward the sunshine - and shadows will fall behind you.**
 
-Anonymous
+Walt Whitman
