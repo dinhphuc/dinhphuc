@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody said it would be easy, so don't ever give up when it gets hard.**
+**It's a good day to be happy.**
 
 Anonymous
