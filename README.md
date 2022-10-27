@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The first and greatest victory is to conquer self.**
+**Nobody said it would be easy, so don't ever give up when it gets hard.**
 
-Plato
+Anonymous
