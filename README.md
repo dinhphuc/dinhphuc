@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up. Keep going.**
+**Before telling secrets on the road, look in the bushes.**
 
-Anonymous
+Chinese Proverb
