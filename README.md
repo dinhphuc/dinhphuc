@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To be a great champion you must believe you are the best. If you're not, pretend you are.**
+**It's easy to stand in the crowd but it takes courage to stand alone.**
 
-Muhammad Ali
+Mahatma Gandhi
