@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You may encounter many defeats, but you must not be defeated.**
+**Happy are those who take life day by day, complain very little, and are thankful for the little things in life.**
 
-Maya Angelou
+Anonymous
