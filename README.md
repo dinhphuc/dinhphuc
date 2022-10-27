@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The pessimist sees difficulty in every opportunity. The optimist sees opportunity in every difficulty.**
+**I don't count my sit-ups; I only start counting when it starts hurting because they're the only ones that count.**
 
-Winston Churchill
+Muhammad Ali
