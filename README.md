@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want your dinner, don't insult the cook.**
+**To be a great champion you must believe you are the best. If you're not, pretend you are.**
 
-Chinese Proverb
+Muhammad Ali
