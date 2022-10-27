@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I don't count my sit-ups; I only start counting when it starts hurting because they're the only ones that count.**
+**It's not whether you get knocked down. It's whether you get back up.**
 
-Muhammad Ali
+Vince Lombardi
