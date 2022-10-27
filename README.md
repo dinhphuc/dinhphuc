@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Sometimes the bravest thing you can do is to keep going when you really feel like giving up.**
+**The first and greatest victory is to conquer self.**
 
-Anonymous
+Plato
