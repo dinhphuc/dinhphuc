@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Two wrongs don't make a right.**
+**Take it all one day at a time and enjoy the journey.**
 
-English Proverb
+Kristi Bartlett
