@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep your eyes on the stars, and your feet on the ground.**
+**When we help ourselves, we find moments of happiness. When we help others, we find lasting fulfillment.**
 
-Theodore Roosevelt
+Simon Sinek
