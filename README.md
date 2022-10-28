@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When we help ourselves, we find moments of happiness. When we help others, we find lasting fulfillment.**
+**Keep smiling, because life is a beautiful thing and there's so much to smile about.**
 
-Simon Sinek
+Marilyn Monroe
