@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are only two options regarding commitment. You're either IN or you're OUT. There is no such thing as life in-between.**
+**You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously.**
 
-Pat Riley
+Steve Maraboli
