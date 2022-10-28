@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Take it all one day at a time and enjoy the journey.**
+**It's better to light a candle than curse the darkness.**
 
-Kristi Bartlett
+Chinese Proverb
