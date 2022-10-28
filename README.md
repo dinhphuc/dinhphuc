@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Work hard in silence. Let success make the noise.**
+**Be tolerant with others and strict with yourself.**
 
-Anonymous
+Marcus Aurelius
