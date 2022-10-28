@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Run when you can, walk if you have to, crawl if you must; just never give up.**
+**Keep your eyes on the stars, and your feet on the ground.**
 
-Dean Karnazes
+Theodore Roosevelt
