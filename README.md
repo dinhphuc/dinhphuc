@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Before telling secrets on the road, look in the bushes.**
+**Today, give a stranger one of your smiles. It might be the only sunshine they see all day.**
 
-Chinese Proverb
+H. Jackson Brown Jr
