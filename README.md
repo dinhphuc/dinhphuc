@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep smiling, because life is a beautiful thing and there's so much to smile about.**
+**The starting point of all achievement is desire.**
 
-Marilyn Monroe
+Napoleon Hill
