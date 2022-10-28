@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The starting point of all achievement is desire.**
+**The pessimist sees difficulty in every opportunity. The optimist sees opportunity in every difficulty.**
 
-Napoleon Hill
+Winston Churchill
