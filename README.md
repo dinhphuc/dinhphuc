@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whoever loves much, performs much, and can accomplish much, and what is done in love is done well.**
+**There are only two mistakes one can make along the road to truth; not going all the way, and not starting.**
 
-Vincent van Gogh
+Buddha
