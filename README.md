@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be so good they can't ignore you.**
+**When you want to succeed as bad as you want to breathe, you will be successful.**
 
-Steve Martin
+Eric Thomas
