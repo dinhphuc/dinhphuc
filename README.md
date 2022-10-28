@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The best way to predict your future is to create it.**
+**Measure a thousand times and cut once.**
 
-Peter F. Drucker
+Turkish Proverb
