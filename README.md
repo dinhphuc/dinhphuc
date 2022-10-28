@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The reason we race isn't so much to beat each other,... but to be with each other.**
+**Find a place inside where there's joy, and the joy will burn out the pain.**
 
-Christopher McDougall
+Joseph Campbell
