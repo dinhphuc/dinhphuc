@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Faith is taking the first step even when you don't see the whole staircase.**
+**Don't be afraid to give up the good to go for the great.**
 
-Martin Luther King
+John D. Rockefeller
