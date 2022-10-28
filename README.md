@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When I hear somebody sigh, 'Life is hard,' I am always tempted to ask, 'Compared to what?'**
+**The best way to predict your future is to create it.**
 
-Sydney Harris
+Peter F. Drucker
