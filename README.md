@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be tolerant with others and strict with yourself.**
+**Trust the process of life.**
 
-Marcus Aurelius
+Anonymous
