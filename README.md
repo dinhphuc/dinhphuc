@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be frightened by difficulties.**
+**Before telling secrets on the road, look in the bushes.**
 
-Ryan Holiday
+Chinese Proverb
