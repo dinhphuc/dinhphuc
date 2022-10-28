@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you want to succeed as bad as you want to breathe, you will be successful.**
+**Two wrongs don't make a right.**
 
-Eric Thomas
+English Proverb
