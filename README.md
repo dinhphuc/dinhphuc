@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Between stimulus and response, there is a space. In that space is our power to choose our response.**
+**Only those who dare to fail greatly can ever achieve greatly.**
 
-Viktor Frankl
+Robert F. Kennedy
