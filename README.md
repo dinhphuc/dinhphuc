@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only those who dare to fail greatly can ever achieve greatly.**
+**Your relationship with yourself sets the tone for every other relationship you have.**
 
-Robert F. Kennedy
+Anonymous
