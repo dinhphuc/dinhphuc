@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Find a place inside where there's joy, and the joy will burn out the pain.**
+**Between stimulus and response, there is a space. In that space is our power to choose our response.**
 
-Joseph Campbell
+Viktor Frankl
