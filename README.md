@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your relationship with yourself sets the tone for every other relationship you have.**
+**Faith is taking the first step even when you don't see the whole staircase.**
 
-Anonymous
+Martin Luther King
