@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously.**
+**Don't be frightened by difficulties.**
 
-Steve Maraboli
+Ryan Holiday
