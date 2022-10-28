@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are only two mistakes one can make along the road to truth; not going all the way, and not starting.**
+**Work hard in silence. Let success make the noise.**
 
-Buddha
+Anonymous
