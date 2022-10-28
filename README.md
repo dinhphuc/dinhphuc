@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only person who can pull me down is myself, and I'm not going to let myself pull me down anymore.**
+**Through challenge and difficulty, we learn to see life differently than before.**
 
-C. JoyBell C
+Auliq-Ice
