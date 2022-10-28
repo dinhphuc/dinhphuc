@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Today, give a stranger one of your smiles. It might be the only sunshine they see all day.**
+**The reason we race isn't so much to beat each other,... but to be with each other.**
 
-H. Jackson Brown Jr
+Christopher McDougall
