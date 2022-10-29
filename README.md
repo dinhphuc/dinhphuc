@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In a dark place we find ourselves, and a little more knowledge lights our way.**
+**If you only do what you can do, you will never be more than you are now.**
 
-Yoda
+Master Oogway
