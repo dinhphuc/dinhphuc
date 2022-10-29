@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything that is done in this world is done by hope.**
+**He who always thinks it is too soon is sure to come too late.**
 
-Martin Luther
+German Proverb
