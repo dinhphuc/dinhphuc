@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Work hard and be nice to people.**
+**Choose kindness and laugh often.**
 
 Anonymous
