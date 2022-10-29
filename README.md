@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Throw kindness around like confetti.**
+**Everything that is done in this world is done by hope.**
 
-Anonymous
+Martin Luther
