@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When a new day begins, dare to smile gratefully.**
+**Throw kindness around like confetti.**
 
-Steve Maraboli
+Anonymous
