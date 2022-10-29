@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are not willing to risk the usual, you will have to settle for the ordinary.**
+**I knew that if I failed I wouldn't regret that. But I would regret not trying.**
 
-Jim Rohn
+Jeff Bezos
