@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**He who always thinks it is too soon is sure to come too late.**
+**Decide what matters most to you and do it.**
 
-German Proverb
+Anonymous
