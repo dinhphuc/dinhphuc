@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no better than adversity. Every defeat, every heartbreak, every loss, contains its own seed, its own lesson on how to improve your performance the next time.**
+**Whatever the mind can conceive and believe, it can achieve.**
 
-Malcolm X
+Napoleon Hill
