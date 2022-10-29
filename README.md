@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only person you are destined to become is the person you decide to be.**
+**Surround yourself with people who get you.**
 
-Ralph Waldo Emerson
+Anonymous
