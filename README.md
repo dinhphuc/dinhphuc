@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Positive thinking will let you do everything better than negative thinking will.**
+**Certain things catch your eye, but pursue only those that capture the heart.**
 
-Zig Ziglar
+Ancient Indian Proverb
