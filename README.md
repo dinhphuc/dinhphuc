@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Surround yourself with only people who are going to lift you higher.**
+**When we help ourselves, we find moments of happiness. When we help others, we find lasting fulfillment.**
 
-Oprah
+Simon Sinek
