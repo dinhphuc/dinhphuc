@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of getting ahead is getting started.**
+**One conquers the world by conquering himself.**
 
-Mark Twain
+Zeno of Citium
