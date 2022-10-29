@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Surround yourself with only people who are going to lift you higher.**
+**When a new day begins, dare to smile gratefully.**
 
-Oprah
+Steve Maraboli
