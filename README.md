@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life without love is like a tree without blossoms or fruit.**
+**The only person you are destined to become is the person you decide to be.**
 
-Khalil Gibran
+Ralph Waldo Emerson
