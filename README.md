@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Certain things catch your eye, but pursue only those that capture the heart.**
+**Surround yourself with only people who are going to lift you higher.**
 
-Ancient Indian Proverb
+Oprah
