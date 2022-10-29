@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever the mind can conceive and believe, it can achieve.**
+**Attachment leads to jealously. The shadow of greed, that is.**
 
-Napoleon Hill
+Yoda
