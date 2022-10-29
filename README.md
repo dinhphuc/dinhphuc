@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The reputation of a thousand years may be determined by the conduct of one hour.**
+**I'm alone, but I'm not lonely. I like who I am. I like who I'm becoming.**
 
-Japanese Proverb
+Deena Kastor
