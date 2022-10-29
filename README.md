@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Today you are you! That is truer than true! There is no one alive who is you-er than you!**
+**Everyone wants happiness. No one wants pain. But you can't have a rainbow, without a little rain.**
 
-Dr. Seuss
+Anonymous
