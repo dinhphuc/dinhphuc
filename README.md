@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There's nothing that you can do that can't be done.**
+**I am happy because I'm grateful. I choose to be grateful. That gratitude allows me to be happy.**
 
-The Beatles
+Will Arnett
