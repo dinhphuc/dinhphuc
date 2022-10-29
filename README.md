@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Attachment leads to jealously. The shadow of greed, that is.**
+**Life without love is like a tree without blossoms or fruit.**
 
-Yoda
+Khalil Gibran
