@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One conquers the world by conquering himself.**
+**A champion is someone who gets up when they can't.**
 
-Zeno of Citium
+Jack Dempsey
