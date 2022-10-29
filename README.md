@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life works for my benefit.**
+**Surround yourself with only people who are going to lift you higher.**
 
-Anonymous
+Oprah
