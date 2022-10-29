@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A champion is someone who gets up when they can't.**
+**In a dark place we find ourselves, and a little more knowledge lights our way.**
 
-Jack Dempsey
+Yoda
