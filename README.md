@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your relationship with yourself sets the tone for every other relationship you have.**
+**The reputation of a thousand years may be determined by the conduct of one hour.**
 
-Anonymous
+Japanese Proverb
