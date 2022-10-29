@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Decide what matters most to you and do it.**
+**Life works for my benefit.**
 
 Anonymous
