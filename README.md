@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Choose kindness and laugh often.**
+**There's nothing that you can do that can't be done.**
 
-Anonymous
+The Beatles
