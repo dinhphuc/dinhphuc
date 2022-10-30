@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't miss out on something that could be great just because it could also be difficult.**
+**Set a goal that makes you want to jump out of bed in the morning.**
 
 Anonymous
