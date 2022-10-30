@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I am happy because I'm grateful. I choose to be grateful. That gratitude allows me to be happy.**
+**Confidence is the ability to feel beautiful, without needing someone to tell you.**
 
-Will Arnett
+Anonymous
