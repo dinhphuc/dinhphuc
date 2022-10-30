@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter where you are on your journey, that's exactly where you need to be.**
+**When obstacles arise, you change your direction to reach your goal, you do not change your decision to get there.**
 
-Oprah Winfrey
+Zig Ziglar
