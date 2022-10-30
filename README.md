@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If it doesn't challenge you, it won't change you.**
+**The starting point of all achievement is desire.**
 
-Anonymous
+Napoleon Hill
