@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are so many beautiful reasons to be happy.**
+**Our problems don't stem from our ignorance so much as our disobedience of that which we know to be right.**
 
-Anonymous
+Stephen Covey
