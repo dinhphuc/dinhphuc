@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only those who risk going too far, can possibly find out how far one can go.**
+**No act of kindness, no matter how small, is ever wasted.**
 
-T.S. Elliot
+Aesop
