@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever the mind can conceive and believe, it can achieve.**
+**Good judgment comes from experience, and a lot of that comes from bad judgment.**
 
-Napoleon Hill
+Will Rogers
