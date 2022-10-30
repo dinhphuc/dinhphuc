@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever the mind can conceive and believe, it can achieve.**
+**The sweat. The time. The devotion. It pays off.**
 
-Napoleon Hill
+Anonymous
