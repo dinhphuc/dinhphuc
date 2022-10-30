@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are so much more than what you are going through.**
+**You're going to go through tough times - that's life. But I say, 'Nothing happens to you, it happens for you.' See the positive in negative events.**
 
-John Tew
+Joel Osteen
