@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Wherever you go, go with all your heart.**
+**Don't miss out on something that could be great just because it could also be difficult.**
 
-Confucius
+Anonymous
