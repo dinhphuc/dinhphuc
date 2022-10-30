@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is when what you think, what you say, and what you do are in harmony.**
+**If no mistake have you made, yet losing you are... a different game you should play.**
 
-Mahatma Gandhi
+Yoda
