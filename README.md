@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest.**
+**Happiness is when what you think, what you say, and what you do are in harmony.**
 
-Sri Chinmoy
+Mahatma Gandhi
