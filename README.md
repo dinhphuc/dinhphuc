@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't think about what might go wrong. Think about what might go right.**
+**Good, better, best. Never let it rest. Until your good is better and your better is best.**
 
-Anonymous
+Tim Duncan
