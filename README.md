@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our problems don't stem from our ignorance so much as our disobedience of that which we know to be right.**
+**The difference between ordinary and extraordinary is that little extra.**
 
-Stephen Covey
+Jimmy Johnson
