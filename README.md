@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You have purpose.**
+**Being deeply loved by someone gives you strength, while loving someone deeply gives you courage.**
 
-Anonymous
+Lao-Tzu
