@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You're going to go through tough times - that's life. But I say, 'Nothing happens to you, it happens for you.' See the positive in negative events.**
+**Winning isn't everything, but wanting to win is.**
 
-Joel Osteen
+Vince Lombardi
