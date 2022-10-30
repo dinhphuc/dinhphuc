@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When we help ourselves, we find moments of happiness. When we help others, we find lasting fulfillment.**
+**Many of the truths that we cling to depend on our point of view.**
 
-Simon Sinek
+Yoda
