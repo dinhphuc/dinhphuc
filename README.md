@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The sun itself is weak when it first rises, and gathers strength and courage as the day gets on.**
+**Only those who risk going too far, can possibly find out how far one can go.**
 
-Charles Dickens
+T.S. Elliot
