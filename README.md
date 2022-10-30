@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The sweat. The time. The devotion. It pays off.**
+**A warm smile is the universal language of kindness.**
 
-Anonymous
+William Arthur Ward
