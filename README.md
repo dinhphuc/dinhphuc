@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Many of the truths that we cling to depend on our point of view.**
+**You have purpose.**
 
-Yoda
+Anonymous
