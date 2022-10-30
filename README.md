@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between ordinary and extraordinary is that little extra.**
+**Surround yourself with people who get you.**
 
-Jimmy Johnson
+Anonymous
