@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Set a goal that makes you want to jump out of bed in the morning.**
+**No matter where you are on your journey, that's exactly where you need to be.**
 
-Anonymous
+Oprah Winfrey
