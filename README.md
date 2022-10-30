@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A teacher is better than two books.**
+**Don't think about what might go wrong. Think about what might go right.**
 
-German Proverb
+Anonymous
