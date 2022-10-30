@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Winning isn't everything, but wanting to win is.**
+**I knew that if I failed I wouldn't regret that. But I would regret not trying.**
 
-Vince Lombardi
+Jeff Bezos
