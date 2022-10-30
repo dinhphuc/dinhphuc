@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Being deeply loved by someone gives you strength, while loving someone deeply gives you courage.**
+**You are so much more than what you are going through.**
 
-Lao-Tzu
+John Tew
