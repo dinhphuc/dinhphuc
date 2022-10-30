@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No act of kindness, no matter how small, is ever wasted.**
+**Wherever you go, go with all your heart.**
 
-Aesop
+Confucius
