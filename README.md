@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A warm smile is the universal language of kindness.**
+**If it doesn't challenge you, it won't change you.**
 
-William Arthur Ward
+Anonymous
