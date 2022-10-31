@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.**
+**Believe in yourself, take on your challenges, dig deep within yourself to conquer fears. Never let anyone bring you down. You got to keep going.**
 
-Samuel Beckett
+Chantal Sutherland
