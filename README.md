@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You have to fight through some bad days to earn the best days of your life.**
+**I have found that if you love life, life will love you back.**
 
-Anonymous
+Arthur Rubinstein
