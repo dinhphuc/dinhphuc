@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life isn't about getting and having, it's about giving and being.**
+**You will never always be motivated. You have to learn to be disciplined.**
 
-Kevin Kruse
+Anonymous
