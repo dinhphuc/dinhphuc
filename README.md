@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I have found that if you love life, life will love you back.**
+**Hardships often prepare ordinary people for an extraordinary destiny.**
 
-Arthur Rubinstein
+C.S. Lewis
