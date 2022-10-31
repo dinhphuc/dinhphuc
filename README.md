@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's hard to beat a person who never gives up.**
+**Happiness is a journey ... not a destination.**
 
-Anonymous
+Ben Sweetland
