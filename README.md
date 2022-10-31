@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is not something ready made. It comes from your own actions.**
+**Working hard for something we don't care about is called stress; working hard for somthing we love is called passion.**
 
-Dalai Lama
+Simon Sinek
