@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Set a goal so big that you can't achieve it until you grow into the person who can.**
+**Life isn't about waiting for the storm to pass, it's about learning how to dance in the rain.**
 
-Anonymous
+Vivian Greene
