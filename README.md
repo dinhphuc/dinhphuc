@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hardships often prepare ordinary people for an extraordinary destiny.**
+**Set a goal so big that you can't achieve it until you grow into the person who can.**
 
-C.S. Lewis
+Anonymous
