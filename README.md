@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can either spend your time or invest your time.**
+**Life is short, and it is up to you to make it sweet.**
 
-Chip Kelly
+Sarah Louise Delany
