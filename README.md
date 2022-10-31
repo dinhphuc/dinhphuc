@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Starting today, I need to forget what's gone. Appreciate what still remains and look forward to what's coming next.**
+**It only takes one person to make you happy and change your life: YOU.**
 
-Anonymous
+Charles Orlando
