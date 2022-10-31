@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life isn't about waiting for the storm to pass, it's about learning how to dance in the rain.**
+**Life isn't about getting and having, it's about giving and being.**
 
-Vivian Greene
+Kevin Kruse
