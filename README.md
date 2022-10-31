@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Courage is the birthplace of confidence.**
+**May you live all the days of your life.**
 
-Debbie Millman
+Jonathan Swift
