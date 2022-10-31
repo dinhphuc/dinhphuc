@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It only takes one person to make you happy and change your life: YOU.**
+**You don't find will power, you create it.**
 
-Charles Orlando
+Anonymous
