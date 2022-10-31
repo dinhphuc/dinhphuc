@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't find will power, you create it.**
+**Age is whatever you think it is. You are as old as you think you are.**
 
-Anonymous
+Muhammad Ali
