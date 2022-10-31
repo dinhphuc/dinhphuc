@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you get tired, learn to rest, not quit.**
+**Happiness is not something ready made. It comes from your own actions.**
 
-Anonymous
+Dalai Lama
