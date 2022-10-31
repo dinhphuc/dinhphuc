@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Age is whatever you think it is. You are as old as you think you are.**
+**Wisdom is knowing when you can't be wise.**
 
 Muhammad Ali
