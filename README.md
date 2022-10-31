@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Wisdom is knowing when you can't be wise.**
+**Our greatest glory is not in never falling, but in rising every time we fall.**
 
-Muhammad Ali
+Confucius
