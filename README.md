@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is really simple, but we insist on making it complicated.**
+**Courage is the birthplace of confidence.**
 
-Confucius
+Debbie Millman
