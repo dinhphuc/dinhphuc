@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't dream of winning, train for it!**
+**I don't make excuses. I make results.**
 
-Mo Farah
+Anonymous
