@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you choose to focus on expands and grows.**
+**Life is really simple, but we insist on making it complicated.**
 
-Anonymous
+Confucius
