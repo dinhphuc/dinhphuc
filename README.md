@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will never always be motivated. You have to learn to be disciplined.**
+**Starting today, I need to forget what's gone. Appreciate what still remains and look forward to what's coming next.**
 
 Anonymous
