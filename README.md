@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile at strangers and you just might change a life.**
+**It's hard to beat a person who never gives up.**
 
-Steve Maraboli
+Anonymous
