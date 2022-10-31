@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is a journey ... not a destination.**
+**If you get tired, learn to rest, not quit.**
 
-Ben Sweetland
+Anonymous
