@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It only takes one person to make you happy and change your life: YOU.**
+**Beat the drum inside the house to spare the neighbors.**
 
-Charles Orlando
+Chinese Proverb
