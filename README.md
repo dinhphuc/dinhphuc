@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest glory is not in never falling, but in rising every time we fall.**
+**Don't dream of winning, train for it!**
 
-Confucius
+Mo Farah
