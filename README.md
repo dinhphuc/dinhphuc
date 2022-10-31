@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Obstacles don't have to stop you. If you run into a wall, don't turn around and give up. Figure out how to climb it, go through it, or work around it.**
+**Smile at strangers and you just might change a life.**
 
-Michael Jordan
+Steve Maraboli
