@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is short, and it is up to you to make it sweet.**
+**What you choose to focus on expands and grows.**
 
-Sarah Louise Delany
+Anonymous
