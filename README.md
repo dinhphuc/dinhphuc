@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I never dreamed about success. I worked for it.**
+**Live for yourself and don't ever stop.**
 
-Estee Lauder
+John Tew
