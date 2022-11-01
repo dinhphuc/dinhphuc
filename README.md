@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing is impossible, the word itself says "I'm possible"!**
+**I don't count my sit-ups; I only start counting when it starts hurting because they're the only ones that count.**
 
-Audrey Hepburn
+Muhammad Ali
