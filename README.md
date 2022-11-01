@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Relationships are based on four principles: respect, understanding, acceptance and appreciation.**
+**I never dreamed about success. I worked for it.**
 
-Mahatma Gandhi
+Estee Lauder
