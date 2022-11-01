@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Luck is what happens when preparation meets opportunity.**
+**When we point to obstacles we inhibit progress. When we offer solutions we advance.**
 
-Seneca
+Simon Sinek
