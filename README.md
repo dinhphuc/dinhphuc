@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The will to win means nothing without the will to prepare.**
+**Smile at strangers and you just might change a life.**
 
-Juma Ikangaa
+Steve Maraboli
