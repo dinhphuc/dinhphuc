@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you see in yourself is what you see in the world.**
+**You walk through life much easier with a smile on your face.**
 
-Afghan Proverb
+Sweet Paul
