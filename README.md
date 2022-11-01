@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All souls are lost until they are found.**
+**If one dream should fall and break into a thousand pieces, never be afraid to pick one of those pieces up and begin again.**
 
-Kate McGahan
+Flavia Weedn
