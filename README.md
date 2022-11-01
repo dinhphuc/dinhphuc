@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love is not running away or giving up, it is standing and fighting for every moment.**
+**The will to win means nothing without the will to prepare.**
 
-M.F. Moonzajer
+Juma Ikangaa
