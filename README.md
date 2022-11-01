@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Practice 'gratitude' each day and your relationship will last forever.**
+**Train yourself to let go of everything you fear to lose.**
 
-Anonymous
+Yoda
