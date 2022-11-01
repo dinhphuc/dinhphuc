@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Before you score, you first must have a goal.**
+**Luck is what happens when preparation meets opportunity.**
 
-Greek Proverb
+Seneca
