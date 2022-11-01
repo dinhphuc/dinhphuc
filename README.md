@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It does not matter how slowly you go as long as you do not stop.**
+**You cannot shake hands with a clenched fist.**
 
-Confucius
+Indira Gandhi
