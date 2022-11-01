@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You walk through life much easier with a smile on your face.**
+**Before you score, you first must have a goal.**
 
-Sweet Paul
+Greek Proverb
