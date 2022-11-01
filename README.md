@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I hated every minute of training, but I said, 'Don't quit. Suffer now and live the rest of your life as a champion'.**
+**All souls are lost until they are found.**
 
-Muhammad Ali
+Kate McGahan
