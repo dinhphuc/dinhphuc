@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be helpful. When you see a person without a smile, give them yours.**
+**It does not matter how slowly you go as long as you do not stop.**
 
-Zig Ziglar
+Confucius
