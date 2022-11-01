@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live for yourself and don't ever stop.**
+**Be helpful. When you see a person without a smile, give them yours.**
 
-John Tew
+Zig Ziglar
