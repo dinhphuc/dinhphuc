@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Great minds discuss ideas; average minds discuss events; small minds discuss people.**
+**Today, give a stranger one of your smiles. It might be the only sunshine they see all day.**
 
-Eleanor Roosevelt
+H. Jackson Brown Jr
