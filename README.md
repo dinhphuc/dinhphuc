@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A challenge lifelong it is, not to bend fear into anger.**
+**Life isn't about getting and having, it's about giving and being.**
 
-Yoda
+Kevin Kruse
