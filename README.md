@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything that is done in this world is done by hope.**
+**Practice 'gratitude' each day and your relationship will last forever.**
 
-Martin Luther
+Anonymous
