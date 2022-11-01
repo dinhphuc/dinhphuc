@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile at strangers and you just might change a life.**
+**Nothing is impossible, the word itself says "I'm possible"!**
 
-Steve Maraboli
+Audrey Hepburn
