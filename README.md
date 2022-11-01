@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If opportunity doesn't knock, build a door.**
+**I hated every minute of training, but I said, 'Don't quit. Suffer now and live the rest of your life as a champion'.**
 
-Milton Berle
+Muhammad Ali
