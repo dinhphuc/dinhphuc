@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest glory in living lies not in never falling, but in rising every time we fall.**
+**Set a goal so big that you can't achieve it until you grow into the person who can.**
 
-Nelson Mandela
+Anonymous
