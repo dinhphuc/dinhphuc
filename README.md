@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Train yourself to let go of everything you fear to lose.**
+**Relationships are based on four principles: respect, understanding, acceptance and appreciation.**
 
-Yoda
+Mahatma Gandhi
