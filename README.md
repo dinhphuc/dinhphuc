@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Today, give a stranger one of your smiles. It might be the only sunshine they see all day.**
+**One small positive thought in the morning can change your whole day.**
 
-H. Jackson Brown Jr
+Anonymous
