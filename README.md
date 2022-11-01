@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When we point to obstacles we inhibit progress. When we offer solutions we advance.**
+**Love is not running away or giving up, it is standing and fighting for every moment.**
 
-Simon Sinek
+M.F. Moonzajer
