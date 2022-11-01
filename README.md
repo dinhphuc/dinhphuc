@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Surround yourself with only people who are going to lift you higher.**
+**If opportunity doesn't knock, build a door.**
 
-Oprah
+Milton Berle
