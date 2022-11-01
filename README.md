@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Set a goal so big that you can't achieve it until you grow into the person who can.**
+**What you see in yourself is what you see in the world.**
 
-Anonymous
+Afghan Proverb
