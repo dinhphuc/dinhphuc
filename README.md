@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A beautiful thing is never perfect.**
+**Never underestimate the power you have to take your life in a new direction.**
 
-Egyptian Proverb
+Germany Kent
