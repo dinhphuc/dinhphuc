@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Learn to value yourself, which means: fight for your happiness.**
+**When times are good, be grateful, and when times are tough, be graceful.**
 
-Ayn Rand
+Dustin Poirier
