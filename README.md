@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Tension is who you think you should be. Relaxation is who you are.**
+**Being entirely honest with oneself is a good exercise.**
 
-Jim Afremow
+Sigmund Freud
