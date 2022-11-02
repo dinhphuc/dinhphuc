@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're offered a seat on a rocket ship, don't ask what seat! Just get on.**
+**You've got to be willing to lose everything to gain yourself.**
 
-Sheryl Sandberg
+Iyanla Vanzant
