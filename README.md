@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You have a choice. You can throw in the towel, or you can use it to wipe the sweat off of your face.**
+**Happiness can be found, even in the darkest of times, if one only remembers to turn on the light.**
 
-Gatorade
+Anonymous
