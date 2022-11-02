@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life isn't about waiting for the storm to pass, it's about learning how to dance in the rain.**
+**A beautiful thing is never perfect.**
 
-Vivian Greene
+Egyptian Proverb
