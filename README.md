@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You're off to great places, today is your day. Your mountain is waiting, so get on your way.**
+**If you can't stop thinking about it, don't stop working for it.**
 
-Dr. Seuss
+Anonymous
