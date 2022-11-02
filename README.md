@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is far better to be alone, than to be in bad company.**
+**Surround yourself with only people who are going to lift you higher.**
 
-George Washington
+Oprah
