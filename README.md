@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You've got to be willing to lose everything to gain yourself.**
+**You're off to great places, today is your day. Your mountain is waiting, so get on your way.**
 
-Iyanla Vanzant
+Dr. Seuss
