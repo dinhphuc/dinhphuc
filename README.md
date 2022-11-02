@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you think of yourself is much more important than what people think of you.**
+**Go confidently in the direction of your dreams! Live the life you've imagined.**
 
-Anonymous
+Henry David Thoreau
