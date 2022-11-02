@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be afraid to give up the good to go for the great.**
+**You have a choice. You can throw in the towel, or you can use it to wipe the sweat off of your face.**
 
-John D. Rockefeller
+Gatorade
