@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you dare to dream, dare to follow that dream; dare to suffer through the pain, sacrifice, self-doubts and friction from the world.**
+**Learn to value yourself, which means: fight for your happiness.**
 
-Laura Schlessinger
+Ayn Rand
