@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness can be found, even in the darkest of times, if one only remembers to turn on the light.**
+**Tension is who you think you should be. Relaxation is who you are.**
 
-Anonymous
+Jim Afremow
