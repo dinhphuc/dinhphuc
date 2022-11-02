@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One small positive thought in the morning can change your whole day.**
+**Life isn't about waiting for the storm to pass, it's about learning how to dance in the rain.**
 
-Anonymous
+Vivian Greene
