@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never underestimate the power you have to take your life in a new direction.**
+**Your positive action combined with positive thinking results in success.**
 
-Germany Kent
+Anonymous
