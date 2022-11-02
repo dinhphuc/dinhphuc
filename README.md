@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Shared joy is a double joy; shared sorrow is half a sorrow.**
+**If you're offered a seat on a rocket ship, don't ask what seat! Just get on.**
 
-Swedish Proverb
+Sheryl Sandberg
