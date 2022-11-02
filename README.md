@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can't stop thinking about it, don't stop working for it.**
+**Life without love is like a tree without blossoms or fruit.**
 
-Anonymous
+Khalil Gibran
