@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Through challenge and difficulty, we learn to see life differently than before.**
+**Be who you are and say what you feel because those who mind don't matter and those who matter don't mind.**
 
-Auliq-Ice
+Dr. Seuss
