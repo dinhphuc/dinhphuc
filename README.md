@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life without love is like a tree without blossoms or fruit.**
+**Through challenge and difficulty, we learn to see life differently than before.**
 
-Khalil Gibran
+Auliq-Ice
