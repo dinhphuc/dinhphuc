@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Continuous effort - not strength or intelligence - is the key to unlocking our potential.**
+**Remember that not getting what you want is sometimes a wonderful stroke of luck.**
 
-Liane Cardes
+Dalai Lama
