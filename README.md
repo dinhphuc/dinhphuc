@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember that not getting what you want is sometimes a wonderful stroke of luck.**
+**Be helpful. When you see a person without a smile, give them yours.**
 
-Dalai Lama
+Zig Ziglar
