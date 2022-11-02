@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If opportunity doesn't knock, build a door.**
+**Shared joy is a double joy; shared sorrow is half a sorrow.**
 
-Milton Berle
+Swedish Proverb
