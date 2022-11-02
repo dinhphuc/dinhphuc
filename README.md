@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be helpful. When you see a person without a smile, give them yours.**
+**It is far better to be alone, than to be in bad company.**
 
-Zig Ziglar
+George Washington
