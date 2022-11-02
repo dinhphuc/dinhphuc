@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When times are good, be grateful, and when times are tough, be graceful.**
+**If opportunity doesn't knock, build a door.**
 
-Dustin Poirier
+Milton Berle
