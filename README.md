@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't criticize, condemn or complain.**
+**Don't be afraid to give up the good to go for the great.**
 
-Dale Carnegie
+John D. Rockefeller
