@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you know what you want, and want it bad enough, you'll find a way to get it.**
+**Don't downgrade your dream just to fit your reality. Upgrade your conviction to match your destiny.**
 
-Jim Rohn
+John Assaraf
