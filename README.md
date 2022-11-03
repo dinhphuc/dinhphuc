@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All you need is love.**
+**Positive anything is better than negative nothing.**
 
-The Beatles
+Elbert Hubbard
