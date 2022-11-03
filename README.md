@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't downgrade your dream just to fit your reality. Upgrade your conviction to match your destiny.**
+**Of all the things you wear, your expression is the most important.**
 
-John Assaraf
+Janet Lane
