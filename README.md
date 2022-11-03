@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strive not to be a success, but rather to be of value.**
+**The question isn't who is going to let me; it's who is going to stop me.**
 
-Albert Einstein
+Ayn Rand
