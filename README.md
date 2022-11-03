@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live your life for you.**
+**Spend your life with people who make you smile, laugh, and feel loved.**
 
-Anonymous
+Roy T. Bennett
