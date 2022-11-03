@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Blessings sometimes show up in unrecognizable disguises.**
+**Every next level of your life will demand a different version of you.**
 
-Janette Oke
+Anonymous
