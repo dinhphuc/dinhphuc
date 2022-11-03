@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe in yourself, take on your challenges, dig deep within yourself to conquer fears. Never let anyone bring you down. You got to keep going.**
+**Winning is fun, but those moments that you can touch someone's life in a very positive way are better.**
 
-Chantal Sutherland
+Tim Howard
