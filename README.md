@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Being entirely honest with oneself is a good exercise.**
+**No matter how tough it may get, never give up on yourself or you will look back and regret it.**
 
-Sigmund Freud
+Anonymous
