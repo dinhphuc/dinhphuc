@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Rock bottom became the solid foundation on which I rebuilt my life.**
+**There is no shame in not knowing; the shame lies in not finding out.**
 
-J.K. Rowling
+Russian Proverb
