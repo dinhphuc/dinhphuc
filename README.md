@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you look the right way, you can see that the whole world is a garden.**
+**When you know what you want, and want it bad enough, you'll find a way to get it.**
 
-Frances Hodgson Burnett
+Jim Rohn
