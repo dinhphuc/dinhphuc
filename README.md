@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how tough it may get, never give up on yourself or you will look back and regret it.**
+**I alone cannot change the world, but I can cast a stone across the water to create many ripples.**
 
-Anonymous
+Mother Teresa
