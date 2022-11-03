@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every next level of your life will demand a different version of you.**
+**If you look the right way, you can see that the whole world is a garden.**
 
-Anonymous
+Frances Hodgson Burnett
