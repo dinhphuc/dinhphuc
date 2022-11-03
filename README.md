@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Winning is fun, but those moments that you can touch someone's life in a very positive way are better.**
+**You cannot change the direction of the wind - only alter the angle of your sails.**
 
-Tim Howard
+Anonymous
