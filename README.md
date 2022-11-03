@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't criticize, condemn or complain.**
+**I'm not telling you it is going to be easy, I'm telling you it's going to be worth it.**
 
-Dale Carnegie
+Art Williams
