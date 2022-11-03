@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Positive anything is better than negative nothing.**
+**Strive not to be a success, but rather to be of value.**
 
-Elbert Hubbard
+Albert Einstein
