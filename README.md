@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no shame in not knowing; the shame lies in not finding out.**
+**Blessed are they who see beautiful things in humble places where other people see nothing.**
 
-Russian Proverb
+Camille Pissaro
