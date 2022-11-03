@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Blessed are they who see beautiful things in humble places where other people see nothing.**
+**Control, control, you must learn control!**
 
-Camille Pissaro
+Yoda
