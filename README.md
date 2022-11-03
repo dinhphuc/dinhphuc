@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be strong now, because things will get better. It might be stormy now, but it can't rain forever.**
+**You cannot afford to live in potential for the rest of your life; at some point, you have to unleash the potential and make your move.**
 
-Anonymous
+Eric Thomas
