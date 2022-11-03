@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Of all the things you wear, your expression is the most important.**
+**People who make you feel better about yourself when you're sad are so important.**
 
-Janet Lane
+Anonymous
