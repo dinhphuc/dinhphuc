@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm not telling you it is going to be easy, I'm telling you it's going to be worth it.**
+**Push yourself because no one else is going to do it for you.**
 
-Art Williams
+Anonymous
