@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The question isn't who is going to let me; it's who is going to stop me.**
+**Rock bottom became the solid foundation on which I rebuilt my life.**
 
-Ayn Rand
+J.K. Rowling
