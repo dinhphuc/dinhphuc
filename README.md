@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are only two mistakes one can make along the road to truth; not going all the way, and not starting.**
+**If you look the right way, you can see that the whole world is a garden.**
 
-Buddha
+Frances Hodgson Burnett
