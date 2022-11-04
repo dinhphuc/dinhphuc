@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once we accept our limits, we go beyond them.**
+**Do more of what lights you up and makes you feel alive. The world needs your spark.**
 
-Albert Einstein
+Anonymous
