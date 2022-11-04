@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe with all of your heart that you will do what you were made to do.**
+**Life is never fair, and perhaps it is a good thing for most of us that it is not.**
 
-Orison Swett Marden
+Oscar Wilde
