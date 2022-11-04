@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Get going ... walk if you have to, but finish the damned race.**
+**Life is trying things to see if they work.**
 
-Ron Hill
+Ray Bradbury
