@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Control, control, you must learn control!**
+**Through challenge and difficulty, we learn to see life differently than before.**
 
-Yoda
+Auliq-Ice
