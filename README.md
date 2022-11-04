@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once you choose hope, anything's possible.**
+**Difficulty is what wakes up the genius.**
 
-Christopher Reeve
+Nassim Nicholas Taleb
