@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever happens, just keep smiling and lose yourself in love.**
+**Great minds discuss ideas; average minds discuss events; small minds discuss people.**
 
-Rumi
+Eleanor Roosevelt
