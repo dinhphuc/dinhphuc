@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to go fast, go alone. If you want to go far, go together.**
+**We love life, not because we are used to living but because we are used to loving.**
 
-African Proverb
+Friedrich Nietzsche
