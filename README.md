@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good people are like candles; they burn themselves up to give others light.**
+**Believe with all of your heart that you will do what you were made to do.**
 
-Anonymous
+Orison Swett Marden
