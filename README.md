@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Words may inspire but only action creates change.**
+**Whatever happens, just keep smiling and lose yourself in love.**
 
-Simon Sinek
+Rumi
