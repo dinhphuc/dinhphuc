@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I think that the good and the great are only separated by the willingness to sacrifice.**
+**You can have everything you want in life if you just help enough people get what they want in life.**
 
-Kareem Abdul-Jabbar
+Zig Ziglar
