@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you love what you have, you have everything you need.**
+**Be the change you are trying to create.**
 
-Anonymous
+Mahatma Gandhi
