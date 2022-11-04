@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you think of yourself is much more important than what people think of you.**
+**Once you choose hope, anything's possible.**
 
-Anonymous
+Christopher Reeve
