@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can have everything you want in life if you just help enough people get what they want in life.**
+**It's a good day to be happy.**
 
-Zig Ziglar
+Anonymous
