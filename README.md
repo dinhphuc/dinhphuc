@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When will you realize, the more you take, the less you have.**
+**The harder the battle. The sweeter the victory.**
 
-Master Oogway
+Les Brown
