@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We either make ourselves miserable or we make ourselves strong. The amount of work is the same.**
+**When you want to talk about who made me, you talk to me. Who made me is ME.**
 
-Carlos Costaneda
+Muhammad Ali
