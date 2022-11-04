@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Difficulty is what wakes up the genius.**
+**Good people are like candles; they burn themselves up to give others light.**
 
-Nassim Nicholas Taleb
+Anonymous
