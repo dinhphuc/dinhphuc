@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be the change you are trying to create.**
+**Get going ... walk if you have to, but finish the damned race.**
 
-Mahatma Gandhi
+Ron Hill
