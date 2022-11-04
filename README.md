@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every morning you have a new opportunity to become a happier version of yourself.**
+**If you want to go fast, go alone. If you want to go far, go together.**
 
-Anonymous
+African Proverb
