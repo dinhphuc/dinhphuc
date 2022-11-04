@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Through challenge and difficulty, we learn to see life differently than before.**
+**Words may inspire but only action creates change.**
 
-Auliq-Ice
+Simon Sinek
