@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do more of what lights you up and makes you feel alive. The world needs your spark.**
+**Working hard for something we don't care about is called stress; working hard for somthing we love is called passion.**
 
-Anonymous
+Simon Sinek
