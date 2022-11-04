@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Working hard for something we don't care about is called stress; working hard for somthing we love is called passion.**
+**A house is made of bricks and beams. A home is made of hopes and dreams.**
 
-Simon Sinek
+Anonymous
