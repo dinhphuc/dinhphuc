@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can alter mood by running.**
+**A successful man is one who can lay a firm foundation with the bricks others have thrown at him.**
 
-Tumpal Sihombing
+David Brinkley
