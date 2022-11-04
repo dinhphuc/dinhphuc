@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A house is made of bricks and beams. A home is made of hopes and dreams.**
+**Every morning you have a new opportunity to become a happier version of yourself.**
 
 Anonymous
