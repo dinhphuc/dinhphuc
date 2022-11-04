@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only person who can pull me down is myself, and I'm not going to let myself pull me down anymore.**
+**We either make ourselves miserable or we make ourselves strong. The amount of work is the same.**
 
-C. JoyBell C
+Carlos Costaneda
