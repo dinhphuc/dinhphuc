@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Courage is one step ahead of fear.**
+**I think that the good and the great are only separated by the willingness to sacrifice.**
 
-Coleman Young
+Kareem Abdul-Jabbar
