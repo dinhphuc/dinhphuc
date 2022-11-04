@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The harder the battle. The sweeter the victory.**
+**When you love what you have, you have everything you need.**
 
-Les Brown
+Anonymous
