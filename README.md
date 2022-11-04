@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A successful man is one who can lay a firm foundation with the bricks others have thrown at him.**
+**The only person who can pull me down is myself, and I'm not going to let myself pull me down anymore.**
 
-David Brinkley
+C. JoyBell C
