@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Get going ... walk if you have to, but finish the damned race.**
+**Courage is one step ahead of fear.**
 
-Ron Hill
+Coleman Young
