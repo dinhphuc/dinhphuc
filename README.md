@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Very little is needed to make a happy life; it is all within yourself, in your way of thinking.**
+**In life, many things do not go according to plan. If you fall, get back up.**
 
-Marcus Aurelius
+Anonymous
