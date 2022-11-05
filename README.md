@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't blame gravity for falling in love.**
+**To be the best, you must be able to handle the worst.**
 
-Albert Einstein
+Wilson Kanadi
