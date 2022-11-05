@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A successful man is one who can lay a firm foundation with the bricks others have thrown at him.**
+**You don't have to control your thoughts; you just have to stop letting them control you.**
 
-David Brinkley
+Dan Millman
