@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence is something you create in yourself by believing in who you are.**
+**There's never enough time to do everything, but there's always enough time to do the most important thing.**
 
-Anonymous
+Dean Bokhari
