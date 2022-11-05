@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When it's pouring rain and you're bowling along through the wet, there's satisfaction in knowing you're out there and the others aren't.**
+**Why worry? If you've done the very best you can, worrying won't make it any better.**
 
-Peter Snell
+Walt Disney
