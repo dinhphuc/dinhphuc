@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Many of the truths that we cling to depend on our point of view.**
+**A successful man is one who can lay a firm foundation with the bricks others have thrown at him.**
 
-Yoda
+David Brinkley
