@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You may encounter many defeats, but you must not be defeated.**
+**Where there is love there is life.**
 
-Maya Angelou
+Mahatma Gandhi
