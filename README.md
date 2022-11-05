@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you love what you have, you have everything you need.**
+**Be helpful. When you see a person without a smile, give them yours.**
 
-Anonymous
+Zig Ziglar
