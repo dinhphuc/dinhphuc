@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I am thankful for all those difficult people in my life. They have shown me exactly who I do not want to be.**
+**Many of the truths that we cling to depend on our point of view.**
 
-Anonymous
+Yoda
