@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It ain't as bad as you think. It will look better in the morning.**
+**There's never enough time to do everything, but there's always enough time to do the most important thing.**
 
-Colin Powell
+Dean Bokhari
