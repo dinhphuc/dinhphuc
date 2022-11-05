@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**With confidence you have won before you have started.**
+**Don't criticize, condemn or complain.**
 
-Marcus Garvey
+Dale Carnegie
