@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember the entrance to the sanctuary is inside you.**
+**Yesterday is not ours to recover, but tomorrow is ours to win or lose.**
 
-Rumi
+Lyndon B. Johnson
