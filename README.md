@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't criticize, condemn or complain.**
+**Shared joy is a double joy; shared sorrow is half a sorrow.**
 
-Dale Carnegie
+Swedish Proverb
