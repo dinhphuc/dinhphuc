@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To be the best, you must be able to handle the worst.**
+**When you love what you have, you have everything you need.**
 
-Wilson Kanadi
+Anonymous
