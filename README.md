@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Yesterday is not ours to recover, but tomorrow is ours to win or lose.**
+**You can't blame gravity for falling in love.**
 
-Lyndon B. Johnson
+Albert Einstein
