@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Starting today, I need to forget what's gone. Appreciate what still remains and look forward to what's coming next.**
+**Better than a thousand days of diligent study is one day with a great teacher.**
 
-Anonymous
+Jim Afremow
