@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Where there is love there is life.**
+**Confidence is something you create in yourself by believing in who you are.**
 
-Mahatma Gandhi
+Anonymous
