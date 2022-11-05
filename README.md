@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do not blame the world. Find a solution.**
+**What you choose to focus on expands and grows.**
 
-Sri Chinmoy
+Anonymous
