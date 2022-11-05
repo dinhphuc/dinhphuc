@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't have to control your thoughts; you just have to stop letting them control you.**
+**Don't criticize, condemn or complain.**
 
-Dan Millman
+Dale Carnegie
