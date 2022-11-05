@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you choose to focus on expands and grows.**
+**Remember the entrance to the sanctuary is inside you.**
 
-Anonymous
+Rumi
