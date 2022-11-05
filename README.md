@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A dream does not become reality through magic; it takes sweat, determination and hard work.**
+**Good judgment comes from experience, and a lot of that comes from bad judgment.**
 
-Colin Powell
+Will Rogers
