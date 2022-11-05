@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's a good day to be happy.**
+**A dream does not become reality through magic; it takes sweat, determination and hard work.**
 
-Anonymous
+Colin Powell
