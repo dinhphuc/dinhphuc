@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't criticize, condemn or complain.**
+**Practice 'gratitude' each day and your relationship will last forever.**
 
-Dale Carnegie
+Anonymous
