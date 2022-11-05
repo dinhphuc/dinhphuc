@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you decide to do, make sure it makes you happy.**
+**It ain't as bad as you think. It will look better in the morning.**
 
-Anonymous
+Colin Powell
