@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In life, many things do not go according to plan. If you fall, get back up.**
+**I am thankful for all those difficult people in my life. They have shown me exactly who I do not want to be.**
 
 Anonymous
