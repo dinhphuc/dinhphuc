@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Practice 'gratitude' each day and your relationship will last forever.**
+**There are two days in the year that we can not do anything, yesterday and tomorrow.**
 
-Anonymous
+Mahatma Gandhi
