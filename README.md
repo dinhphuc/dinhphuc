@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There's never enough time to do everything, but there's always enough time to do the most important thing.**
+**Whatever you decide to do, make sure it makes you happy.**
 
-Dean Bokhari
+Anonymous
