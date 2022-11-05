@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Positive anything is better than negative nothing.**
+**You may encounter many defeats, but you must not be defeated.**
 
-Elbert Hubbard
+Maya Angelou
