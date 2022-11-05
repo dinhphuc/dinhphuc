@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Better than a thousand days of diligent study is one day with a great teacher.**
+**Positive anything is better than negative nothing.**
 
-Jim Afremow
+Elbert Hubbard
