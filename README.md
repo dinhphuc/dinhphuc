@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can alter mood by running.**
+**In every success story, you will find someone who made a courageous decision.**
 
-Tumpal Sihombing
+Peter Drucker
