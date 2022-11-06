@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Instead of worrying about what you cannot control, shift your energy to what you can create.**
+**Life is made of ever so many partings welded together.**
 
-Roy T. Bennett
+Charles Dickens
