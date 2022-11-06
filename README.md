@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is only one corner of the universe you can be certain of improving, and that's your own self.**
+**The miracle isn't that I finished. The miracle is that I had the courage to start.**
 
-Aldous Huxley
+John Bingham
