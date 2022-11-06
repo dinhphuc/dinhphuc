@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are loved.**
+**Go confidently in the direction of your dreams! Live the life you've imagined.**
 
-Anonymous
+Henry David Thoreau
