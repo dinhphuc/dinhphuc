@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once we accept our limits, we go beyond them.**
+**When we help ourselves, we find moments of happiness. When we help others, we find lasting fulfillment.**
 
-Albert Einstein
+Simon Sinek
