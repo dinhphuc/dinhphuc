@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Make today so awesome yesterday gets jealous.**
+**Be patient, good things are coming your way.**
 
 Anonymous
