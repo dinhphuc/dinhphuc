@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You have to fight through some bad days to earn the best days of your life.**
+**We all make mistakes, but the winner knows that success comes from perseverance: trying, failing, learning, and doing it again until he succeeds.**
 
-Anonymous
+Judy Ford
