@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are willing to do more than you are paid to do, eventually you will be paid to do more than you do.**
+**Life isn't about getting and having, it's about giving and being.**
 
-Anonymous
+Kevin Kruse
