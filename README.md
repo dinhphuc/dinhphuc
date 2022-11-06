@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is not something ready made. It comes from your own actions.**
+**An inch of gold can't buy an inch of time.**
 
-Dalai Lama
+Chinese Proverb
