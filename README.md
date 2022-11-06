@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Go confidently in the direction of your dreams! Live the life you've imagined.**
+**Hustle until your haters ask if you are hiring.**
 
-Henry David Thoreau
+Anonymous
