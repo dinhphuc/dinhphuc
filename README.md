@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A runner must run with dreams in his heart.**
+**Nurture your mind with great thoughts, for you will never go any higher than you think.**
 
-Emil Zatopek
+Benjamin Disraeli
