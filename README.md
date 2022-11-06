@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**An inch of gold can't buy an inch of time.**
+**Happiness is letting go of what you think your life is supposed to look like and enjoying it for everything that it is.**
 
-Chinese Proverb
+Mandy Hale
