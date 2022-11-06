@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I think that the good and the great are only separated by the willingness to sacrifice.**
+**Instead of worrying about what you cannot control, shift your energy to what you can create.**
 
-Kareem Abdul-Jabbar
+Roy T. Bennett
