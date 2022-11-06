@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Where there is love there is life.**
+**I think that the good and the great are only separated by the willingness to sacrifice.**
 
-Mahatma Gandhi
+Kareem Abdul-Jabbar
