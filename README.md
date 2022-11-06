@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The miracle isn't that I finished. The miracle is that I had the courage to start.**
+**A runner must run with dreams in his heart.**
 
-John Bingham
+Emil Zatopek
