@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of getting ahead is getting started.**
+**When we point to obstacles we inhibit progress. When we offer solutions we advance.**
 
-Mark Twain
+Simon Sinek
