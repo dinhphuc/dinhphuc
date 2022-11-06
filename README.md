@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything you need to accomplish your goals is already in you.**
+**Blessings sometimes show up in unrecognizable disguises.**
 
-Anonymous
+Janette Oke
