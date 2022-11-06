@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When we help ourselves, we find moments of happiness. When we help others, we find lasting fulfillment.**
+**Difficult roads always lead to beautiful destinations.**
 
-Simon Sinek
+Zig Ziglar
