@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure will never overtake me if my determination to succeed is strong enough.**
+**You are loved.**
 
-Og Mandino
+Anonymous
