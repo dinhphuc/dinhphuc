@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life isn't about getting and having, it's about giving and being.**
+**You have to fight through some bad days to earn the best days of your life.**
 
-Kevin Kruse
+Anonymous
