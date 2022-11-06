@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be patient, good things are coming your way.**
+**The secret of getting ahead is getting started.**
 
-Anonymous
+Mark Twain
