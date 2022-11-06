@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When we point to obstacles we inhibit progress. When we offer solutions we advance.**
+**Where there is love there is life.**
 
-Simon Sinek
+Mahatma Gandhi
