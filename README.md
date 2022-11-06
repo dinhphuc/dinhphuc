@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is made of ever so many partings welded together.**
+**Do not blame the world. Find a solution.**
 
-Charles Dickens
+Sri Chinmoy
