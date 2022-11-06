@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Why worry? If you've done the very best you can, worrying won't make it any better.**
+**Think well of all, be patient with all, and try to find the good in all.**
 
-Walt Disney
+Muhammad Ali
