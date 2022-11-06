@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is letting go of what you think your life is supposed to look like and enjoying it for everything that it is.**
+**The marathon can humble you.**
 
-Mandy Hale
+Bill Rodgers
