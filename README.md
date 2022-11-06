@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hustle until your haters ask if you are hiring.**
+**Make today so awesome yesterday gets jealous.**
 
 Anonymous
