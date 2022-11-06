@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Think well of all, be patient with all, and try to find the good in all.**
+**Everything you need to accomplish your goals is already in you.**
 
-Muhammad Ali
+Anonymous
