@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do not blame the world. Find a solution.**
+**Happiness is not something ready made. It comes from your own actions.**
 
-Sri Chinmoy
+Dalai Lama
