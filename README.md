@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live as if you were to die tomorrow. Learn as if you were to live forever.**
+**It's not so much that I began to run, but that I continued.**
 
-Mahatma Gandhi
+Hal Higdon
