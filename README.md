@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When I hear somebody sigh, 'Life is hard,' I am always tempted to ask, 'Compared to what?'**
+**You will face many defeats in life, but never let yourself be defeated.**
 
-Sydney Harris
+Maya Angelou
