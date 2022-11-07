@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Some people dream of success... while others wake up and work hard at it.**
+**You are what you believe yourself to be.**
 
-Anonymous
+Paulo Coelho
