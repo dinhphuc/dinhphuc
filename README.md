@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Gratitude is the sweetest thing in a seeker's life- in all human life. If there is gratitude in your heart, then there will be tremendous sweetness in your eyes.**
+**When you find your why, you find a way to make it happen.**
 
-Sri Chinmoy
+Eric Thomas
