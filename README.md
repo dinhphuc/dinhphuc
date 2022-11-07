@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm not telling you it is going to be easy, I'm telling you it's going to be worth it.**
+**Live as if you were to die tomorrow. Learn as if you were to live forever.**
 
-Art Williams
+Mahatma Gandhi
