@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be strong enough to let go and patient enough to wait for what you deserve.**
+**I'm not telling you it is going to be easy, I'm telling you it's going to be worth it.**
 
-Anonymous
+Art Williams
