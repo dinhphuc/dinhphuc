@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing will work unless you do.**
+**Wherever you go, go with all your heart.**
 
-Maya Angelou
+Confucius
