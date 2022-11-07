@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All things equal, people will do business with, and refer business to, people they know trust and like.**
+**When I hear somebody sigh, 'Life is hard,' I am always tempted to ask, 'Compared to what?'**
 
-Bob Burg
+Sydney Harris
