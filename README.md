@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Wherever you go, go with all your heart.**
+**Wake up every morning with the thought that something wonderful is about to happen.**
 
-Confucius
+Anonymous
