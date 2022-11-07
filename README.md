@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The more grateful I am, the more beauty I see.**
+**Because of your smile, you make life more beautiful.**
 
-Mary Davis
+Thich Nhat Hanh
