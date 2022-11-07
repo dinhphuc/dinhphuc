@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to find happiness, find gratitude.**
+**No one who can rise before dawn three hundred sixty days a year fails to make his family rich.**
 
-Steve Maraboli
+Malcolm Gladwell
