@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will face many defeats in life, but never let yourself be defeated.**
+**Each time I thought I had achieved my life's purpose, I discovered it was only another step in my journey.**
 
-Maya Angelou
+Muhammad Ali
