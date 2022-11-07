@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Because of your smile, you make life more beautiful.**
+**All things equal, people will do business with, and refer business to, people they know trust and like.**
 
-Thich Nhat Hanh
+Bob Burg
