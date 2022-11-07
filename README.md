@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You came into the world to do something; So... do something!**
+**Nothing will work unless you do.**
 
-Johnnie Dent Jr
+Maya Angelou
