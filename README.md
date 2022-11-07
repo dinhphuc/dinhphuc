@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always be yourself and have faith in yourself. Do not go out and look for a successful personality and try to duplicate it.**
+**You came into the world to do something; So... do something!**
 
-Bruce Lee
+Johnnie Dent Jr
