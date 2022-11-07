@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In matters of style, swim with the current; in matters of principle, stand like a rock.**
+**Gratitude is the sweetest thing in a seeker's life- in all human life. If there is gratitude in your heart, then there will be tremendous sweetness in your eyes.**
 
-Thomas Jefferson
+Sri Chinmoy
