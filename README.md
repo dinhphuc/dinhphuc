@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up. You only get one life. Go for it.**
+**You don't have to be great to start. But you do have to start to be great.**
 
-Richard E. Grant
+Zig Ziglar
