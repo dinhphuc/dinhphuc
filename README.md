@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not so much that I began to run, but that I continued.**
+**All you need is love.**
 
-Hal Higdon
+The Beatles
