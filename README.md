@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All you need is love.**
+**Dream without fear. Love without limits.**
 
-The Beatles
+Dilip Bathija
