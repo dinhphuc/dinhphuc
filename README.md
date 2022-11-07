@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you find your why, you find a way to make it happen.**
+**The more grateful I am, the more beauty I see.**
 
-Eric Thomas
+Mary Davis
