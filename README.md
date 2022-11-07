@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nurture your mind with great thoughts, for you will never go any higher than you think.**
+**In matters of style, swim with the current; in matters of principle, stand like a rock.**
 
-Benjamin Disraeli
+Thomas Jefferson
