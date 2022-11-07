@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure is not the falling down but the staying down.**
+**Float like a butterfly, sting like a bee.**
 
-Anonymous
+Muhammad Ali
