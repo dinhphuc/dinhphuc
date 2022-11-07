@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Dream without fear. Love without limits.**
+**Failure is not the falling down but the staying down.**
 
-Dilip Bathija
+Anonymous
