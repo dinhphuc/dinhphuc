@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't have to be great to start. But you do have to start to be great.**
+**Sometimes the bravest thing you can do is to keep going when you really feel like giving up.**
 
-Zig Ziglar
+Anonymous
