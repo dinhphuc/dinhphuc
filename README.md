@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No one who can rise before dawn three hundred sixty days a year fails to make his family rich.**
+**You don't have to be great to start. But you do have to start to be great.**
 
-Malcolm Gladwell
+Zig Ziglar
