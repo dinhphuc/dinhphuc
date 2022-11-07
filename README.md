@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Each time I thought I had achieved my life's purpose, I discovered it was only another step in my journey.**
+**If you want to find happiness, find gratitude.**
 
-Muhammad Ali
+Steve Maraboli
