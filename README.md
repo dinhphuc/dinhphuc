@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Wake up every morning with the thought that something wonderful is about to happen.**
+**Some people dream of success... while others wake up and work hard at it.**
 
 Anonymous
