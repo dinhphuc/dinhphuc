@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Sometimes the bravest thing you can do is to keep going when you really feel like giving up.**
+**Successful people are not gifted; they just work hard, then succeed on purpose.**
 
-Anonymous
+G.K. Nielson
