@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are so much more than what you are going through.**
+**Wherever you go, go with all your heart.**
 
-John Tew
+Confucius
