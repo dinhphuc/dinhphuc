@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It takes courage to grow up and become who you really are.**
+**If you're offered a seat on a rocket ship, don't ask what seat! Just get on.**
 
-E.E. Cummings
+Sheryl Sandberg
