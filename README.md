@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Before you score, you first must have a goal.**
+**There is no charm equal to tenderness of heart.**
 
-Greek Proverb
+Jane Austen
