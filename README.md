@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is not final, failure is not fatal: it is the courage to continue that counts.**
+**Replace those thoughts of worry with thoughts of hope, faith, and victory.**
 
-Winston Churchill
+Joel Osteen
