@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is during our darkest moments that we must focus to see the light.**
+**When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.**
 
-Aristotle Onassis
+Henry Ford
