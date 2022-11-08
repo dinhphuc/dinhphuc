@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always deliver more than expected.**
+**Life is not a problem to be solved, but a reality to be experienced.**
 
-Larry Page
+Soren Kierkegaard
