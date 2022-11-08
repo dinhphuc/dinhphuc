@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Make each day your masterpiece.**
+**Always deliver more than expected.**
 
-John Wooden
+Larry Page
