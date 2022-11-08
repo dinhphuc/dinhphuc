@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing builds self-esteem and self-confidence like accomplishment.**
+**Life chips away at us all. Some play the victim. Some choose to be a survivor. And then there are those who choose to conquer.**
 
-Thomas Carlyle
+Anonymous
