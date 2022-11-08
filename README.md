@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is better to fail in originality than to succeed in imitation.**
+**If you believe it, the mind can achieve it.**
 
-Herman Melville
+Ronnie Lott
