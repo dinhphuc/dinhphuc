@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't always control what goes on outside, but you can always control what goes on inside.**
+**Nothing builds self-esteem and self-confidence like accomplishment.**
 
-Wayne Dyer
+Thomas Carlyle
