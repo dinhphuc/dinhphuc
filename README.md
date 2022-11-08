@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Let your smile change the world, but don't let the world change your smile.**
+**It is during our darkest moments that we must focus to see the light.**
 
-Anonymous
+Aristotle Onassis
