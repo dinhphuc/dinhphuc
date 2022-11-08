@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no charm equal to tenderness of heart.**
+**Laugh. It's free medicine you don't need insurance for.**
 
-Jane Austen
+Anonymous
