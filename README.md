@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I don't care how long it takes me, but I'm going somewhere beautiful.**
+**It takes courage to grow up and become who you really are.**
 
-Anonymous
+E.E. Cummings
