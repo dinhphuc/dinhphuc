@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success trains. Failure complains.**
+**Be tolerant with others and strict with yourself.**
 
-Anonymous
+Marcus Aurelius
