@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When a new day begins, dare to smile gratefully.**
+**He who always thinks it is too soon is sure to come too late.**
 
-Steve Maraboli
+German Proverb
