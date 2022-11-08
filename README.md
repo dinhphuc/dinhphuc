@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you believe it, the mind can achieve it.**
+**People who make you feel better about yourself when you're sad are so important.**
 
-Ronnie Lott
+Anonymous
