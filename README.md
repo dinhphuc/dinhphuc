@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Replace those thoughts of worry with thoughts of hope, faith, and victory.**
+**Make each day your masterpiece.**
 
-Joel Osteen
+John Wooden
