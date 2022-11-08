@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every day may not be good... but there's something good in every day.**
+**Confidence is something you create in yourself by believing in who you are.**
 
-Alice Morse Earle
+Anonymous
