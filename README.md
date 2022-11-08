@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everywhere you go, take a smile with you.**
+**Success trains. Failure complains.**
 
-Sasha Azevedo
+Anonymous
