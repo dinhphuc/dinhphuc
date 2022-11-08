@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's hard to beat a person who never gives up.**
+**No beauty shines brighter than that of a good heart.**
 
 Anonymous
