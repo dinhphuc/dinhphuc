@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pain has taught me to appreciate the things that don't hurt.**
+**Believe in yourself and you can be anything.**
 
-Melissa Tripp
+Katy Perry
