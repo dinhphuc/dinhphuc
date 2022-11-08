@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**He who always thinks it is too soon is sure to come too late.**
+**Success is not final, failure is not fatal: it is the courage to continue that counts.**
 
-German Proverb
+Winston Churchill
