@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Winning is fun, but those moments that you can touch someone's life in a very positive way are better.**
+**I don't care how long it takes me, but I'm going somewhere beautiful.**
 
-Tim Howard
+Anonymous
