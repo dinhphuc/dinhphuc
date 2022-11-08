@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All souls are lost until they are found.**
+**Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.**
 
-Kate McGahan
+Napoleon Hill
