@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our own self-esteem is something we can actually twist in whatever way we want.**
+**Let your smile change the world, but don't let the world change your smile.**
 
-Stephen Richards
+Anonymous
