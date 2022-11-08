@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be tolerant with others and strict with yourself.**
+**It's hard to beat a person who never gives up.**
 
-Marcus Aurelius
+Anonymous
