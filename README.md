@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence is something you create in yourself by believing in who you are.**
+**All souls are lost until they are found.**
 
-Anonymous
+Kate McGahan
