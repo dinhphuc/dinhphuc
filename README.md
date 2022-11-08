@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're offered a seat on a rocket ship, don't ask what seat! Just get on.**
+**It is better to fail in originality than to succeed in imitation.**
 
-Sheryl Sandberg
+Herman Melville
