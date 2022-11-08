@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No beauty shines brighter than that of a good heart.**
+**Every day may not be good... but there's something good in every day.**
 
-Anonymous
+Alice Morse Earle
