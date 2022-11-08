@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are what you believe yourself to be.**
+**When a new day begins, dare to smile gratefully.**
 
-Paulo Coelho
+Steve Maraboli
