@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is no accident. It is hard work, perseverance, learning, studying, sacrifice and most of all, love of what you are doing or learning to do.**
+**Life isn't about finding yourself. Life is about creating yourself.**
 
-Pele
+George Bernard Shaw
