@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of success is to do the common thing uncommonly well.**
+**We all make mistakes, but the winner knows that success comes from perseverance: trying, failing, learning, and doing it again until he succeeds.**
 
-John D. Rockefeller Jr
+Judy Ford
