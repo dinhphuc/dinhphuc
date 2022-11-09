@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Before you score, you first must have a goal.**
+**A fault confessed is half redressed.**
 
-Greek Proverb
+Zulu Proverb
