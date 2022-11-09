@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You've never lived this day before, and you never will again. Make the most of it!**
+**Don't get discouraged by what you're going through. Your time is coming. Where you are is not where you're going to stay.**
 
 Anonymous
