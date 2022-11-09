@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't stop until you're proud.**
+**Be so happy that when others look at you they become happy too.**
 
 Anonymous
