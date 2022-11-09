@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be happy, be yourself, and if others don't like it, let them be. Your happiness is a choice. Life isn't about pleasing everybody, so do you.**
+**The hardest thing to find in life is happiness - money is only hard to find because it gets wasted trying to find happiness.**
 
-Anonymous
+Unknown
