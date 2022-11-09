@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't have to be great to start. But you do have to start to be great.**
+**The only thing necessary for the triumph of evil is for good men to do nothing.**
 
-Zig Ziglar
+Edmund Burke
