@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I didn't fail the test. I just found 100 ways to do it wrong.**
+**Someone who is busier than you is running right now.**
 
-Benjamin Franklin
+Nike
