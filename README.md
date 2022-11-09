@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Losers quit when they're tired. Winners quit when they've won.**
+**Remember the entrance to the sanctuary is inside you.**
 
-Anonymous
+Rumi
