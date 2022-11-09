@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.**
+**Winning doesn't always mean being first. Winning means you're doing better than you've done before.**
 
-Henry Ford
+Bonnie Blair
