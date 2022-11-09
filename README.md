@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you're thinking is what you're becoming.**
+**The things you regret most in life are the risks you didn't take.**
 
-Muhammad Ali
+Anonymous
