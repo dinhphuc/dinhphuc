@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be so happy that when others look at you they become happy too.**
+**Limitations live only in our minds. But if we use our imaginations, our possibilities become limitless.**
 
-Anonymous
+Jamie Paolinetti
