@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life isn't about finding yourself. Life is about creating yourself.**
+**Do more of what lights you up and makes you feel alive. The world needs your spark.**
 
-George Bernard Shaw
+Anonymous
