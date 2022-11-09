@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A fault confessed is half redressed.**
+**Losers quit when they're tired. Winners quit when they've won.**
 
-Zulu Proverb
+Anonymous
