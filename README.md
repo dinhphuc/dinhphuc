@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Limitations live only in our minds. But if we use our imaginations, our possibilities become limitless.**
+**You cannot fail at being yourself.**
 
-Jamie Paolinetti
+Wayne Dyer
