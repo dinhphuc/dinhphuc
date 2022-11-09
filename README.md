@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only thing necessary for the triumph of evil is for good men to do nothing.**
+**I'm not here to be average, I'm here to be awesome.**
 
-Edmund Burke
+Anonymous
