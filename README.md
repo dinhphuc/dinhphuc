@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The hardest thing to find in life is happiness - money is only hard to find because it gets wasted trying to find happiness.**
+**Set a goal that makes you want to jump out of bed in the morning.**
 
-Unknown
+Anonymous
