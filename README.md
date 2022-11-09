@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Set a goal that makes you want to jump out of bed in the morning.**
+**I didn't fail the test. I just found 100 ways to do it wrong.**
 
-Anonymous
+Benjamin Franklin
