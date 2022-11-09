@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember the entrance to the sanctuary is inside you.**
+**Champions keep playing until they get it right.**
 
-Rumi
+Billie Jean King
