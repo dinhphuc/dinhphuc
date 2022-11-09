@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good friends are like stars. You don't always see them, but you know they're always there.**
+**No matter what you do, that seed will grow to be a peach tree. You may wish for an apple or an orange, but you will get a peach.**
 
-Christy Evans
+Master Oogway
