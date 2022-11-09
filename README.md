@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The things you regret most in life are the risks you didn't take.**
+**You don't have to be great to start. But you do have to start to be great.**
 
-Anonymous
+Zig Ziglar
