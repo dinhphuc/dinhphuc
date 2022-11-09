@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If it is not right, do not do it, if it is not true, do not say it.**
+**What you're thinking is what you're becoming.**
 
-Marcus Aurelius
+Muhammad Ali
