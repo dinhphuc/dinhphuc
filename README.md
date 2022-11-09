@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Champions keep playing until they get it right.**
+**If you don't sacrifice for what you want, what you wants becomes the sacrifice.**
 
-Billie Jean King
+Anonymous
