@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't get discouraged by what you're going through. Your time is coming. Where you are is not where you're going to stay.**
+**Be happy, be yourself, and if others don't like it, let them be. Your happiness is a choice. Life isn't about pleasing everybody, so do you.**
 
 Anonymous
