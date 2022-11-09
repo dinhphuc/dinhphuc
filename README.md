@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't sacrifice for what you want, what you wants becomes the sacrifice.**
+**To be a great champion you must believe you are the best. If you're not, pretend you are.**
 
-Anonymous
+Muhammad Ali
