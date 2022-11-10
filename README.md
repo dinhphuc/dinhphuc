@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you know what you want, and want it bad enough, you'll find a way to get it.**
+**You have to fight through some bad days to earn the best days of your life.**
 
-Jim Rohn
+Anonymous
