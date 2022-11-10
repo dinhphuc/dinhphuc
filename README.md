@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live for yourself and don't ever stop.**
+**The purpose of our lives is to be happy.**
 
-John Tew
+Dalai Lama
