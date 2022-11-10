@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In matters of style, swim with the current; in matters of principle, stand like a rock.**
+**You can't always control what goes on outside, but you can always control what goes on inside.**
 
-Thomas Jefferson
+Wayne Dyer
