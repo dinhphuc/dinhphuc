@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you look the right way, you can see that the whole world is a garden.**
+**Successful people are not gifted; they just work hard, then succeed on purpose.**
 
-Frances Hodgson Burnett
+G.K. Nielson
