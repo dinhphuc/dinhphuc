@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are only two mistakes one can make along the road to truth; not going all the way, and not starting.**
+**The reason we race isn't so much to beat each other,... but to be with each other.**
 
-Buddha
+Christopher McDougall
