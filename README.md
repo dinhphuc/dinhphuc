@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you believe it will work out, you'll see opportunities. If you believe it won't, you will see obstacles.**
+**Sometimes your joy is the source of your smile, but sometimes your smile can be the source of your joy.**
 
-Wayne Dyer
+Thich Nhat Hanh
