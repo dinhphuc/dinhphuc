@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't dream of winning, train for it!**
+**If you look the right way, you can see that the whole world is a garden.**
 
-Mo Farah
+Frances Hodgson Burnett
