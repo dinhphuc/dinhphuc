@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only journey is the one within.**
+**Once we accept our limits, we go beyond them.**
 
-Rainer Maria Rilke
+Albert Einstein
