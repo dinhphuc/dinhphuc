@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Sometimes your joy is the source of your smile, but sometimes your smile can be the source of your joy.**
+**The purpose of our lives is to be happy.**
 
-Thich Nhat Hanh
+Dalai Lama
