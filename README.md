@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Courage is one step ahead of fear.**
+**Wake up every morning with the thought that something wonderful is about to happen.**
 
-Coleman Young
+Anonymous
