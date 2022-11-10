@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Virtually nothing is impossible in this world if you just put your mind to it and maintain a positive attitude.**
+**Make sure your worst enemy doesn't live between your own two ears.**
 
-Lou Holtz
+Laird Hamilton
