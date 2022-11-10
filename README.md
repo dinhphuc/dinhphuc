@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whenever you see a successful person, you only see the public glories, never the private sacrifices to reach them.**
+**There are only two mistakes one can make along the road to truth; not going all the way, and not starting.**
 
-Vaibhav Shah
+Buddha
