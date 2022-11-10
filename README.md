@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If it doesn't challenge you, it won't change you.**
+**It is during our darkest moments that we must focus to see the light.**
 
-Anonymous
+Aristotle Onassis
