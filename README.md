@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Wake up every morning with the thought that something wonderful is about to happen.**
+**Don't sail out farther than you can row back.**
 
-Anonymous
+Danish Proverb
