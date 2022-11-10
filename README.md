@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There will be obstacles. There will be doubters. There will be mistakes. But with hard work, there are no limits.**
+**Nothing is impossible, the word itself says "I'm possible"!**
 
-Anonymous
+Audrey Hepburn
