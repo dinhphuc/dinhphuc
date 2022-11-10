@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You have to fight through some bad days to earn the best days of your life.**
+**If it doesn't challenge you, it won't change you.**
 
 Anonymous
