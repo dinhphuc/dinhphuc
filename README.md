@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The reason we race isn't so much to beat each other,... but to be with each other.**
+**If you believe it will work out, you'll see opportunities. If you believe it won't, you will see obstacles.**
 
-Christopher McDougall
+Wayne Dyer
