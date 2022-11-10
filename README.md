@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Make sure your worst enemy doesn't live between your own two ears.**
+**There will be obstacles. There will be doubters. There will be mistakes. But with hard work, there are no limits.**
 
-Laird Hamilton
+Anonymous
