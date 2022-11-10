@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Difficult roads always lead to beautiful destinations.**
+**The greatest mistake you can make in life is to continually fear that you will make one.**
 
-Zig Ziglar
+Elbert Hubbard
