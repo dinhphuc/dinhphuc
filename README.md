@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are stronger than you think.**
+**Courage is one step ahead of fear.**
 
-Anonymous
+Coleman Young
