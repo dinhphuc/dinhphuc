@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe with all of your heart that you will do what you were made to do.**
+**Difficult roads always lead to beautiful destinations.**
 
-Orison Swett Marden
+Zig Ziglar
