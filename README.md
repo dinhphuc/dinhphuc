@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest mistake you can make in life is to continually fear that you will make one.**
+**Whenever you see a successful person, you only see the public glories, never the private sacrifices to reach them.**
 
-Elbert Hubbard
+Vaibhav Shah
