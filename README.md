@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Self-control is strength. Right thought is mastery. Calmness is power.**
+**Don't dream of winning, train for it!**
 
-James Allen
+Mo Farah
