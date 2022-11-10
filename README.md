@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm not here to be average, I'm here to be awesome.**
+**Believe with all of your heart that you will do what you were made to do.**
 
-Anonymous
+Orison Swett Marden
