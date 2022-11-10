@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing is impossible, the word itself says "I'm possible"!**
+**In matters of style, swim with the current; in matters of principle, stand like a rock.**
 
-Audrey Hepburn
+Thomas Jefferson
