@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't always control what goes on outside, but you can always control what goes on inside.**
+**You are stronger than you think.**
 
-Wayne Dyer
+Anonymous
