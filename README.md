@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you're thinking is what you're becoming.**
+**Self-control is strength. Right thought is mastery. Calmness is power.**
 
-Muhammad Ali
+James Allen
