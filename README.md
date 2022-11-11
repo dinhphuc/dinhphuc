@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is a magical ride. Enjoy every moment.**
+**All things equal, people will do business with, and refer business to, people they know trust and like.**
 
-Anonymous
+Bob Burg
