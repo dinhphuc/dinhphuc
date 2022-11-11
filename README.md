@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be crazy. Be stupid. Be silly. Be weird. Be whatever. Because life is too short to be anything but happy.**
+**There is always something more to learn. Even for a master.**
 
-Anonymous
+Master Oogway
