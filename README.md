@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Action is the foundational key to all success.**
+**If you can dream it, then you can achieve it.**
 
-Pablo Picasso
+Zig Ziglar
