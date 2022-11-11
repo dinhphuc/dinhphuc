@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up, stay focused, stay positive, stay strong.**
+**Self-belief and hard work will always earn you success.**
 
-Anonymous
+Virat Kohli
