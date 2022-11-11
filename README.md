@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Where love reigns, the impossible may be attained.**
+**You can't use up creativity. The more you use, the more you have.**
 
-Indian Proverb
+Maya Angelou
