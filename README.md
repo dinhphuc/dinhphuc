@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you want to talk about who made me, you talk to me. Who made me is ME.**
+**Everywhere you go, take a smile with you.**
 
-Muhammad Ali
+Sasha Azevedo
