@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Self-belief and hard work will always earn you success.**
+**It's hard to beat a person who never gives up.**
 
-Virat Kohli
+Anonymous
