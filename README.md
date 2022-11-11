@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of success is to do the common thing uncommonly well.**
+**We can't help everyone, but everyone can help someone.**
 
-John D. Rockefeller Jr
+Ronald Reagan
