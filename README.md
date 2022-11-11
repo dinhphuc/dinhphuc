@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't use up creativity. The more you use, the more you have.**
+**Life is a magical ride. Enjoy every moment.**
 
-Maya Angelou
+Anonymous
