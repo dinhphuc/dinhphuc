@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Go fast enough to get there, but slow enough to see.**
+**There is no cosmetic for beauty like happiness.**
 
-Jimmy Buffett
+Maria Mitchell
