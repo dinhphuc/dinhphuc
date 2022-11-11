@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The supreme art of war is to subdue the enemy without fighting.**
+**When you want to talk about who made me, you talk to me. Who made me is ME.**
 
-Sun Tzu
+Muhammad Ali
