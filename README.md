@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between stumbling blocks and stepping stones is how you use them.**
+**All things equal, people will do business with, and refer business to, people they know trust and like.**
 
-Anonymous
+Bob Burg
