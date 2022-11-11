@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All things equal, people will do business with, and refer business to, people they know trust and like.**
+**Attitude will always define who we are in life.**
 
-Bob Burg
+Mark A. Brennan
