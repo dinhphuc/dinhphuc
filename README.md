@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Attitude will always define who we are in life.**
+**Success isn't just about what you accomplish in life. It's about what you inspire others to do.**
 
-Mark A. Brennan
+Anonymous
