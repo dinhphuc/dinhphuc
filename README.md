@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are positive, you'll see opportunities instead of obstacles.**
+**Go fast enough to get there, but slow enough to see.**
 
-Widad Akrawi
+Jimmy Buffett
