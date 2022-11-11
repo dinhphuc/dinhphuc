@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We can't help everyone, but everyone can help someone.**
+**If you are positive, you'll see opportunities instead of obstacles.**
 
-Ronald Reagan
+Widad Akrawi
