@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you choose to focus on expands and grows.**
+**The question isn't who is going to let me; it's who is going to stop me.**
 
-Anonymous
+Ayn Rand
