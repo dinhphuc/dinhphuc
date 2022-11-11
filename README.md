@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can dream it, then you can achieve it.**
+**The supreme art of war is to subdue the enemy without fighting.**
 
-Zig Ziglar
+Sun Tzu
