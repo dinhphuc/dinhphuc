@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is a difference between giving up and knowing when you've had enough.**
+**There's never enough time to do everything, but there's always enough time to do the most important thing.**
 
-Anonymous
+Dean Bokhari
