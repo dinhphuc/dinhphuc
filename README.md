@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It takes courage to grow up and become who you really are.**
+**Easy choices, hard life. Hard choices, easy life.**
 
-E.E. Cummings
+Jerzy Gregorek
