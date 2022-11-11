@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The question isn't who is going to let me; it's who is going to stop me.**
+**Never give up, stay focused, stay positive, stay strong.**
 
-Ayn Rand
+Anonymous
