@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success isn't just about what you accomplish in life. It's about what you inspire others to do.**
+**It takes courage to grow up and become who you really are.**
 
-Anonymous
+E.E. Cummings
