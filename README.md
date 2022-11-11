@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There's never enough time to do everything, but there's always enough time to do the most important thing.**
+**Where love reigns, the impossible may be attained.**
 
-Dean Bokhari
+Indian Proverb
