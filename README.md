@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once we accept our limits, we go beyond them.**
+**The secret of success is to do the common thing uncommonly well.**
 
-Albert Einstein
+John D. Rockefeller Jr
