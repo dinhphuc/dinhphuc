@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no charm equal to tenderness of heart.**
+**It's not what you look at that matters, it's what you see.**
 
-Jane Austen
+Henry David Thoreau
