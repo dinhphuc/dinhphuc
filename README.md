@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your relationship with yourself sets the tone for every other relationship you have.**
+**You don't have to control your thoughts; you just have to stop letting them control you.**
 
-Anonymous
+Dan Millman
