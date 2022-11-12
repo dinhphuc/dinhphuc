@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Replace those thoughts of worry with thoughts of hope, faith, and victory.**
+**Practice 'gratitude' each day and your relationship will last forever.**
 
-Joel Osteen
+Anonymous
