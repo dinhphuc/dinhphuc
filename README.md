@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is always something more to learn. Even for a master.**
+**If you get tired, learn to rest, not quit.**
 
-Master Oogway
+Anonymous
