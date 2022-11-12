@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Practice 'gratitude' each day and your relationship will last forever.**
+**If you can't find the opportunities you're looking for...create them.**
 
 Anonymous
