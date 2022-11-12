@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't get what you wish for. You get what you work for.**
+**Your relationship with yourself sets the tone for every other relationship you have.**
 
 Anonymous
