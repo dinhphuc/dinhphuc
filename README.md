@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It never gets easier. You just get better.**
+**We can't be brave without fear.**
 
-Jordan Hoechlin
+Muhammad Ali
