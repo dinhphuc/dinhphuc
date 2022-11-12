@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't fear moving slowly forward...fear standing still.**
+**Make today so awesome yesterday gets jealous.**
 
-Kathleen Harris
+Anonymous
