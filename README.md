@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It takes but one positive thought when given a chance to survive and thrive to overpower an entire army of negative thoughts.**
+**Be helpful. When you see a person without a smile, give them yours.**
 
-Robert H. Schuller
+Zig Ziglar
