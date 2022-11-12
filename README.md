@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Like the morning sun, you too shall rise and continue to shine.**
+**There is no charm equal to tenderness of heart.**
 
-Anonymous
+Jane Austen
