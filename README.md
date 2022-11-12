@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Enjoy the little things, for one day you may look back and realize they were the big things.**
+**The way to get started is to quit talking and begin doing.**
 
-Robert Brault
+Walt Disney
