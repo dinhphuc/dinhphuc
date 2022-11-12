@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is short, and it is up to you to make it sweet.**
+**You don't get what you wish for. You get what you work for.**
 
-Sarah Louise Delany
+Anonymous
