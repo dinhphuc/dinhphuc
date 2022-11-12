@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We can't be brave without fear.**
+**Replace those thoughts of worry with thoughts of hope, faith, and victory.**
 
-Muhammad Ali
+Joel Osteen
