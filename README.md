@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Doubt kills more dreams than failure ever will.**
+**If you look the right way, you can see that the whole world is a garden.**
 
-Suzy Kassem
+Frances Hodgson Burnett
