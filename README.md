@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The way to get started is to quit talking and begin doing.**
+**Don't fear moving slowly forward...fear standing still.**
 
-Walt Disney
+Kathleen Harris
