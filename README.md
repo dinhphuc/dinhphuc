@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously.**
+**Like the morning sun, you too shall rise and continue to shine.**
 
-Steve Maraboli
+Anonymous
