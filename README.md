@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**And in the end, the love you take, is equal to the love you make.**
+**You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously.**
 
-The Beatles
+Steve Maraboli
