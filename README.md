@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest weakness lies in giving up. The most certain way to succeed is to just try one more time.**
+**Enjoy the little things, for one day you may look back and realize they were the big things.**
 
-Thomas Edison
+Robert Brault
