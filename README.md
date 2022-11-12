@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only way to do great work is to love what you do.**
+**Find a place inside where there's joy, and the joy will burn out the pain.**
 
-Steve Jobs
+Joseph Campbell
