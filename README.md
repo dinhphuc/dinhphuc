@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Make today so awesome yesterday gets jealous.**
+**And in the end, the love you take, is equal to the love you make.**
 
-Anonymous
+The Beatles
