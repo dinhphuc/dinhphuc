@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Work hard and be nice to people.**
+**Success consists of getting up just one more time than you fall.**
 
-Anonymous
+Oliver Goldsmith
