@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Doubt kills more dreams than failure ever will.**
+**It ain't as bad as you think. It will look better in the morning.**
 
-Suzy Kassem
+Colin Powell
