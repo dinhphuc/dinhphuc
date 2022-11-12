@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I alone cannot change the world, but I can cast a stone across the water to create many ripples.**
+**The only way to do great work is to love what you do.**
 
-Mother Teresa
+Steve Jobs
