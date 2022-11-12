@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success consists of getting up just one more time than you fall.**
+**I alone cannot change the world, but I can cast a stone across the water to create many ripples.**
 
-Oliver Goldsmith
+Mother Teresa
