@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest glory is not in never falling, but in rising every time we fall.**
+**Practice 'gratitude' each day and your relationship will last forever.**
 
-Confucius
+Anonymous
