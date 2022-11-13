@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**People are just as happy as they make up their minds to be.**
+**The only easy day was yesterday.**
 
-Abraham Lincoln
+Navy Seals
