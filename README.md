@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember that not getting what you want is sometimes a wonderful stroke of luck.**
+**Teachers open the door; you enter by yourself.**
 
-Dalai Lama
+Chinese Proverb
