@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only easy day was yesterday.**
+**Goals may give focus, but dreams give power.**
 
-Navy Seals
+John Maxwell
