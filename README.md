@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is really simple, but we insist on making it complicated.**
+**Remember that not getting what you want is sometimes a wonderful stroke of luck.**
 
-Confucius
+Dalai Lama
