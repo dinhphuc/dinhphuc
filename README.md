@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Faith is taking the first step even when you don't see the whole staircase.**
+**You will be exactly as happy as you decide to be.**
 
-Martin Luther King
+Anonymous
