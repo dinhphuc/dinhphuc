@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We don't develop courage by being happy every day. We develop it by surviving difficult times and challenging adversity.**
+**Life is really simple, but we insist on making it complicated.**
 
-Barbara De Angelis
+Confucius
