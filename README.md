@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I've failed over and over and over again in my life and that is why I succeed.**
+**Our greatest glory is not in never falling, but in rising every time we fall.**
 
-Michael Jordan
+Confucius
