@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pain has taught me to appreciate the things that don't hurt.**
+**You can't use up creativity. The more you use, the more you have.**
 
-Melissa Tripp
+Maya Angelou
