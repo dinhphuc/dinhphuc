@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't use up creativity. The more you use, the more you have.**
+**Gratitude turns what we have into enough.**
 
-Maya Angelou
+Anonymous
