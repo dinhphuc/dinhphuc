@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can dream it, then you can achieve it.**
+**We are made to persist. That's how we find out who we are.**
 
-Zig Ziglar
+Tobias Wolff
