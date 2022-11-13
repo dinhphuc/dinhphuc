@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**With confidence you have won before you have started.**
+**If you can dream it, then you can achieve it.**
 
-Marcus Garvey
+Zig Ziglar
