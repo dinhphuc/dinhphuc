@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength is the product of struggle. You must do what others don't to achieve what others wont.**
+**If you don't like something, change it. If you can't change it, change your attitude.**
 
-Henry Rollins
+Maya Angelou
