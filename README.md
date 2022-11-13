@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**People who make you feel better about yourself when you're sad are so important.**
+**I've never let anyone talk me into not believing in myself.**
 
-Anonymous
+Muhammad Ali
