@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We are made to persist. That's how we find out who we are.**
+**People are just as happy as they make up their minds to be.**
 
-Tobias Wolff
+Abraham Lincoln
