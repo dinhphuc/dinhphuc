@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can either spend your time or invest your time.**
+**When the sun rises, it rises for everyone.**
 
-Chip Kelly
+Cuban Proverb
