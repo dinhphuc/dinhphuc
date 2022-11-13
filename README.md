@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success doesn't just come and find you, you have to go out and get it.**
+**If you feel like giving up, just look back on how far you are already.**
 
 Anonymous
