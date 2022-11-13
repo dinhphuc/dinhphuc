@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Gratitude turns what we have into enough.**
+**You can either spend your time or invest your time.**
 
-Anonymous
+Chip Kelly
