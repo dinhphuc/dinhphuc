@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whenever you see a successful person, you only see the public glories, never the private sacrifices to reach them.**
+**Success doesn't just come and find you, you have to go out and get it.**
 
-Vaibhav Shah
+Anonymous
