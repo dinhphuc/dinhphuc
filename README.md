@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I've never let anyone talk me into not believing in myself.**
+**Faith is taking the first step even when you don't see the whole staircase.**
 
-Muhammad Ali
+Martin Luther King
