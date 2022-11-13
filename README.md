@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Rise up. Start fresh. See the bright opportunity in each new day.**
+**People who make you feel better about yourself when you're sad are so important.**
 
 Anonymous
