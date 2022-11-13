@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Practice 'gratitude' each day and your relationship will last forever.**
+**Plenty of people miss their share of happiness, not because they never found it, but because they didn't stop to enjoy it.**
 
-Anonymous
+William Feather
