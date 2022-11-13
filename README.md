@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When the sun rises, it rises for everyone.**
+**Strength is the product of struggle. You must do what others don't to achieve what others wont.**
 
-Cuban Proverb
+Henry Rollins
