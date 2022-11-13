@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Spend your life with people who make you smile, laugh, and feel loved.**
+**Change your thoughts and you change your world.**
 
-Roy T. Bennett
+Norman Vincent Peale
