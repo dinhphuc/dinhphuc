@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Plenty of people miss their share of happiness, not because they never found it, but because they didn't stop to enjoy it.**
+**Whenever you see a successful person, you only see the public glories, never the private sacrifices to reach them.**
 
-William Feather
+Vaibhav Shah
