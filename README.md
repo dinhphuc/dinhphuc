@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you feel like giving up, just look back on how far you are already.**
+**Pain has taught me to appreciate the things that don't hurt.**
 
-Anonymous
+Melissa Tripp
