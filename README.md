@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Goals may give focus, but dreams give power.**
+**Only those who dare to fail greatly can ever achieve greatly.**
 
-John Maxwell
+Robert F. Kennedy
