@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Stop beating yourself up. You are a work in progress which means you get there a little at a time, not all at once.**
+**The difference between the impossible and the possible lies in a person's determination.**
 
-Anonymous
+Tommy Lasorda
