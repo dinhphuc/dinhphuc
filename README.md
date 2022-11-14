@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A smile is the beauty of the soul.**
+**Whatever you are, be a good one.**
 
-Lailah Gifty
+Abraham Lincoln
