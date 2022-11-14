@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Before you score, you first must have a goal.**
+**Surround yourself with only people who are going to lift you higher.**
 
-Greek Proverb
+Oprah
