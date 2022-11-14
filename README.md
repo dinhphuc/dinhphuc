@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is short, and it is up to you to make it sweet.**
+**Determination is doing what needs to be done even when you don't feel like doing it.**
 
-Sarah Louise Delany
+Anonymous
