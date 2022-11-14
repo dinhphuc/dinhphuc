@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are positive, you'll see opportunities instead of obstacles.**
+**I am an ordinary man who worked hard to develop the talent I was given. I believed in myself, and I believe in the goodness of others.**
 
-Widad Akrawi
+Muhammad Ali
