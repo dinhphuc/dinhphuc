@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only a life lived for others is a life worthwhile.**
+**Climb the mountains to see lowlands.**
 
-Albert Einstein
+Chinese Proverb
