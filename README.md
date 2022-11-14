@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Determination is doing what needs to be done even when you don't feel like doing it.**
+**Virtually nothing is impossible in this world if you just put your mind to it and maintain a positive attitude.**
 
-Anonymous
+Lou Holtz
