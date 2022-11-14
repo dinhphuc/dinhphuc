@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Shine like the whole universe is yours.**
+**Life is short, and it is up to you to make it sweet.**
 
-Rumi
+Sarah Louise Delany
