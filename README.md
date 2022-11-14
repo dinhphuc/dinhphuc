@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only those who dare to fail greatly can ever achieve greatly.**
+**I know I have unlimited potential to create the life of my dreams.**
 
-Robert F. Kennedy
+Anonymous
