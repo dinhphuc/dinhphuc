@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Use your smile to change the world; don't let the world change your smile.**
+**Train like a silver medalist, compete like a gold.**
 
-Chinese proverb
+Anonymous
