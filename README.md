@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Make the most of yourself....for that is all there is of you.**
+**I learned that courage was not the absence of fear, but the triumph over it.**
 
-Ralph Waldo Emerson
+Nelson Mandela
