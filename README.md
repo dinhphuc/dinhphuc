@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is a journey ... not a destination.**
+**Don't be afraid to give up the good to go for the great.**
 
-Ben Sweetland
+John D. Rockefeller
