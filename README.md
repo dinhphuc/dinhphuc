@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.**
+**The secret of success is to do the common thing uncommonly well.**
 
-Henry Ford
+John D. Rockefeller Jr
