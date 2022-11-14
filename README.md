@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be afraid to give up the good to go for the great.**
+**Before you score, you first must have a goal.**
 
-John D. Rockefeller
+Greek Proverb
