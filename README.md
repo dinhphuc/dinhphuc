@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Surround yourself with only people who are going to lift you higher.**
+**Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching.**
 
-Oprah
+Satchel Paige
