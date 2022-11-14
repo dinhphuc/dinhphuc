@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Train like a silver medalist, compete like a gold.**
+**Happiness is a journey ... not a destination.**
 
-Anonymous
+Ben Sweetland
