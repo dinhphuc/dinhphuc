@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once we accept our limits, we go beyond them.**
+**Your path you must decide.**
 
-Albert Einstein
+Yoda
