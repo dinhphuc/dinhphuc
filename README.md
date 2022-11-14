@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you are, be a good one.**
+**If you are positive, you'll see opportunities instead of obstacles.**
 
-Abraham Lincoln
+Widad Akrawi
