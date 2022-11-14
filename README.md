@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your path you must decide.**
+**Make the most of yourself....for that is all there is of you.**
 
-Yoda
+Ralph Waldo Emerson
