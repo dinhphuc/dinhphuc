@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between the impossible and the possible lies in a person's determination.**
+**Only a life lived for others is a life worthwhile.**
 
-Tommy Lasorda
+Albert Einstein
