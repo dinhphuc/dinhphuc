@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of success is to do the common thing uncommonly well.**
+**A smile is the beauty of the soul.**
 
-John D. Rockefeller Jr
+Lailah Gifty
