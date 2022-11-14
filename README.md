@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Virtually nothing is impossible in this world if you just put your mind to it and maintain a positive attitude.**
+**Once we accept our limits, we go beyond them.**
 
-Lou Holtz
+Albert Einstein
