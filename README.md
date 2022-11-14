@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching.**
+**Always be yourself and have faith in yourself. Do not go out and look for a successful personality and try to duplicate it.**
 
-Satchel Paige
+Bruce Lee
