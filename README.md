@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The pain you feel today will be the strength you feel tomorrow.**
+**Your problem isn't the problem, it's your attitude about the problem.**
 
-Anonymous
+Ann Brashares
