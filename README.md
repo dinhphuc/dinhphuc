@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The past does not equal the future.**
+**Our greatest ability as humans is not to change the world; but to change ourselves.**
 
-Tony Robbins
+Mahatma Gandhi
