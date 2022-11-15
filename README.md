@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I am an ordinary man who worked hard to develop the talent I was given. I believed in myself, and I believe in the goodness of others.**
+**A successful man is one who can lay a firm foundation with the bricks others have thrown at him.**
 
-Muhammad Ali
+David Brinkley
