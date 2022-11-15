@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Better than a thousand days of diligent study is one day with a great teacher.**
+**No beauty shines brighter than that of a good heart.**
 
-Jim Afremow
+Anonymous
