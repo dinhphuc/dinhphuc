@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of getting ahead is getting started.**
+**The past does not equal the future.**
 
-Mark Twain
+Tony Robbins
