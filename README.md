@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest ability as humans is not to change the world; but to change ourselves.**
+**The pain you feel today will be the strength you feel tomorrow.**
 
-Mahatma Gandhi
+Anonymous
