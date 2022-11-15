@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're presenting yourself with confidence, you can pull off pretty much anything.**
+**A new command I give you: Love one another.**
 
-Katy Perry
+Jesus Christ
