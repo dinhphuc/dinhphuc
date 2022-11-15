@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The will to win means nothing without the will to prepare.**
+**If you're presenting yourself with confidence, you can pull off pretty much anything.**
 
-Juma Ikangaa
+Katy Perry
