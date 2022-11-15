@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are enough, just as you are.**
+**We become what we think about.**
 
-Anonymous
+Earl Nightingale
