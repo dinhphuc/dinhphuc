@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love has no age, no limit; and no death.**
+**When you stop chasing the wrong things you give the right things a chance to catch you.**
 
-John Galsworthy
+Anonymous
