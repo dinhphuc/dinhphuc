@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**'Thank you' is the best prayer that anyone could say.**
+**Better than a thousand days of diligent study is one day with a great teacher.**
 
-Alice Walker
+Jim Afremow
