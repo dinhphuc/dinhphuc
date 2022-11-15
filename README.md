@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No beauty shines brighter than that of a good heart.**
+**You need to spend time crawling alone through shadows to truly appreciate what it is to stand in the sun.**
 
-Anonymous
+Shaun Hick
