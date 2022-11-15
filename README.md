@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest glory is not in never falling, but in rising every time we fall.**
+**Good friends are like stars. You don't always see them, but you know they're always there.**
 
-Confucius
+Christy Evans
