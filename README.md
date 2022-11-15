@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**That is bad news... if you do not believe in yourself.**
+**You are enough, just as you are.**
 
-Master Oogway
+Anonymous
