@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A champion is someone who gets up when they can't.**
+**If you want light to come into your life, you need to stand where it is shining.**
 
-Jack Dempsey
+Guy Finley
