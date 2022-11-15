@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Results happen over time, not overnight. Work hard, stay consistent, and be patient.**
+**It's easy to stand in the crowd but it takes courage to stand alone.**
 
-Anonymous
+Mahatma Gandhi
