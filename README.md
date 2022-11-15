@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever can happen at any time can happen today.**
+**Results happen over time, not overnight. Work hard, stay consistent, and be patient.**
 
-Seneca
+Anonymous
