@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You need to spend time crawling alone through shadows to truly appreciate what it is to stand in the sun.**
+**That is bad news... if you do not believe in yourself.**
 
-Shaun Hick
+Master Oogway
