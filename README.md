@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you stop chasing the wrong things you give the right things a chance to catch you.**
+**Tension is who you think you should be. Relaxation is who you are.**
 
-Anonymous
+Jim Afremow
