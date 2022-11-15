@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If I have the belief that I can do it, I shall surely acquire the capacity to do it even if I may not have it at the beginning.**
+**Use your smile to change the world; don't let the world change your smile.**
 
-Gandhi
+Chinese proverb
