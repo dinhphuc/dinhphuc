@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The beginning is the most important part of the work.**
+**If you're presenting yourself with confidence, you can pull off pretty much anything.**
 
-Plato
+Katy Perry
