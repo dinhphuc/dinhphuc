@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A successful man is one who can lay a firm foundation with the bricks others have thrown at him.**
+**The will to win means nothing without the will to prepare.**
 
-David Brinkley
+Juma Ikangaa
