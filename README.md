@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want light to come into your life, you need to stand where it is shining.**
+**If I have the belief that I can do it, I shall surely acquire the capacity to do it even if I may not have it at the beginning.**
 
-Guy Finley
+Gandhi
