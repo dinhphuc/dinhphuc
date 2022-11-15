@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your problem isn't the problem, it's your attitude about the problem.**
+**Whatever can happen at any time can happen today.**
 
-Ann Brashares
+Seneca
