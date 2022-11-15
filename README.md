@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Not all those who wander are lost.**
+**A champion is someone who gets up when they can't.**
 
-J. R. R. Tolkien
+Jack Dempsey
