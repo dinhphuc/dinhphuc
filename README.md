@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We become what we think about.**
+**Think gold and never settle for silver.**
 
-Earl Nightingale
+Jim Afremow
