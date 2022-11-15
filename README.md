@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love isn't something you find. Love is something that finds you.**
+**The secret of getting ahead is getting started.**
 
-Loretta Young
+Mark Twain
