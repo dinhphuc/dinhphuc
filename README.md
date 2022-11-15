@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Tension is who you think you should be. Relaxation is who you are.**
+**Our greatest glory is not in never falling, but in rising every time we fall.**
 
-Jim Afremow
+Confucius
