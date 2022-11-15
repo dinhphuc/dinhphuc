@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Think gold and never settle for silver.**
+**If you're presenting yourself with confidence, you can pull off pretty much anything.**
 
-Jim Afremow
+Katy Perry
