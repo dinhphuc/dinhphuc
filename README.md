@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're presenting yourself with confidence, you can pull off pretty much anything.**
+**Not all those who wander are lost.**
 
-Katy Perry
+J. R. R. Tolkien
