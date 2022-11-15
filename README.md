@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A new command I give you: Love one another.**
+**Love has no age, no limit; and no death.**
 
-Jesus Christ
+John Galsworthy
