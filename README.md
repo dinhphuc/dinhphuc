@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Use your smile to change the world; don't let the world change your smile.**
+**'Thank you' is the best prayer that anyone could say.**
 
-Chinese proverb
+Alice Walker
