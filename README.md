@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Measure a thousand times and cut once.**
+**What you choose to focus on expands and grows.**
 
-Turkish Proverb
+Anonymous
