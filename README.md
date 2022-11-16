@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will find only what you bring in.**
+**That is bad news... if you do not believe in yourself.**
 
-Yoda
+Master Oogway
