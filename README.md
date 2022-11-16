@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are not willing to risk the usual, you will have to settle for the ordinary.**
+**Losers quit when they're tired. Winners quit when they've won.**
 
-Jim Rohn
+Anonymous
