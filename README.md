@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There may be people that have more talent than you, but theres no excuse for anyone to work harder than you.**
+**Being entirely honest with oneself is a good exercise.**
 
-Derek Jeter
+Sigmund Freud
