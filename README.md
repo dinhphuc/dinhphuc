@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Trust yourself. You know more than you think you do.**
+**You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously.**
 
-Dr. Benjamin Spock
+Steve Maraboli
