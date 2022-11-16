@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how tough it may get, never give up on yourself or you will look back and regret it.**
+**The only journey is the one within.**
 
-Anonymous
+Rainer Maria Rilke
