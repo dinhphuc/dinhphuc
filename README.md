@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't get what you wish for. You get what you work for.**
+**The vision of a champion is someone who is bent over, drenched in sweat, at the point of exhaustion when no one else is watching.**
 
-Anonymous
+Jim Afremow
