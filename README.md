@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It ain't as bad as you think. It will look better in the morning.**
+**It's the repetition of affirmations that leads to belief. And once that belief becomes a deep conviction, things begin to happen.**
 
-Colin Powell
+Muhammad Ali
