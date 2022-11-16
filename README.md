@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The vision of a champion is someone who is bent over, drenched in sweat, at the point of exhaustion when no one else is watching.**
+**Happiness is an attitude. We either make ourselves miserable, or happy and strong. The amount of work is the same.**
 
-Jim Afremow
+Francesca Reigler
