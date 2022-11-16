@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Being entirely honest with oneself is a good exercise.**
+**Measure a thousand times and cut once.**
 
-Sigmund Freud
+Turkish Proverb
