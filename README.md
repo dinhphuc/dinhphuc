@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Losers quit when they're tired. Winners quit when they've won.**
+**You will find only what you bring in.**
 
-Anonymous
+Yoda
