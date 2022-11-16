@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I ask not for a lighter burden, but for broader shoulders.**
+**Trust yourself. You know more than you think you do.**
 
-Jewish Proverb
+Dr. Benjamin Spock
