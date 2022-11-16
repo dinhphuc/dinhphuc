@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not the strongest of the species that survive, nor the most intelligent, but the one most responsive to change.**
+**The reputation of a thousand years may be determined by the conduct of one hour.**
 
-Charles Darwin
+Japanese Proverb
