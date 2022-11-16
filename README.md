@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will find only what you bring in.**
+**No matter how tough it may get, never give up on yourself or you will look back and regret it.**
 
-Yoda
+Anonymous
