@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Start doing things to make you happy.**
+**To be a great champion you must believe you are the best. If you're not, pretend you are.**
 
-Reyna Biddy
+Muhammad Ali
