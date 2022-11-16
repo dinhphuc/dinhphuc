@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't miss out on something that could be great just because it could also be difficult.**
+**There is no greater miracle than our conscious efforts to become good human beings.**
 
-Anonymous
+Sri Chinmoy
