@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember that guy that gave up? Neither does anyone else.**
+**The greatest glory in living lies not in never falling, but in rising every time we fall.**
 
-Anonymous
+Nelson Mandela
