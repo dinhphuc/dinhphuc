@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The way to get started is to quit talking and begin doing.**
+**Don't miss out on something that could be great just because it could also be difficult.**
 
-Walt Disney
+Anonymous
