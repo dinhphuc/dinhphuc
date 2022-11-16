@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Dream without fear. Love without limits.**
+**When you love what you have, you have everything you need.**
 
-Dilip Bathija
+Anonymous
