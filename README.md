@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is an attitude. We either make ourselves miserable, or happy and strong. The amount of work is the same.**
+**The way to get started is to quit talking and begin doing.**
 
-Francesca Reigler
+Walt Disney
