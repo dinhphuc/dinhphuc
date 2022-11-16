@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The beginning is the most important part of the work.**
+**You don't get what you wish for. You get what you work for.**
 
-Plato
+Anonymous
