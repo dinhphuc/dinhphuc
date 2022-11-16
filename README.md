@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Shine like the whole universe is yours.**
+**Start doing things to make you happy.**
 
-Rumi
+Reyna Biddy
