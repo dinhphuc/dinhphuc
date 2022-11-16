@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep your eyes on the stars, and your feet on the ground.**
+**Shine like the whole universe is yours.**
 
-Theodore Roosevelt
+Rumi
