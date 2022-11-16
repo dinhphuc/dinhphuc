@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you love what you have, you have everything you need.**
+**You will find only what you bring in.**
 
-Anonymous
+Yoda
