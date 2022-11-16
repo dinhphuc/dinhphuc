@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everywhere you go, take a smile with you.**
+**Focus on your goal. Don't look in any direction but ahead.**
 
-Sasha Azevedo
+Anonymous
