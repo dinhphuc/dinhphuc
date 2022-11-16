@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are a masterpiece.**
+**It ain't as bad as you think. It will look better in the morning.**
 
-Anonymous
+Colin Powell
