@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no greater miracle than our conscious efforts to become good human beings.**
+**There may be people that have more talent than you, but theres no excuse for anyone to work harder than you.**
 
-Sri Chinmoy
+Derek Jeter
