@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you choose to focus on expands and grows.**
+**Keep your eyes on the stars, and your feet on the ground.**
 
-Anonymous
+Theodore Roosevelt
