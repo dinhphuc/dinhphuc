@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest glory in living lies not in never falling, but in rising every time we fall.**
+**When it rains look for rainbows.**
 
-Nelson Mandela
+Oscar Wilde
