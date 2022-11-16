@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When will you realize, the more you take, the less you have.**
+**Everywhere you go, take a smile with you.**
 
-Master Oogway
+Sasha Azevedo
