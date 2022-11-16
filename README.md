@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously.**
+**If you want to lift yourself up, lift up someone else.**
 
-Steve Maraboli
+Booker T. Washington
