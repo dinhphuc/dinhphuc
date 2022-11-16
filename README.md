@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's the repetition of affirmations that leads to belief. And once that belief becomes a deep conviction, things begin to happen.**
+**If you are not willing to risk the usual, you will have to settle for the ordinary.**
 
-Muhammad Ali
+Jim Rohn
