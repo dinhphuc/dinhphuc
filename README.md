@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to lift yourself up, lift up someone else.**
+**Dream without fear. Love without limits.**
 
-Booker T. Washington
+Dilip Bathija
