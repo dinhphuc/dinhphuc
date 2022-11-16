@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Focus on your goal. Don't look in any direction but ahead.**
+**Remember that guy that gave up? Neither does anyone else.**
 
 Anonymous
