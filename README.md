@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The reputation of a thousand years may be determined by the conduct of one hour.**
+**The beginning is the most important part of the work.**
 
-Japanese Proverb
+Plato
