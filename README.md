@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only journey is the one within.**
+**When will you realize, the more you take, the less you have.**
 
-Rainer Maria Rilke
+Master Oogway
