@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Dream big. Start small. But most of all, start.**
+**If you only do what you can do, you will never be more than you are now.**
 
-Simon Sinek
+Master Oogway
