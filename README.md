@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you believe it will work out, you'll see opportunities. If you believe it won't, you will see obstacles.**
+**I am happy because I'm grateful. I choose to be grateful. That gratitude allows me to be happy.**
 
-Wayne Dyer
+Will Arnett
