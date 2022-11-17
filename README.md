@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you cannot do great things, do small things in a great way.**
+**Don't let the past steal your present.**
 
-Napoleon Hill
+Terri Guillemets
