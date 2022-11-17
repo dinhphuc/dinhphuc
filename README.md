@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Stop beating yourself up. You are a work in progress which means you get there a little at a time, not all at once.**
+**If you cannot do great things, do small things in a great way.**
 
-Anonymous
+Napoleon Hill
