@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you only do what you can do, you will never be more than you are now.**
+**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
 
-Master Oogway
+Wayne Dyer
