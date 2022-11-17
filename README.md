@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The start is what stops most people.**
+**Focus on your goal. Don't look in any direction but ahead.**
 
-Don Shula
+Anonymous
