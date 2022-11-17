@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It takes but one positive thought when given a chance to survive and thrive to overpower an entire army of negative thoughts.**
+**Laugh. It's free medicine you don't need insurance for.**
 
-Robert H. Schuller
+Anonymous
