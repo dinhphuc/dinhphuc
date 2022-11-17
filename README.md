@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't let the past steal your present.**
+**Where love reigns, the impossible may be attained.**
 
-Terri Guillemets
+Indian Proverb
