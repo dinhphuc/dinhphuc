@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile, it is the key that fits the lock of everybody's heart.**
+**Age is whatever you think it is. You are as old as you think you are.**
 
-Anthony J D'Angelo
+Muhammad Ali
