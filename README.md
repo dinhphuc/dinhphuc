@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything that is done in this world is done by hope.**
+**Being optimistic really has nothing to do with happiness, it's just taking whatever life chucks at you and not letting it break you down.**
 
-Martin Luther
+Anonymous
