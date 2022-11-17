@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Where love reigns, the impossible may be attained.**
+**'Thank you' is the best prayer that anyone could say.**
 
-Indian Proverb
+Alice Walker
