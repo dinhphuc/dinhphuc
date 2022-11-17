@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One small positive thought in the morning can change your whole day.**
+**I'm too grateful to be hateful. I am too blessed to be stressed.**
 
-Anonymous
+El DeBarge
