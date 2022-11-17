@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To fall in love with yourself is the first secret to happiness.**
+**Dream without fear. Love without limits.**
 
-Robert Morley
+Dilip Bathija
