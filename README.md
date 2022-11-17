@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm too grateful to be hateful. I am too blessed to be stressed.**
+**I know I have unlimited potential to create the life of my dreams.**
 
-El DeBarge
+Anonymous
