@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Continuous effort - not strength or intelligence - is the key to unlocking our potential.**
+**Great minds discuss ideas; average minds discuss events; small minds discuss people.**
 
-Liane Cardes
+Eleanor Roosevelt
