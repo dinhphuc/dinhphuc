@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's going to be hard. But hard is not impossible.**
+**One small positive thought in the morning can change your whole day.**
 
 Anonymous
