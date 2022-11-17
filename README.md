@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Focus on your goal. Don't look in any direction but ahead.**
+**Stop beating yourself up. You are a work in progress which means you get there a little at a time, not all at once.**
 
 Anonymous
