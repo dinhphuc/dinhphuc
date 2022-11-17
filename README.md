@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't have to control your thoughts; you just have to stop letting them control you.**
+**To fall in love with yourself is the first secret to happiness.**
 
-Dan Millman
+Robert Morley
