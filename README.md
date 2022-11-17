@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Age is whatever you think it is. You are as old as you think you are.**
+**It's going to be hard. But hard is not impossible.**
 
-Muhammad Ali
+Anonymous
