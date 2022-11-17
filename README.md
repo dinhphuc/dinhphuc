@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Dream without fear. Love without limits.**
+**Smile, it is the key that fits the lock of everybody's heart.**
 
-Dilip Bathija
+Anthony J D'Angelo
