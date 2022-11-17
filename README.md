@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You may never know what results come of your actions, but if you do nothing, there will be no results.**
+**Continuous effort - not strength or intelligence - is the key to unlocking our potential.**
 
-Mahatma Gandhi
+Liane Cardes
