@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There will be obstacles. There will be doubters. There will be mistakes. But with hard work, there are no limits.**
+**Confidence is something you create in yourself by believing in who you are.**
 
 Anonymous
