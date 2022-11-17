@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**'Thank you' is the best prayer that anyone could say.**
+**You don't have to control your thoughts; you just have to stop letting them control you.**
 
-Alice Walker
+Dan Millman
