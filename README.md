@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are not willing to risk the usual, you will have to settle for the ordinary.**
+**Better than a thousand days of diligent study is one day with a great teacher.**
 
-Jim Rohn
+Jim Afremow
