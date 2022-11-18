@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't explain your philosophy. Embody it.**
+**Our problems don't stem from our ignorance so much as our disobedience of that which we know to be right.**
 
-Epictetus
+Stephen Covey
