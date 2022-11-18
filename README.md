@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're offered a seat on a rocket ship, don't ask what seat! Just get on.**
+**Make each day your masterpiece.**
 
-Sheryl Sandberg
+John Wooden
