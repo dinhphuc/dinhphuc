@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Difficulty is what wakes up the genius.**
+**Happy are those who take life day by day, complain very little, and are thankful for the little things in life.**
 
-Nassim Nicholas Taleb
+Anonymous
