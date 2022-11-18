@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Some people ask me 'How to be happy' and my answer is always the same: just be happy!**
+**The best feeling of happiness is when you're happy because you've made somebody else happy.**
 
 Anonymous
