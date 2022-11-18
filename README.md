@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is not a problem to be solved, but a reality to be experienced.**
+**Good friends are all that matter.**
 
-Soren Kierkegaard
+Anonymous
