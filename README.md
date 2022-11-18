@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be not afraid of life. Believe that life is worth living, and your belief will help create the fact.**
+**Earn your confidence, nurture it, then help to build it in others.**
 
-William James
+Alex Malley
