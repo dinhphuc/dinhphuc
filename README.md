@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happy are those who take life day by day, complain very little, and are thankful for the little things in life.**
+**Attachment leads to jealously. The shadow of greed, that is.**
 
-Anonymous
+Yoda
