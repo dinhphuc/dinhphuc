@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I failed my way to success.**
+**Choose kindness and laugh often.**
 
-Thomas Edison
+Anonymous
