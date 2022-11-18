@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No beauty shines brighter than that of a good heart.**
+**It's not who you are that holds you back, it's who you think you're not.**
 
 Anonymous
