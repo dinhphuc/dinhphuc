@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you see in yourself is what you see in the world.**
+**Some people ask me 'How to be happy' and my answer is always the same: just be happy!**
 
-Afghan Proverb
+Anonymous
