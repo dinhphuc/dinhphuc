@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Choose kindness and laugh often.**
+**Everything you need to accomplish your goals is already in you.**
 
 Anonymous
