@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our problems don't stem from our ignorance so much as our disobedience of that which we know to be right.**
+**Today is a beautiful day and I will attract good things into my life.**
 
-Stephen Covey
+Anonymous
