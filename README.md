@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No act of kindness, no matter how small, is ever wasted.**
+**Count your age by friends, not years. Count your life by smiles, not tears.**
 
-Aesop
+John Lennon
