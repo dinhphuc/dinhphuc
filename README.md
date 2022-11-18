@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One of the best ways of being happy with life is to make someone happy.**
+**What you see in yourself is what you see in the world.**
 
-Anonymous
+Afghan Proverb
