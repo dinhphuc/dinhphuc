@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The best feeling of happiness is when you're happy because you've made somebody else happy.**
+**If you are not willing to risk the usual, you will have to settle for the ordinary.**
 
-Anonymous
+Jim Rohn
