@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Attitude is a choice. Happiness is a choice. Optimism is a choice. Kindness is a choice. Giving is a choice. Respect is a choice. Whatever choice you make makes you. Choose wisely.**
+**Wherever you go, go with all your heart.**
 
-Roy T. Bennett
+Confucius
