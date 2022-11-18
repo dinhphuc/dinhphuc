@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Earn your confidence, nurture it, then help to build it in others.**
+**Set a goal that makes you want to jump out of bed in the morning.**
 
-Alex Malley
+Anonymous
