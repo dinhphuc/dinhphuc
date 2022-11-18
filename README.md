@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Today is a beautiful day and I will attract good things into my life.**
+**Difficulty is what wakes up the genius.**
 
-Anonymous
+Nassim Nicholas Taleb
