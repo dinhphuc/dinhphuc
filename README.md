@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your positive action combined with positive thinking results in success.**
+**When it gets difficult is often right before you succeed.**
 
-Anonymous
+Jeffrey Walker
