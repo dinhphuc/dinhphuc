@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good friends are all that matter.**
+**Don't explain your philosophy. Embody it.**
 
-Anonymous
+Epictetus
