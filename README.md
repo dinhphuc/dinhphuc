@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When it gets difficult is often right before you succeed.**
+**No beauty shines brighter than that of a good heart.**
 
-Jeffrey Walker
+Anonymous
