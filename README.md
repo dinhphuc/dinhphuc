@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Attachment leads to jealously. The shadow of greed, that is.**
+**Your positive action combined with positive thinking results in success.**
 
-Yoda
+Anonymous
