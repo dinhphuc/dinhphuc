@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I compete only with myself, and I try to become a better human being. This is my goal.**
+**Winning doesn't always mean being first. Winning means you're doing better than you've done before.**
 
-Sri Chinmoy
+Bonnie Blair
