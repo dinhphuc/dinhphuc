@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You're going to go through tough times - that's life. But I say, 'Nothing happens to you, it happens for you.' See the positive in negative events.**
+**Your body is made to move so move it.**
 
-Joel Osteen
+Toni Sorenson
