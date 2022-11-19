@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When times are good, be grateful, and when times are tough, be graceful.**
+**You've got to be willing to lose everything to gain yourself.**
 
-Dustin Poirier
+Iyanla Vanzant
