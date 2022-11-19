@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everyone is breakable, but not everyone is aware that it's a choice to stay broken.**
+**It's easy to stand in the crowd but it takes courage to stand alone.**
 
-Stanley Behrman
+Mahatma Gandhi
