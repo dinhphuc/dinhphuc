@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are never too old to set another goal or dream a new dream.**
+**With virtue, you can't be completely poor; without it, you can't be truly rich.**
 
-Les Brown
+Chinese Proverb
