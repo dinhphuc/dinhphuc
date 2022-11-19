@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No one controls how I feel about myself, but me.**
+**Confidence is something you create in yourself by believing in who you are.**
 
 Anonymous
