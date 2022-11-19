@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not about perfect. It's about effort.**
+**Keep smiling, because life is a beautiful thing and there's so much to smile about.**
 
-Jillian Michaels
+Marilyn Monroe
