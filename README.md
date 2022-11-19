@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The best way to gain self-confidence is to do what you are afraid to do.**
+**Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.**
 
-Swati Sharma
+Samuel Beckett
