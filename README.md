@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Anyone who has grown mentally, physically or spiritually knows that growth is not found in comfort.**
+**If I have the belief that I can do it, I shall surely acquire the capacity to do it even if I may not have it at the beginning.**
 
-Anonymous
+Gandhi
