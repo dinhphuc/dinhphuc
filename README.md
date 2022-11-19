@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once you choose hope, anything's possible.**
+**Don't miss out on something that could be great just because it could also be difficult.**
 
-Christopher Reeve
+Anonymous
