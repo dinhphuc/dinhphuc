@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be frightened by difficulties.**
+**When times are good, be grateful, and when times are tough, be graceful.**
 
-Ryan Holiday
+Dustin Poirier
