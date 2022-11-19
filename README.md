@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Education is the most powerful weapon which you can use to change the world.**
+**No one controls how I feel about myself, but me.**
 
-Nelson Mandela
+Anonymous
