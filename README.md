@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't miss out on something that could be great just because it could also be difficult.**
+**Your problem isn't the problem, it's your attitude about the problem.**
 
-Anonymous
+Ann Brashares
