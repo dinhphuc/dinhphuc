@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The more positive thoughts you have, the better you feel, which causes you to have more positive thoughts, then you feel even better.**
+**You're going to go through tough times - that's life. But I say, 'Nothing happens to you, it happens for you.' See the positive in negative events.**
 
-James Borg
+Joel Osteen
