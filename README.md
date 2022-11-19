@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are only two options regarding commitment. You're either IN or you're OUT. There is no such thing as life in-between.**
+**If you're offered a seat on a rocket ship, don't ask what seat! Just get on.**
 
-Pat Riley
+Sheryl Sandberg
