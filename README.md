@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You've got to be willing to lose everything to gain yourself.**
+**Don't be frightened by difficulties.**
 
-Iyanla Vanzant
+Ryan Holiday
