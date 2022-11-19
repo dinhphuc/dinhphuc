@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be frightened by difficulties.**
+**Teachers open the door; you enter by yourself.**
 
-Ryan Holiday
+Chinese Proverb
