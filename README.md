@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your body is made to move so move it.**
+**Your task is not to seek for love, but merely to seek and find all the barriers within yourself that you have built against it.**
 
-Toni Sorenson
+Rumi
