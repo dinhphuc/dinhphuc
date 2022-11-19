@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're offered a seat on a rocket ship, don't ask what seat! Just get on.**
+**Everyone is breakable, but not everyone is aware that it's a choice to stay broken.**
 
-Sheryl Sandberg
+Stanley Behrman
