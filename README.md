@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Better than a thousand days of diligent study is one day with a great teacher.**
+**Count your age by friends, not years. Count your life by smiles, not tears.**
 
-Jim Afremow
+John Lennon
