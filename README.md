@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Plenty of people miss their share of happiness, not because they never found it, but because they didn't stop to enjoy it.**
+**There are only two options regarding commitment. You're either IN or you're OUT. There is no such thing as life in-between.**
 
-William Feather
+Pat Riley
