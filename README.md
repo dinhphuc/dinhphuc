@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**With virtue, you can't be completely poor; without it, you can't be truly rich.**
+**I compete only with myself, and I try to become a better human being. This is my goal.**
 
-Chinese Proverb
+Sri Chinmoy
