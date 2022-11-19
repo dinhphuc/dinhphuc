@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence is something you create in yourself by believing in who you are.**
+**Anyone who has grown mentally, physically or spiritually knows that growth is not found in comfort.**
 
 Anonymous
