@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your task is not to seek for love, but merely to seek and find all the barriers within yourself that you have built against it.**
+**You may never know what results come of your actions, but if you do nothing, there will be no results.**
 
-Rumi
+Mahatma Gandhi
