@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I compete only with myself, and I try to become a better human being. This is my goal.**
+**You are never too old to set another goal or dream a new dream.**
 
-Sri Chinmoy
+Les Brown
