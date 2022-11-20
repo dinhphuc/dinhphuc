@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between ordinary and extraordinary is that little extra.**
+**Spend more of your time on what gives you energy and less of your time on what takes it away.**
 
-Jimmy Johnson
+Anonymous
