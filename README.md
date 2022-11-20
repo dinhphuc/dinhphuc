@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only impossible journey is the one you never begin.**
+**Whenever you see a successful person, you only see the public glories, never the private sacrifices to reach them.**
 
-Tony Robbins
+Vaibhav Shah
