@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To know the road ahead, ask those coming back.**
+**Love is not running away or giving up, it is standing and fighting for every moment.**
 
-Chinese Proverb
+M.F. Moonzajer
