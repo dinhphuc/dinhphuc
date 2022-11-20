@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I hated every minute of training, but I said, 'Don't quit. Suffer now and live the rest of your life as a champion'.**
+**What you're thinking is what you're becoming.**
 
 Muhammad Ali
