@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be so happy that when others look at you they become happy too.**
+**Today, give a stranger one of your smiles. It might be the only sunshine they see all day.**
 
-Anonymous
+H. Jackson Brown Jr
