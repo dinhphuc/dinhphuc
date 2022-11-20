@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is a magical ride. Enjoy every moment.**
+**When someone told me I lived in a fantasy land, I nearly fell off my unicorn.**
 
 Anonymous
