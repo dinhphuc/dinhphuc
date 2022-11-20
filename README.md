@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love who you are, embrace who you are. Love yourself.**
+**When someone told me I lived in a fantasy land, I nearly fell off my unicorn.**
 
-Lilly Singh
+Anonymous
