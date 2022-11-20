@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter what you do, that seed will grow to be a peach tree. You may wish for an apple or an orange, but you will get a peach.**
+**He who lives in harmony with himself lives in harmony with the universe.**
 
-Master Oogway
+Marcus Aurelius
