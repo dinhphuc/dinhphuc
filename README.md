@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your task is not to seek for love, but merely to seek and find all the barriers within yourself that you have built against it.**
+**There is no greater miracle than our conscious efforts to become good human beings.**
 
-Rumi
+Sri Chinmoy
