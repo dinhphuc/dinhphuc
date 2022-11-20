@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe with all of your heart that you will do what you were made to do.**
+**You're braver than you believe, and stronger than you seem, and smarter than you think.**
 
-Orison Swett Marden
+A.A. Mine
