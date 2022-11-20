@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You may never know what results come of your actions, but if you do nothing, there will be no results.**
+**Happiness is only real when shared.**
 
-Mahatma Gandhi
+Jon Krakauer
