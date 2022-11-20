@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You're braver than you believe, and stronger than you seem, and smarter than you think.**
+**The goal is not to be perfect by the end. The goal is to be better today.**
 
-A.A. Mine
+Simon Sinek
