@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When someone told me I lived in a fantasy land, I nearly fell off my unicorn.**
+**I'm not telling you it is going to be easy, I'm telling you it's going to be worth it.**
 
-Anonymous
+Art Williams
