@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**He who lives in harmony with himself lives in harmony with the universe.**
+**Love who you are, embrace who you are. Love yourself.**
 
-Marcus Aurelius
+Lilly Singh
