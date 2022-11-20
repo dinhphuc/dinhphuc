@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you're thinking is what you're becoming.**
+**There is no shame in not knowing; the shame lies in not finding out.**
 
-Muhammad Ali
+Russian Proverb
