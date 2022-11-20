@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Learn from the past, set vivid, detailed goals for the future, and live in the only moment of time over which you have any control: now.**
+**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
 
-Denis Waitley
+Wayne Dyer
