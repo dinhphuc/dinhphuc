@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love is not running away or giving up, it is standing and fighting for every moment.**
+**No matter what you do, that seed will grow to be a peach tree. You may wish for an apple or an orange, but you will get a peach.**
 
-M.F. Moonzajer
+Master Oogway
