@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Focus on your goal. Don't look in any direction but ahead.**
+**One conquers the world by conquering himself.**
 
-Anonymous
+Zeno of Citium
