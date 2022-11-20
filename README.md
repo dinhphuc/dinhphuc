@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is only real when shared.**
+**Spend more of your time on what gives you energy and less of your time on what takes it away.**
 
-Jon Krakauer
+Anonymous
