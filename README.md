@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Today, give a stranger one of your smiles. It might be the only sunshine they see all day.**
+**If I have the belief that I can do it, I shall surely acquire the capacity to do it even if I may not have it at the beginning.**
 
-H. Jackson Brown Jr
+Gandhi
