@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
+**The only impossible journey is the one you never begin.**
 
-Wayne Dyer
+Tony Robbins
