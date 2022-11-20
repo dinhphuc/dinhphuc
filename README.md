@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One conquers the world by conquering himself.**
+**Be so happy that when others look at you they become happy too.**
 
-Zeno of Citium
+Anonymous
