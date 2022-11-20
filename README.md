@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Spend more of your time on what gives you energy and less of your time on what takes it away.**
+**Your task is not to seek for love, but merely to seek and find all the barriers within yourself that you have built against it.**
 
-Anonymous
+Rumi
