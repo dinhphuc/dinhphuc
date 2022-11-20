@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whenever you see a successful person, you only see the public glories, never the private sacrifices to reach them.**
+**Many of life's failures are people who did not realize how close they were to success when they gave up.**
 
-Vaibhav Shah
+Thomas A. Edison
