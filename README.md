@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A little progress each day adds up to big results.**
+**The greatest discovery of all time is that a person can change their future by merely changing their attitude.**
 
-Satya Nani
+Oprah Winfrey
