@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Plenty of people miss their share of happiness, not because they never found it, but because they didn't stop to enjoy it.**
+**You will never always be motivated. You have to learn to be disciplined.**
 
-William Feather
+Anonymous
