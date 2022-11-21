@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't wait around for other people to be happy for you. Any happiness you get, you've got to make yourself.**
+**I compete only with myself, and I try to become a better human being. This is my goal.**
 
-Alice Walker
+Sri Chinmoy
