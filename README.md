@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you don't talk, there's a lot of stuff that ends up not getting said.**
+**And in the end, the love you take, is equal to the love you make.**
 
-Catherine Gilbert Murdock
+The Beatles
