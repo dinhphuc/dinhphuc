@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success consists of getting up just one more time than you fall.**
+**When you don't talk, there's a lot of stuff that ends up not getting said.**
 
-Oliver Goldsmith
+Catherine Gilbert Murdock
