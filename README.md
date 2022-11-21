@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I compete only with myself, and I try to become a better human being. This is my goal.**
+**Until you're broken, you don't know what you're made of.**
 
-Sri Chinmoy
+Anonymous
