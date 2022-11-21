@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep going. Everything you need will come to you at the perfect time.**
+**Opportunities don't happen. You create them.**
 
-Anonymous
+Chris Grosser
