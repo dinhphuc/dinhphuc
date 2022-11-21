@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile at strangers and you just might change a life.**
+**A little progress each day adds up to big results.**
 
-Steve Maraboli
+Satya Nani
