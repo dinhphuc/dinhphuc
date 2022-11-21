@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is never fair, and perhaps it is a good thing for most of us that it is not.**
+**Our own self-esteem is something we can actually twist in whatever way we want.**
 
-Oscar Wilde
+Stephen Richards
