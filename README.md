@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everywhere you go, take a smile with you.**
+**Every accomplishment begins with the decision to try.**
 
-Sasha Azevedo
+Anonymous
