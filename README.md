@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every accomplishment begins with the decision to try.**
+**Keep going. Everything you need will come to you at the perfect time.**
 
 Anonymous
