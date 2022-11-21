@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Acting on a good idea is better than just having a good idea.**
+**Cry. Forgive. Learn. Move on. Let your tears water the seeds of your future happiness.**
 
-Robert Half
+Steve Maraboli
