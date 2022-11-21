@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Opportunities don't happen. You create them.**
+**The difference between the impossible and the possible lies in a person's determination.**
 
-Chris Grosser
+Tommy Lasorda
