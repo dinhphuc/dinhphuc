@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A team is not a group of people that work together. A team is a group of people that trust each other.**
+**The trophy is earned in the hours that no one is watching.**
 
-Simon Sinek
+Anonymous
