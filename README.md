@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never underestimate the power you have to take your life in a new direction.**
+**Smile at strangers and you just might change a life.**
 
-Germany Kent
+Steve Maraboli
