@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our own self-esteem is something we can actually twist in whatever way we want.**
+**A team is not a group of people that work together. A team is a group of people that trust each other.**
 
-Stephen Richards
+Simon Sinek
