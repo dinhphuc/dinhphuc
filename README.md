@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will never always be motivated. You have to learn to be disciplined.**
+**Shine like the whole universe is yours.**
 
-Anonymous
+Rumi
