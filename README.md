@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Choosing to be positive and having a grateful attitude is going to determine how you're going to live your life.**
+**Acting on a good idea is better than just having a good idea.**
 
-Joel Osteen
+Robert Half
