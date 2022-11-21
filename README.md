@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between the impossible and the possible lies in a person's determination.**
+**Life is never fair, and perhaps it is a good thing for most of us that it is not.**
 
-Tommy Lasorda
+Oscar Wilde
