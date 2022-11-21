@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Until you're broken, you don't know what you're made of.**
+**Love the life you live. Live the life you love.**
 
-Anonymous
+Bob Marley
