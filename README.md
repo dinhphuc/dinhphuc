@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love the life you live. Live the life you love.**
+**Open your eyes and notice the beauty of this wonderful world.**
 
-Bob Marley
+Anonymous
