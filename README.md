@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Open your eyes and notice the beauty of this wonderful world.**
+**Everywhere you go, take a smile with you.**
 
-Anonymous
+Sasha Azevedo
