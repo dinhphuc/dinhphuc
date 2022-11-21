@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The trophy is earned in the hours that no one is watching.**
+**Never underestimate the power you have to take your life in a new direction.**
 
-Anonymous
+Germany Kent
