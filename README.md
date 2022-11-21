@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't criticize, condemn or complain.**
+**There are two things a person should never be angry at: what they can help, and what they cannot.**
 
-Dale Carnegie
+Plato
