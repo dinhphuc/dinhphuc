@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**And in the end, the love you take, is equal to the love you make.**
+**Do something today that your future self will thank you for.**
 
-The Beatles
+Anonymous
