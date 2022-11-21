@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no shame in not knowing; the shame lies in not finding out.**
+**Don't wait around for other people to be happy for you. Any happiness you get, you've got to make yourself.**
 
-Russian Proverb
+Alice Walker
