@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Cry. Forgive. Learn. Move on. Let your tears water the seeds of your future happiness.**
+**If you feel like giving up, just look back on how far you are already.**
 
-Steve Maraboli
+Anonymous
