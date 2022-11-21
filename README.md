@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you feel like giving up, just look back on how far you are already.**
+**Success consists of getting up just one more time than you fall.**
 
-Anonymous
+Oliver Goldsmith
