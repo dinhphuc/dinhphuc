@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's gonna get harder before it gets easier. But it will get better, you just gotta make it through the hard stuff first.**
+**For every minute you are angry you lose sixty seconds of happiness.**
 
-Anonymous
+Ralph Waldo Emerson
