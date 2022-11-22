@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I don't count my sit-ups; I only start counting when it starts hurting because they're the only ones that count.**
+**Maybe it won't work out. But maybe seeing if it does will be the best adventure ever.**
 
-Muhammad Ali
+Anonymous
