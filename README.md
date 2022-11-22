@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Maybe it won't work out. But maybe seeing if it does will be the best adventure ever.**
+**It's gonna get harder before it gets easier. But it will get better, you just gotta make it through the hard stuff first.**
 
 Anonymous
