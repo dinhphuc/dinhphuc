@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Opportunities to find deeper powers within ourselves come when life seems most challenging.**
+**You walk through life much easier with a smile on your face.**
 
-Joseph Campbell
+Sweet Paul
