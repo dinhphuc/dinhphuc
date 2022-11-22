@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile, it is the key that fits the lock of everybody's heart.**
+**Don't be frightened by difficulties.**
 
-Anthony J D'Angelo
+Ryan Holiday
