@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Mistakes are proof that you are trying.**
+**Your problem isn't the problem, it's your attitude about the problem.**
 
-Anonymous
+Ann Brashares
