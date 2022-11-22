@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not in the stars to hold our destiny but in ourselves.**
+**Just think how happy you would be if you lost everything you have right now, and then got it back again.**
 
-William Shakespeare
+Frances Rodman
