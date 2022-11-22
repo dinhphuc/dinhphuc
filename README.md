@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Replace those thoughts of worry with thoughts of hope, faith, and victory.**
+**I am in charge of how I feel and today I am choosing happiness.**
 
-Joel Osteen
+Anonymous
