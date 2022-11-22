@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is nothing permanent except change.**
+**You are what you believe yourself to be.**
 
-Heraclitus
+Paulo Coelho
