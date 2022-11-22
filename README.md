@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything you need to accomplish your goals is already in you.**
+**I don't count my sit-ups; I only start counting when it starts hurting because they're the only ones that count.**
 
-Anonymous
+Muhammad Ali
