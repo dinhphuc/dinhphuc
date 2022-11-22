@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**For every minute you are angry you lose sixty seconds of happiness.**
+**Use your smile to change the world; don't let the world change your smile.**
 
-Ralph Waldo Emerson
+Chinese proverb
