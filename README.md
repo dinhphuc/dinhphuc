@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you dare to dream, dare to follow that dream; dare to suffer through the pain, sacrifice, self-doubts and friction from the world.**
+**It is not in the stars to hold our destiny but in ourselves.**
 
-Laura Schlessinger
+William Shakespeare
