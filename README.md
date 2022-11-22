@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't fear moving slowly forward...fear standing still.**
+**Good friends are like stars. You don't always see them, but you know they're always there.**
 
-Kathleen Harris
+Christy Evans
