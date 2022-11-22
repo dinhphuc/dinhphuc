@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hardships often prepare ordinary people for an extraordinary destiny.**
+**Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching.**
 
-C.S. Lewis
+Satchel Paige
