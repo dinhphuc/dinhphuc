@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't explain your philosophy. Embody it.**
+**Opportunities to find deeper powers within ourselves come when life seems most challenging.**
 
-Epictetus
+Joseph Campbell
