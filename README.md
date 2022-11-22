@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You walk through life much easier with a smile on your face.**
+**Running is therapy anyone can afford.**
 
-Sweet Paul
+Toni Sorenson
