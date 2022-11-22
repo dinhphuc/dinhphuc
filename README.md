@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I am in charge of how I feel and today I am choosing happiness.**
+**You are somebody's reason to smile.**
 
 Anonymous
