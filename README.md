@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Running is therapy anyone can afford.**
+**Don't fear moving slowly forward...fear standing still.**
 
-Toni Sorenson
+Kathleen Harris
