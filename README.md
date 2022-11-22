@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good friends are like stars. You don't always see them, but you know they're always there.**
+**Hardships often prepare ordinary people for an extraordinary destiny.**
 
-Christy Evans
+C.S. Lewis
