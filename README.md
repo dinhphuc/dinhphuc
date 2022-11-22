@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you think of yourself is much more important than what people think of you.**
+**The happiness of your life depends upon the quality of your thoughts.**
 
-Anonymous
+Marcus Aurelius
