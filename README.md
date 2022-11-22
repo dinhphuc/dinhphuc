@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Use your smile to change the world; don't let the world change your smile.**
+**Replace those thoughts of worry with thoughts of hope, faith, and victory.**
 
-Chinese proverb
+Joel Osteen
