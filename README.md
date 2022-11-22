@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you do, do with all your might.**
+**When you dare to dream, dare to follow that dream; dare to suffer through the pain, sacrifice, self-doubts and friction from the world.**
 
-Marcus Tullius Cicero
+Laura Schlessinger
