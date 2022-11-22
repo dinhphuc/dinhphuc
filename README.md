@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The very best thing you can do for the whole world is to make the best of yourself.**
+**Whatever you do, do with all your might.**
 
-Anonymous
+Marcus Tullius Cicero
