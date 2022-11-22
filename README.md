@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are somebody's reason to smile.**
+**100% commitment is easier than 98% commitment.**
 
-Anonymous
+Harvard Business School
