@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not who you are that holds you back, it's who you think you're not.**
+**Smile, it is the key that fits the lock of everybody's heart.**
 
-Anonymous
+Anthony J D'Angelo
