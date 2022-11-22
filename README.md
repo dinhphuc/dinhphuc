@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be frightened by difficulties.**
+**Always be yourself and have faith in yourself. Do not go out and look for a successful personality and try to duplicate it.**
 
-Ryan Holiday
+Bruce Lee
