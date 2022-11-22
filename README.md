@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Look at this tree. I cannot make it blossom when it suits me, nor make it bear fruit before its time.**
+**The very best thing you can do for the whole world is to make the best of yourself.**
 
-Master Oogway
+Anonymous
