@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Just think how happy you would be if you lost everything you have right now, and then got it back again.**
+**Great minds discuss ideas; average minds discuss events; small minds discuss people.**
 
-Frances Rodman
+Eleanor Roosevelt
