@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A difficult time can be more readily endured if we retain the conviction that our existence holds a purpose - a cause to pursue, a person to love, a goal to achieve.**
+**Leadership is not about being in charge. Leadership is about taking care of those in your charge.**
 
-John Maxwell
+Simon Sinek
