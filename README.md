@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your problem isn't the problem, it's your attitude about the problem.**
+**Look at this tree. I cannot make it blossom when it suits me, nor make it bear fruit before its time.**
 
-Ann Brashares
+Master Oogway
