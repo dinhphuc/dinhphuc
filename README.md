@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The happiness of your life depends upon the quality of your thoughts.**
+**Mistakes are proof that you are trying.**
 
-Marcus Aurelius
+Anonymous
