@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**More smiling, less worrying. More compassion, less judgment. More blessed, less stressed. More love, less hate.**
+**There is nothing permanent except change.**
 
-Roy T. Bennett
+Heraclitus
