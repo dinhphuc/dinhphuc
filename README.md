@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are what you believe yourself to be.**
+**Stop doubting yourself. Work hard and make it happen.**
 
-Paulo Coelho
+Anonymous
