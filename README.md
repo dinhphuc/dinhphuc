@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Passion first and everything will fall into place.**
+**None of us is as smart as all of us.**
 
-Holly Holm
+Ken Blanchard
