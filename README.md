@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Appreciate the people who make you smile.**
+**Learning never exhausts the mind.**
 
-Anonymous
+Leonardo da Vinci
