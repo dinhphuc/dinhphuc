@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be humble in your confidence yet courageous in your character.**
+**We can't help everyone, but everyone can help someone.**
 
-Melanie Koulouris
+Ronald Reagan
