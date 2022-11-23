@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One of the simplest ways to be happy is letting go of the things that make you sad.**
+**I've never let anyone talk me into not believing in myself.**
 
-Anonymous
+Muhammad Ali
