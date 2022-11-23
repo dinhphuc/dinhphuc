@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We love life, not because we are used to living but because we are used to loving.**
+**When we are no longer able to change a situation - we are challenged to change ourselves.**
 
-Friedrich Nietzsche
+Viktor E. Frankl
