@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be patient, good things are coming your way.**
+**Love cures people - both the ones who give it and the ones who receive it.**
 
-Anonymous
+Karl A. Menninger
