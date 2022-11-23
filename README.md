@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is not final, failure is not fatal: it is the courage to continue that counts.**
+**Don't wait around for other people to be happy for you. Any happiness you get, you've got to make yourself.**
 
-Winston Churchill
+Alice Walker
