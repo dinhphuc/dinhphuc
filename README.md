@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love cures people - both the ones who give it and the ones who receive it.**
+**Success is not final, failure is not fatal: it is the courage to continue that counts.**
 
-Karl A. Menninger
+Winston Churchill
