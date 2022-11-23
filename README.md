@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't wait around for other people to be happy for you. Any happiness you get, you've got to make yourself.**
+**Often it isn't the mountains ahead that wear you out, it's the little pebble in your shoe.**
 
-Alice Walker
+Muhammad Ali
