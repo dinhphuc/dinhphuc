@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember that guy that gave up? Neither does anyone else.**
+**If you want to find happiness, find gratitude.**
 
-Anonymous
+Steve Maraboli
