@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Feel the force!**
+**There is always something more to learn. Even for a master.**
 
-Yoda
+Master Oogway
