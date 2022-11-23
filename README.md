@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When we are no longer able to change a situation - we are challenged to change ourselves.**
+**Be humble in your confidence yet courageous in your character.**
 
-Viktor E. Frankl
+Melanie Koulouris
