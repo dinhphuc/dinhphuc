@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Often it isn't the mountains ahead that wear you out, it's the little pebble in your shoe.**
+**A little progress each day adds up to big results.**
 
-Muhammad Ali
+Satya Nani
