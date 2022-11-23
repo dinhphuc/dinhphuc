@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Champions keep playing until they get it right.**
+**Remember that guy that gave up? Neither does anyone else.**
 
-Billie Jean King
+Anonymous
