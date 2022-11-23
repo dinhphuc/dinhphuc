@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Great minds discuss ideas; average minds discuss events; small minds discuss people.**
+**Appreciate the people who make you smile.**
 
-Eleanor Roosevelt
+Anonymous
