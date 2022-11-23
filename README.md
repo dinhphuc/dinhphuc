@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A challenge lifelong it is, not to bend fear into anger.**
+**Kill them with success and bury them with a smile.**
 
-Yoda
+Usain Bolt
