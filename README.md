@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Stop doubting yourself. Work hard and make it happen.**
+**A challenge lifelong it is, not to bend fear into anger.**
 
-Anonymous
+Yoda
