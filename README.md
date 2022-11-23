@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Kill them with success and bury them with a smile.**
+**You have to be at your strongest when you're feeling at your weakest.**
 
-Usain Bolt
+Anonymous
