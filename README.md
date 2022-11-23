@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can either complain about it or grind, I choose to grind.**
+**Champions keep playing until they get it right.**
 
-Kyle Vidrine
+Billie Jean King
