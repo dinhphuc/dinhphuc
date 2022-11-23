@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to find happiness, find gratitude.**
+**Whoever loves much, performs much, and can accomplish much, and what is done in love is done well.**
 
-Steve Maraboli
+Vincent van Gogh
