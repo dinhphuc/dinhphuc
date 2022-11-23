@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't blame gravity for falling in love.**
+**Passion first and everything will fall into place.**
 
-Albert Einstein
+Holly Holm
