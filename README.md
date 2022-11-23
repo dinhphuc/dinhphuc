@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is always something more to learn. Even for a master.**
+**You can either complain about it or grind, I choose to grind.**
 
-Master Oogway
+Kyle Vidrine
