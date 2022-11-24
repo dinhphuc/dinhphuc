@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smaller in number are we, but larger in mind.**
+**Remember that guy that gave up? Neither does anyone else.**
 
-Yoda
+Anonymous
