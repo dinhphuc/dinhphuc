@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A house is made of bricks and beams. A home is made of hopes and dreams.**
+**Believe in yourself and you can be anything.**
 
-Anonymous
+Katy Perry
