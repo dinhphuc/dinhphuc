@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody can make you to feel inferior without your consent.**
+**No marathon gets easier later. The halfway point only marks the end of the beginning.**
 
-Eleanor Roosevelt
+Joe Henderson
