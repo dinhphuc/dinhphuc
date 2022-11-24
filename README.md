@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Trust the process of life.**
+**Smaller in number are we, but larger in mind.**
 
-Anonymous
+Yoda
