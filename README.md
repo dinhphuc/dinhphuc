@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your hardest times often lead to the greatest moments of your life. Keep going. Tough situations build strong people in the end.**
+**You can't blame gravity for falling in love.**
 
-Roy T. Bennett
+Albert Einstein
