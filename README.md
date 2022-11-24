@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't waste a minute not being happy. If one door closes, run to the next window - or break down a door.**
+**Keep smiling, because life is a beautiful thing and there's so much to smile about.**
 
-Brooke Shields
+Marilyn Monroe
