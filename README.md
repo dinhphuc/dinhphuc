@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Go fast enough to get there, but slow enough to see.**
+**I don't care how long it takes me, but I'm going somewhere beautiful.**
 
-Jimmy Buffett
+Anonymous
