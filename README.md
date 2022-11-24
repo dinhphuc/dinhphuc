@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Forgiving yourself, believing in yourself and choosing to love yourself are the best gifts one could receive.**
+**Once you choose hope, anything's possible.**
 
-Brittany Burgunder
+Christopher Reeve
