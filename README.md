@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If one dream should fall and break into a thousand pieces, never be afraid to pick one of those pieces up and begin again.**
+**Make today so awesome yesterday gets jealous.**
 
-Flavia Weedn
+Anonymous
