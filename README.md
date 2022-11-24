@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't blame gravity for falling in love.**
+**Be you. Do you. For you.**
 
-Albert Einstein
+Anonymous
