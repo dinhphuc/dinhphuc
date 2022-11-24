@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm not here to be average, I'm here to be awesome.**
+**Don't try to be perfect. Just try to be better than you were yesterday.**
 
 Anonymous
