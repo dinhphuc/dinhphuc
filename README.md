@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We can be who we are without the pleasures but we could not be who we are not without the hardships.**
+**Be helpful. When you see a person without a smile, give them yours.**
 
-Anonymous
+Zig Ziglar
