@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be helpful. When you see a person without a smile, give them yours.**
+**Whoever gossips to you will gossip about you.**
 
-Zig Ziglar
+Spanish Proverb
