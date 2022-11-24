@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure is not the falling down but the staying down.**
+**Nobody can make you to feel inferior without your consent.**
 
-Anonymous
+Eleanor Roosevelt
