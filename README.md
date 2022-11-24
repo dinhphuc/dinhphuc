@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep smiling, because life is a beautiful thing and there's so much to smile about.**
+**The purpose of our lives is to be happy.**
 
-Marilyn Monroe
+Dalai Lama
