@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I don't care how long it takes me, but I'm going somewhere beautiful.**
+**May you live all the days of your life.**
 
-Anonymous
+Jonathan Swift
