@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The purpose of our lives is to be happy.**
+**I'm not here to be average, I'm here to be awesome.**
 
-Dalai Lama
+Anonymous
