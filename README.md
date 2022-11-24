@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Make today so awesome yesterday gets jealous.**
+**A house is made of bricks and beams. A home is made of hopes and dreams.**
 
 Anonymous
