@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All souls are lost until they are found.**
+**Happiness is a journey ... not a destination.**
 
-Kate McGahan
+Ben Sweetland
