@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is a journey ... not a destination.**
+**May the Force be with you.**
 
-Ben Sweetland
+Yoda
