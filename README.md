@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe in yourself and you can be anything.**
+**Climb the mountains to see lowlands.**
 
-Katy Perry
+Chinese Proverb
