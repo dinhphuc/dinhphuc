@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once you choose hope, anything's possible.**
+**Go fast enough to get there, but slow enough to see.**
 
-Christopher Reeve
+Jimmy Buffett
