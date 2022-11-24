@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**May you live all the days of your life.**
+**All souls are lost until they are found.**
 
-Jonathan Swift
+Kate McGahan
