@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The best feeling of happiness is when you're happy because you've made somebody else happy.**
+**We can be who we are without the pleasures but we could not be who we are not without the hardships.**
 
 Anonymous
