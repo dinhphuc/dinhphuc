@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Wherever you go, no matter what the weather, always bring your own sunshine.**
+**Failure is not the falling down but the staying down.**
 
-Anthony J. D'Angelo
+Anonymous
