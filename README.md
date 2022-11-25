@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe in yourself. You are braver than you think, more talented than you know, and capable of more than you imagine.**
+**Only a man who knows what it is like to be defeated can reach down to the bottom of his soul and come up with the extra ounce of power it takes to win when the match is even.**
 
-Roy T. Bennett
+Muhammad Ali
