@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your body is made to move so move it.**
+**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
 
-Toni Sorenson
+Wayne Dyer
