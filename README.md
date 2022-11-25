@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A runner must run with dreams in his heart.**
+**If you are willing to do more than you are paid to do, eventually you will be paid to do more than you do.**
 
-Emil Zatopek
+Anonymous
