@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence is the ability to feel beautiful, without needing someone to tell you.**
+**If you go to a donkey's house, don't talk about ears.**
 
-Anonymous
+Jamaican Proverb
