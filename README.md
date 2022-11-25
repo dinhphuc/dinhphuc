@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We know what we are, but know not what we may be.**
+**Happy people don't have the best of everything they make the best of everything.**
 
-William Shakespeare
+Anonymous
