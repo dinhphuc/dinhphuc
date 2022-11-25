@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Think well of all, be patient with all, and try to find the good in all.**
+**Age is whatever you think it is. You are as old as you think you are.**
 
 Muhammad Ali
