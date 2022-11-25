@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is a difference between giving up and knowing when you've had enough.**
+**Don't stop until you're proud.**
 
 Anonymous
