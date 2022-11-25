@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The start is what stops most people.**
+**We know what we are, but know not what we may be.**
 
-Don Shula
+William Shakespeare
