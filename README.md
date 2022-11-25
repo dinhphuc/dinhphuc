@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I survived because the fire inside me burned brighter than the fire around me.**
+**Think well of all, be patient with all, and try to find the good in all.**
 
-Joshua Graham
+Muhammad Ali
