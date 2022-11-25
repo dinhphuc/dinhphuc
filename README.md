@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life's a journey not a race.**
+**I have found that if you love life, life will love you back.**
 
-Meir Ezra
+Arthur Rubinstein
