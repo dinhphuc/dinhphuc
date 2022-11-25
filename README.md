@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I have found that if you love life, life will love you back.**
+**You walk through life much easier with a smile on your face.**
 
-Arthur Rubinstein
+Sweet Paul
