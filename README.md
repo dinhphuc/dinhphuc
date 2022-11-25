@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do what makes you happy.**
+**Your body is made to move so move it.**
 
-Rachel Ann Nunes
+Toni Sorenson
