@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happy people don't have the best of everything they make the best of everything.**
+**I survived because the fire inside me burned brighter than the fire around me.**
 
-Anonymous
+Joshua Graham
