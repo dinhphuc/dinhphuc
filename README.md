@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**My heart is always open to love.**
+**Winning isn't everything, but wanting to win is.**
 
-Anonymous
+Vince Lombardi
