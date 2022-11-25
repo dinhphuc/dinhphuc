@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You miss 100% of the shots you don't take.**
+**One of the simplest ways to be happy is letting go of the things that make you sad.**
 
-Wayne Gretzky
+Anonymous
