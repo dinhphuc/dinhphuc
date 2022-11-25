@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One of the simplest ways to be happy is letting go of the things that make you sad.**
+**It is not the strongest of the species that survive, nor the most intelligent, but the one most responsive to change.**
 
-Anonymous
+Charles Darwin
