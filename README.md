@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If no mistake have you made, yet losing you are... a different game you should play.**
+**I alone cannot change the world, but I can cast a stone across the water to create many ripples.**
 
-Yoda
+Mother Teresa
