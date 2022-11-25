@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Age is whatever you think it is. You are as old as you think you are.**
+**Confidence is the ability to feel beautiful, without needing someone to tell you.**
 
-Muhammad Ali
+Anonymous
