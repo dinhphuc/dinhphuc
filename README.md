@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe in yourself. You are braver than you think, more talented than you know, and capable of more than you imagine.**
+**When things are bad, remember: it won't always be this way. Take one day at a time.**
 
-Roy T. Bennett
+Anonymous
