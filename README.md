@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One often meets his destiny on the road he takes to avoid it.**
+**My heart is always open to love.**
 
-Master Oogway
+Anonymous
