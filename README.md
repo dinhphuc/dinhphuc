@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When things are bad, remember: it won't always be this way. Take one day at a time.**
+**You miss 100% of the shots you don't take.**
 
-Anonymous
+Wayne Gretzky
