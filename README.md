@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
+**There is a difference between giving up and knowing when you've had enough.**
 
-Wayne Dyer
+Anonymous
