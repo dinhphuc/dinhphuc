@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Winning isn't everything, but wanting to win is.**
+**A runner must run with dreams in his heart.**
 
-Vince Lombardi
+Emil Zatopek
