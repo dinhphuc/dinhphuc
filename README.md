@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's better to light a candle than curse the darkness.**
+**If no mistake have you made, yet losing you are... a different game you should play.**
 
-Chinese Proverb
+Yoda
