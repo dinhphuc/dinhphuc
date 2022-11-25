@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you go to a donkey's house, don't talk about ears.**
+**It's better to light a candle than curse the darkness.**
 
-Jamaican Proverb
+Chinese Proverb
