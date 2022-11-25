@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't stop until you're proud.**
+**Life's a journey not a race.**
 
-Anonymous
+Meir Ezra
