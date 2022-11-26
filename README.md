@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**As long as we have hope, we have direction, the energy to move, and the map to move by.**
+**The first duty of love is to listen.**
 
-Lao Tzu
+Paul Tillich
