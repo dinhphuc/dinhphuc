@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always find opportunities to make someone smile, and to offer random acts of kindness in everyday life.**
+**Surround yourself with people who get you.**
 
-Roy T. Bennett
+Anonymous
