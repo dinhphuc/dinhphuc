@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always deliver more than expected.**
+**Appreciate the people who make you smile.**
 
-Larry Page
+Anonymous
