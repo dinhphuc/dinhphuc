@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You may say I'm a dreamer but I'm not the only one.**
+**Don't think about what might go wrong. Think about what might go right.**
 
-John Lennon
+Anonymous
