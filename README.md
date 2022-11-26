@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If no mistake have you made, yet losing you are... a different game you should play.**
+**Surround yourself with people who get you.**
 
-Yoda
+Anonymous
