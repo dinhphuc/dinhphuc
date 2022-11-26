@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Push yourself because no one else is going to do it for you.**
+**If no mistake have you made, yet losing you are... a different game you should play.**
 
-Anonymous
+Yoda
