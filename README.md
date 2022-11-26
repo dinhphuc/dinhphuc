@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The positive thinker sees the invisible, feels the intangible, and achieves the impossible.**
+**Don't downgrade your dream just to fit your reality. Upgrade your conviction to match your destiny.**
 
-Winston Churchill
+John Assaraf
