@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Surround yourself with people who get you.**
+**A secret to happiness is letting every situatiuon be what it is instead of what you think it should be.**
 
 Anonymous
