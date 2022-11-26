@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The journey of a thousand miles begins with one step.**
+**You cannot fail at being yourself.**
 
-Lao Tzu
+Wayne Dyer
