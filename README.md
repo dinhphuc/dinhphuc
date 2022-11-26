@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success consists of getting up just one more time than you fall.**
+**To give anything less than your best is to sacrifice the gift.**
 
-Oliver Goldsmith
+Steve Prefontaine
