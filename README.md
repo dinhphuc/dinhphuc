@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Winners make a habit of manufacturing their own positive expectations in advance of the event.**
+**'Thank you' is the best prayer that anyone could say.**
 
-Brian Tracy
+Alice Walker
