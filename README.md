@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**For every minute you are angry you lose sixty seconds of happiness.**
+**Always deliver more than expected.**
 
-Ralph Waldo Emerson
+Larry Page
