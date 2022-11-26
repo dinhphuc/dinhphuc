@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't think about what might go wrong. Think about what might go right.**
+**You may encounter many defeats, but you must not be defeated.**
 
-Anonymous
+Maya Angelou
