@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I've never let anyone talk me into not believing in myself.**
+**If you believe it will work out, you'll see opportunities. If you believe it won't, you will see obstacles.**
 
-Muhammad Ali
+Wayne Dyer
