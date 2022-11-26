@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To give anything less than your best is to sacrifice the gift.**
+**No one who can rise before dawn three hundred sixty days a year fails to make his family rich.**
 
-Steve Prefontaine
+Malcolm Gladwell
