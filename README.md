@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pessimism leads to weakness, optimism to power.**
+**Our own self-esteem is something we can actually twist in whatever way we want.**
 
-William James
+Stephen Richards
