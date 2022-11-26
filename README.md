@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The marathon can humble you.**
+**I've never let anyone talk me into not believing in myself.**
 
-Bill Rodgers
+Muhammad Ali
