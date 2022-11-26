@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**'Thank you' is the best prayer that anyone could say.**
+**I was angry that I had no shoes. Then I met a man who had no feet.**
 
-Alice Walker
+Chinese Proverb
