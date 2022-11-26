@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are only two options regarding commitment. You're either IN or you're OUT. There is no such thing as life in-between.**
+**Success consists of getting up just one more time than you fall.**
 
-Pat Riley
+Oliver Goldsmith
