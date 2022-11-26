@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot fail at being yourself.**
+**Winners make a habit of manufacturing their own positive expectations in advance of the event.**
 
-Wayne Dyer
+Brian Tracy
