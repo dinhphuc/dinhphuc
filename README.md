@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you believe it will work out, you'll see opportunities. If you believe it won't, you will see obstacles.**
+**Only those who risk going too far, can possibly find out how far one can go.**
 
-Wayne Dyer
+T.S. Elliot
