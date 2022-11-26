@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The first duty of love is to listen.**
+**It's important to feel good about yourself. When you feel good about yourself, nothing negative can touch you.**
 
-Paul Tillich
+Anonymous
