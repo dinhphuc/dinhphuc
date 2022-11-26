@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only those who risk going too far, can possibly find out how far one can go.**
+**For every minute you are angry you lose sixty seconds of happiness.**
 
-T.S. Elliot
+Ralph Waldo Emerson
