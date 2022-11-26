@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength does not come from physical capacity. It comes from an indomitable will.**
+**The pain you feel today will be the strength you feel tomorrow.**
 
-Mahatma Gandhi
+Anonymous
