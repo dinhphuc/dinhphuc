@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The pain you feel today will be the strength you feel tomorrow.**
+**The journey of a thousand miles begins with one step.**
 
-Anonymous
+Lao Tzu
