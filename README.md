@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Patience you must have, my young padawan.**
+**The positive thinker sees the invisible, feels the intangible, and achieves the impossible.**
 
-Yoda
+Winston Churchill
