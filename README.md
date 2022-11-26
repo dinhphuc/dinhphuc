@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What we achieve inwardly will change outer reality.**
+**The marathon can humble you.**
 
-Plutarch
+Bill Rodgers
