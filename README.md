@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't downgrade your dream just to fit your reality. Upgrade your conviction to match your destiny.**
+**You may say I'm a dreamer but I'm not the only one.**
 
-John Assaraf
+John Lennon
