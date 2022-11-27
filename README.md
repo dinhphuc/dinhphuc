@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever happens, just keep smiling and lose yourself in love.**
+**Confidence comes not from always being right but from not fearing to be wrong.**
 
-Rumi
+Peter T. Mcintyre
