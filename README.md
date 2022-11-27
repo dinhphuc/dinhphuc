@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The way to get started is to quit talking and begin doing.**
+**If you don't love what you do, you won't do it with much conviction or passion.**
 
-Walt Disney
+Mia Hamm
