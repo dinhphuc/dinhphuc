@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching.**
+**Learn to be thankful for what you already have, while you pursue all that you want.**
 
-Satchel Paige
+Jim Rohn
