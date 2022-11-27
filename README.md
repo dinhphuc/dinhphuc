@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life becomes easier and more beautiful when we can see the good in other people.**
+**No matter what you do, that seed will grow to be a peach tree. You may wish for an apple or an orange, but you will get a peach.**
 
-Roy T. Bennett
+Master Oogway
