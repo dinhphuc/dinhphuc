@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Yesterday is not ours to recover, but tomorrow is ours to win or lose.**
+**Do not blame the world. Find a solution.**
 
-Lyndon B. Johnson
+Sri Chinmoy
