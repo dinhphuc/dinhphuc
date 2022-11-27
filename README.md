@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence comes not from always being right but from not fearing to be wrong.**
+**If you want to go fast, go alone. If you want to go far, go together.**
 
-Peter T. Mcintyre
+African Proverb
