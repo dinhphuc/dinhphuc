@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When it gets difficult is often right before you succeed.**
+**Life is trying things to see if they work.**
 
-Jeffrey Walker
+Ray Bradbury
