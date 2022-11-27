@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Make the most of yourself....for that is all there is of you.**
+**Yesterday is not ours to recover, but tomorrow is ours to win or lose.**
 
-Ralph Waldo Emerson
+Lyndon B. Johnson
