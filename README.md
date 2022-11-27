@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When things are bad, remember: it won't always be this way. Take one day at a time.**
+**The start is what stops most people.**
 
-Anonymous
+Don Shula
