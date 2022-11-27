@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every morning you have a new opportunity to become a happier version of yourself.**
+**The positive thinker sees the invisible, feels the intangible, and achieves the impossible.**
 
-Anonymous
+Winston Churchill
