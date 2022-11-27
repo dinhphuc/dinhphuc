@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't love what you do, you won't do it with much conviction or passion.**
+**Pass on what you have learned.**
 
-Mia Hamm
+Yoda
