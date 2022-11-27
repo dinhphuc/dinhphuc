@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Attitude is everything. New day, new strength, new thoughts.**
+**Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching.**
 
-Anonymous
+Satchel Paige
