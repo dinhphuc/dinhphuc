@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A fault confessed is half redressed.**
+**When it gets difficult is often right before you succeed.**
 
-Zulu Proverb
+Jeffrey Walker
