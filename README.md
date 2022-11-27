@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To be willing is only half the task.**
+**You know that it's a fool who plays it cool by making his world a little colder.**
 
-Armenian Proverb
+The Beatles
