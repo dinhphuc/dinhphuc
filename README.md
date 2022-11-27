@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be humble in your confidence yet courageous in your character.**
+**The people who make you smile from just seeing them, those are my favorite people.**
 
-Melanie Koulouris
+Koi Fresco
