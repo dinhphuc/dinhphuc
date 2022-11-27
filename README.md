@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The beginning is the most important part of the work.**
+**A fault confessed is half redressed.**
 
-Plato
+Zulu Proverb
