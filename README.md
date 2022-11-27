@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do not blame the world. Find a solution.**
+**Whatever happens, just keep smiling and lose yourself in love.**
 
-Sri Chinmoy
+Rumi
