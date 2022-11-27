@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength does not come from physical capacity. It comes from an indomitable will.**
+**Attitude is everything. New day, new strength, new thoughts.**
 
-Mahatma Gandhi
+Anonymous
