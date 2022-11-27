@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**As we express our gratitude, we must never forget that the highest appreciation is not to utter words, but to live by them.**
+**You've never lived this day before, and you never will again. Make the most of it!**
 
-John F. Kennedy
+Anonymous
