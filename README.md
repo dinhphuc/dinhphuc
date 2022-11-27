@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not bragging if you can back it up.**
+**To be willing is only half the task.**
 
-Muhammed Ali
+Armenian Proverb
