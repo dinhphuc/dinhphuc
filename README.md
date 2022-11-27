@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You know that it's a fool who plays it cool by making his world a little colder.**
+**When it gets difficult is often right before you succeed.**
 
-The Beatles
+Jeffrey Walker
