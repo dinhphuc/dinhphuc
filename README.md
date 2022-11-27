@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is trying things to see if they work.**
+**Every morning you have a new opportunity to become a happier version of yourself.**
 
-Ray Bradbury
+Anonymous
