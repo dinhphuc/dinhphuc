@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Learn to be thankful for what you already have, while you pursue all that you want.**
+**Be humble in your confidence yet courageous in your character.**
 
-Jim Rohn
+Melanie Koulouris
