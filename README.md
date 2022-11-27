@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to go fast, go alone. If you want to go far, go together.**
+**Life becomes easier and more beautiful when we can see the good in other people.**
 
-African Proverb
+Roy T. Bennett
