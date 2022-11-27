@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Fear is temporary. Regret is forever.**
+**Smile, and let the world wonder why.**
 
-Anonymous
+Minnie Mouse
