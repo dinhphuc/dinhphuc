@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The positive thinker sees the invisible, feels the intangible, and achieves the impossible.**
+**The beginning is the most important part of the work.**
 
-Winston Churchill
+Plato
