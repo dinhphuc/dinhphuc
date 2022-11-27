@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I learned that courage was not the absence of fear, but the triumph over it.**
+**Strength does not come from physical capacity. It comes from an indomitable will.**
 
-Nelson Mandela
+Mahatma Gandhi
