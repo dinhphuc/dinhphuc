@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's important to feel good about yourself. When you feel good about yourself, nothing negative can touch you.**
+**Make the most of yourself....for that is all there is of you.**
 
-Anonymous
+Ralph Waldo Emerson
