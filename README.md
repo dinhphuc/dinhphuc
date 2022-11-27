@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The people who make you smile from just seeing them, those are my favorite people.**
+**It's not bragging if you can back it up.**
 
-Koi Fresco
+Muhammed Ali
