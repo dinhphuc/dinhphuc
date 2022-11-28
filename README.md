@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You're allowed to scream. You're allowed to cry. But don't give up.**
+**The people who make you smile from just seeing them, those are my favorite people.**
 
-Anonymous
+Koi Fresco
