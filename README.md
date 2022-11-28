@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile in the mirror. Do that every morning and you'll start to see a big difference in your life.**
+**If you can't stop thinking about it, don't stop working for it.**
 
-Yoko Ono
+Anonymous
