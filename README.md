@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One small positive thought in the morning can change your whole day.**
+**Earn your confidence, nurture it, then help to build it in others.**
 
-Anonymous
+Alex Malley
