@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't fall, how are you going to know what getting up feels like?**
+**Whatever happens, just keep smiling and lose yourself in love.**
 
-Stephen Curry
+Rumi
