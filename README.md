@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you hold in your mind on a consistent basis is exactly what you will experience in your life.**
+**Be tolerant with others and strict with yourself.**
 
-Tony Robbins
+Marcus Aurelius
