@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm alone, but I'm not lonely. I like who I am. I like who I'm becoming.**
+**The hardest thing to find in life is happiness - money is only hard to find because it gets wasted trying to find happiness.**
 
-Deena Kastor
+Unknown
