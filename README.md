@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You've never lived this day before, and you never will again. Make the most of it!**
+**The only way to do great work is to love what you do.**
 
-Anonymous
+Steve Jobs
