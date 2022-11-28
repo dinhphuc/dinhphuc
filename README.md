@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Are your excuses more important than your dreams?**
+**Every day may not be good... but there's something good in every day.**
 
-Anonymous
+Alice Morse Earle
