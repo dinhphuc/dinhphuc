@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**He who lives in harmony with himself lives in harmony with the universe.**
+**One small positive thought in the morning can change your whole day.**
 
-Marcus Aurelius
+Anonymous
