@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you really look closely, most overnight successes took a long time.**
+**Nobody who ever gave their best regretted it.**
 
-Steve Jobs
+George Halas
