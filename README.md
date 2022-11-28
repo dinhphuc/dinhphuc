@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The pessimist sees difficulty in every opportunity. The optimist sees opportunity in every difficulty.**
+**Open your eyes and notice the beauty of this wonderful world.**
 
-Winston Churchill
+Anonymous
