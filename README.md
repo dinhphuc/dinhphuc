@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No one who can rise before dawn three hundred sixty days a year fails to make his family rich.**
+**The pain you feel today will be the strength you feel tomorrow.**
 
-Malcolm Gladwell
+Anonymous
