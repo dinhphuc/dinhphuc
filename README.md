@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't have to be great to start. But you do have to start to be great.**
+**You can alter mood by running.**
 
-Zig Ziglar
+Tumpal Sihombing
