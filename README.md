@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is better to fail in originality than to succeed in imitation.**
+**No one who can rise before dawn three hundred sixty days a year fails to make his family rich.**
 
-Herman Melville
+Malcolm Gladwell
