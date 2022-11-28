@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody who ever gave their best regretted it.**
+**There is nothing on this earth more to be prized than true friendship.**
 
-George Halas
+Thomas Aquinas
