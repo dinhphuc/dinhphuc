@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The people who make you smile from just seeing them, those are my favorite people.**
+**I can't change the direction of the wind, but I can adjust my sails to always reach my destination.**
 
-Koi Fresco
+Jimmy Dean
