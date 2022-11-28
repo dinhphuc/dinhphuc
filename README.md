@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can't stop thinking about it, don't stop working for it.**
+**Remember, most of your stress comes from the way you respond, not the way life is.**
 
 Anonymous
