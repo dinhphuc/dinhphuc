@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The hardest thing to find in life is happiness - money is only hard to find because it gets wasted trying to find happiness.**
+**If you really look closely, most overnight successes took a long time.**
 
-Unknown
+Steve Jobs
