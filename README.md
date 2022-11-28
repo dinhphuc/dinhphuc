@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The pain you feel today will be the strength you feel tomorrow.**
+**All that matters is how you see yourself.**
 
-Anonymous
+Conor McGregor
