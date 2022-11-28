@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I can't change the direction of the wind, but I can adjust my sails to always reach my destination.**
+**You don't have to be great to start. But you do have to start to be great.**
 
-Jimmy Dean
+Zig Ziglar
