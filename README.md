@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever happens, just keep smiling and lose yourself in love.**
+**You may be disappointed if you fail, but you are doomed if you don't try.**
 
-Rumi
+Beverly Sills
