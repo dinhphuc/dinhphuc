@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be tolerant with others and strict with yourself.**
+**He who lives in harmony with himself lives in harmony with the universe.**
 
 Marcus Aurelius
