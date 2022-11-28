@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Earn your confidence, nurture it, then help to build it in others.**
+**If you don't fall, how are you going to know what getting up feels like?**
 
-Alex Malley
+Stephen Curry
