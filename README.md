@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You may be disappointed if you fail, but you are doomed if you don't try.**
+**Smile in the mirror. Do that every morning and you'll start to see a big difference in your life.**
 
-Beverly Sills
+Yoko Ono
