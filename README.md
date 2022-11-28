@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm not telling you it is going to be easy, I'm telling you it's going to be worth it.**
+**I'm alone, but I'm not lonely. I like who I am. I like who I'm becoming.**
 
-Art Williams
+Deena Kastor
