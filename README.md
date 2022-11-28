@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Open your eyes and notice the beauty of this wonderful world.**
+**Whatever you hold in your mind on a consistent basis is exactly what you will experience in your life.**
 
-Anonymous
+Tony Robbins
