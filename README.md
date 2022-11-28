@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All that matters is how you see yourself.**
+**I'm not telling you it is going to be easy, I'm telling you it's going to be worth it.**
 
-Conor McGregor
+Art Williams
