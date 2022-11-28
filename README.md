@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every day may not be good... but there's something good in every day.**
+**It is better to fail in originality than to succeed in imitation.**
 
-Alice Morse Earle
+Herman Melville
