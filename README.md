@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is nothing on this earth more to be prized than true friendship.**
+**You're allowed to scream. You're allowed to cry. But don't give up.**
 
-Thomas Aquinas
+Anonymous
