@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's important to feel good about yourself. When you feel good about yourself, nothing negative can touch you.**
+**Don't get discouraged by what you're going through. Your time is coming. Where you are is not where you're going to stay.**
 
 Anonymous
