@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I've got nothing to do today but smile.**
+**Your true success in life begins only when you make the commitment to become excellent at what you do.**
 
-Paul Simon
+Brian Tracy
