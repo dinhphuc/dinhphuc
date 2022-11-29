@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good people are like candles; they burn themselves up to give others light.**
+**I've got nothing to do today but smile.**
 
-Anonymous
+Paul Simon
