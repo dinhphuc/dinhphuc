@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is what happens when you're busy making other plans.**
+**The critics only made me work harder.**
 
-John Lennon
+Muhammad Ali
