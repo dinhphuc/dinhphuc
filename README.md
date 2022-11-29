@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Work on being in love with the person in the mirror who has been through so much but is still standing.**
+**Never give up. Keep going.**
 
 Anonymous
