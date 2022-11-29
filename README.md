@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is ours to be spent, not to be saved.**
+**Success is what happens after you have survived all of your disappointments.**
 
-D. H. Lawrence
+Anonymous
