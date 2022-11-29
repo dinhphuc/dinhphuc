@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One who moves a mountain begins by carrying away small stones.**
+**How you do anything is how you do everything.**
 
-Confucius
+T. Harv Eker
