@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**How you do anything is how you do everything.**
+**When written in Chinese the word "crisis" is composed of two characters - one represents danger and the other represents opportunity.**
 
-T. Harv Eker
+John F. Kennedy
