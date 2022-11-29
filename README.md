@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up. Keep going.**
+**Surround yourself with people who get you.**
 
 Anonymous
