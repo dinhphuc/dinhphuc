@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't get discouraged by what you're going through. Your time is coming. Where you are is not where you're going to stay.**
+**If only we'd stop trying to be happy we could have a pretty good time.**
 
-Anonymous
+Edith Wharton
