@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If only we'd stop trying to be happy we could have a pretty good time.**
+**It is not the strongest of the species that survive, nor the most intelligent, but the one most responsive to change.**
 
-Edith Wharton
+Charles Darwin
