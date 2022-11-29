@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your true success in life begins only when you make the commitment to become excellent at what you do.**
+**Spread love everywhere you go. Let no one ever come to you without leaving happier.**
 
-Brian Tracy
+Mother Teresa
