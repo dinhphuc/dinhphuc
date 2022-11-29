@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Cry. Forgive. Learn. Move on. Let your tears water the seeds of your future happiness.**
+**The critics only made me work harder.**
 
-Steve Maraboli
+Muhammad Ali
