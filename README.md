@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.**
+**Go confidently in the direction of your dreams! Live the life you've imagined.**
 
-Napoleon Hill
+Henry David Thoreau
