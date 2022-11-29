@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Replace those thoughts of worry with thoughts of hope, faith, and victory.**
+**Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.**
 
-Joel Osteen
+Napoleon Hill
