@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Luck is what happens when preparation meets opportunity.**
+**What you think of yourself is much more important than what people think of you.**
 
-Seneca
+Anonymous
