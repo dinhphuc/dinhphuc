@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Go confidently in the direction of your dreams! Live the life you've imagined.**
+**A smile is the beauty of the soul.**
 
-Henry David Thoreau
+Lailah Gifty
