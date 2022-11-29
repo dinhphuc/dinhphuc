@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Look at this tree. I cannot make it blossom when it suits me, nor make it bear fruit before its time.**
+**It's important to feel good about yourself. When you feel good about yourself, nothing negative can touch you.**
 
-Master Oogway
+Anonymous
