@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not the strongest of the species that survive, nor the most intelligent, but the one most responsive to change.**
+**One who moves a mountain begins by carrying away small stones.**
 
-Charles Darwin
+Confucius
