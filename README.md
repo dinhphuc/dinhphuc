@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can alter mood by running.**
+**Good people are like candles; they burn themselves up to give others light.**
 
-Tumpal Sihombing
+Anonymous
