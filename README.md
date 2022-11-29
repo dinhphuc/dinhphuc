@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We can't help everyone, but everyone can help someone.**
+**Luck is what happens when preparation meets opportunity.**
 
-Ronald Reagan
+Seneca
