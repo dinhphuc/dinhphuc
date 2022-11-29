@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you think of yourself is much more important than what people think of you.**
+**Life is ours to be spent, not to be saved.**
 
-Anonymous
+D. H. Lawrence
