@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness can be found, even in the darkest of times, if one only remembers to turn on the light.**
+**The secret of success is to do the common thing uncommonly well.**
 
-Anonymous
+John D. Rockefeller Jr
