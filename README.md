@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of success is to do the common thing uncommonly well.**
+**Life is what happens when you're busy making other plans.**
 
-John D. Rockefeller Jr
+John Lennon
