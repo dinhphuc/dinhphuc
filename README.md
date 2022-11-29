@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The critics only made me work harder.**
+**We can't help everyone, but everyone can help someone.**
 
-Muhammad Ali
+Ronald Reagan
