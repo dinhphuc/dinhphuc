@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Go after the things you want.**
+**It's important to feel good about yourself. When you feel good about yourself, nothing negative can touch you.**
 
-Simon Sinek
+Anonymous
