@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Today, give a stranger one of your smiles. It might be the only sunshine they see all day.**
+**The reputation of a thousand years may be determined by the conduct of one hour.**
 
-H. Jackson Brown Jr
+Japanese Proverb
