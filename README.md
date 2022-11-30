@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The reputation of a thousand years may be determined by the conduct of one hour.**
+**Education is the most powerful weapon which you can use to change the world.**
 
-Japanese Proverb
+Nelson Mandela
