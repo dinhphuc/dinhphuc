@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It ain't as bad as you think. It will look better in the morning.**
+**Once you replace negative thoughts with positive ones, you'll start having positive results.**
 
-Colin Powell
+Willie Nelson
