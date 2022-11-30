@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The goal is not to be perfect by the end. The goal is to be better today.**
+**Each time I thought I had achieved my life's purpose, I discovered it was only another step in my journey.**
 
-Simon Sinek
+Muhammad Ali
