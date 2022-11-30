@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Build your own dreams, or someone else will hire you to build theirs.**
+**Life is really simple, but we insist on making it complicated.**
 
-Farrah Gray
+Confucius
