@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Each time I thought I had achieved my life's purpose, I discovered it was only another step in my journey.**
+**It's hard to beat a person who never gives up.**
 
-Muhammad Ali
+Anonymous
