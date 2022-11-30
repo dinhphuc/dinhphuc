@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Victory is always possible for the person who refuses to stop fighting.**
+**Your problem isn't the problem, it's your attitude about the problem.**
 
-Napoleon Hill
+Ann Brashares
