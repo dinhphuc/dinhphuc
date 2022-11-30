@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Education is the most powerful weapon which you can use to change the world.**
+**Life is short, and it is up to you to make it sweet.**
 
-Nelson Mandela
+Sarah Louise Delany
