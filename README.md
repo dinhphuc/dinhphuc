@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Stay strong. You never know who you are inspiring.**
+**Don't dream of winning, train for it!**
 
-Anonymous
+Mo Farah
