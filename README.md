@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are no secrets to success. It is the result of preparation, hard work, and learning from failure.**
+**I find that the harder I work, the more luck I seem to have.**
 
-Colin Powell
+Thomas Jefferson
