@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once you replace negative thoughts with positive ones, you'll start having positive results.**
+**You have a choice. You can throw in the towel, or you can use it to wipe the sweat off of your face.**
 
-Willie Nelson
+Gatorade
