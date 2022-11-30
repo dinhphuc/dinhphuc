@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**None of us is as smart as all of us.**
+**What you think of yourself is much more important than what people think of you.**
 
-Ken Blanchard
+Anonymous
