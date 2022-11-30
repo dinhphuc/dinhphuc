@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep smiling. It makes people wonder what you are up to.**
+**Today, give a stranger one of your smiles. It might be the only sunshine they see all day.**
 
-Anonymous
+H. Jackson Brown Jr
