@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We all make mistakes, but the winner knows that success comes from perseverance: trying, failing, learning, and doing it again until he succeeds.**
+**Good friends are all that matter.**
 
-Judy Ford
+Anonymous
