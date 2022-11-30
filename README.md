@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm stronger because I had to be, I'm smarter because of my mistakes, happier because of the sadness I've known, and now wiser because I learned.**
+**Everyone wants happiness. No one wants pain. But you can't have a rainbow, without a little rain.**
 
 Anonymous
