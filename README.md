@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You have a choice. You can throw in the towel, or you can use it to wipe the sweat off of your face.**
+**Failure is simply the opportunity to begin again. Except this time more intelligently.**
 
-Gatorade
+Henry Ford
