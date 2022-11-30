@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Plenty of people miss their share of happiness, not because they never found it, but because they didn't stop to enjoy it.**
+**Be happy not because everything is good, but because you can see the good side of everything.**
 
-William Feather
+Anonymous
