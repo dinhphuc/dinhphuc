@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everyone wants happiness. No one wants pain. But you can't have a rainbow, without a little rain.**
+**Stay strong. You never know who you are inspiring.**
 
 Anonymous
