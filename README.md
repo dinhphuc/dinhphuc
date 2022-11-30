@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I find that the harder I work, the more luck I seem to have.**
+**It ain't as bad as you think. It will look better in the morning.**
 
-Thomas Jefferson
+Colin Powell
