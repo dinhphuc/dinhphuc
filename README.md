@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be happy not because everything is good, but because you can see the good side of everything.**
+**Victory is always possible for the person who refuses to stop fighting.**
 
-Anonymous
+Napoleon Hill
