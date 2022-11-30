@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A good life is doing what you love as much as you can and doing what you must as much as you should.**
+**Keep smiling. It makes people wonder what you are up to.**
 
-Savania China
+Anonymous
