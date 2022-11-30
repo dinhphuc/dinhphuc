@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is really simple, but we insist on making it complicated.**
+**Instead of worrying about what you cannot control, shift your energy to what you can create.**
 
-Confucius
+Roy T. Bennett
