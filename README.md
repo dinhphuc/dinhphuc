@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your problem isn't the problem, it's your attitude about the problem.**
+**We all make mistakes, but the winner knows that success comes from perseverance: trying, failing, learning, and doing it again until he succeeds.**
 
-Ann Brashares
+Judy Ford
