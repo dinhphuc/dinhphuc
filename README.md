@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every champion was once a contender that refused to give up.**
+**The difference between the impossible and the possible lies in a person's determination.**
 
-Rocky Balboa
+Tommy Lasorda
