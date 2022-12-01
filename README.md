@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure will never overtake me if my determination to succeed is strong enough.**
+**Remember that not getting what you want is sometimes a wonderful stroke of luck.**
 
-Og Mandino
+Dalai Lama
