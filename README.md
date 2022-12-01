@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile at strangers and you just might change a life.**
+**The difference between stumbling blocks and stepping stones is how you use them.**
 
-Steve Maraboli
+Anonymous
