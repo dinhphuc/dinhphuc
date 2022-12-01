@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember that not getting what you want is sometimes a wonderful stroke of luck.**
+**A fault confessed is half redressed.**
 
-Dalai Lama
+Zulu Proverb
