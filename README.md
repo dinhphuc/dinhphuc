@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**My heart is always open to love.**
+**Every day may not be good... but there's something good in every day.**
 
-Anonymous
+Alice Morse Earle
