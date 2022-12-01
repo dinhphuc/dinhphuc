@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Instead of worrying about what you cannot control, shift your energy to what you can create.**
+**Don't judge each day by the harvest you reap but by the seeds that you plant.**
 
-Roy T. Bennett
+Robert Louis Stevenson
