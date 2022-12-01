@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Blessings sometimes show up in unrecognizable disguises.**
+**Even the greatest were beginners. Don't be afraid to take that first step.**
 
-Janette Oke
+Anonymous
