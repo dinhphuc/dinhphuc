@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The supreme art of war is to subdue the enemy without fighting.**
+**The positive thinker sees the invisible, feels the intangible, and achieves the impossible.**
 
-Sun Tzu
+Winston Churchill
