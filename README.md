@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between stumbling blocks and stepping stones is how you use them.**
+**The supreme art of war is to subdue the enemy without fighting.**
 
-Anonymous
+Sun Tzu
