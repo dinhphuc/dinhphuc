@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't just glov, dazzle.**
+**Difficult roads always lead to beautiful destinations.**
 
-Anonymous
+Zig Ziglar
