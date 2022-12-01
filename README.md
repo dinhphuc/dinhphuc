@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do or do not. There is no try.**
+**Don't just glov, dazzle.**
 
-Yoda
+Anonymous
