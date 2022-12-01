@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The positive thinker sees the invisible, feels the intangible, and achieves the impossible.**
+**Well I am here to tell you that one of the best ways to make a difference, is by sharing a smile and radiating good positive energy.**
 
-Winston Churchill
+Anonymous
