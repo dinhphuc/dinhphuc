@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You have brains in your head. You have feet in your shoes. You can steer yourself any direction you choose.**
+**Always remember you are braver than you believe, stronger than you seem, and smarter than you think.**
 
-Dr. Seuss
+Christopher Robin
