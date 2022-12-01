@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't think about what might go wrong. Think about what might go right.**
+**Failure will never overtake me if my determination to succeed is strong enough.**
 
-Anonymous
+Og Mandino
