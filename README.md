@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Great minds discuss ideas; average minds discuss events; small minds discuss people.**
+**Go fast enough to get there, but slow enough to see.**
 
-Eleanor Roosevelt
+Jimmy Buffett
