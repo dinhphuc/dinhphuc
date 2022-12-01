@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't stop until you're proud.**
+**Great minds discuss ideas; average minds discuss events; small minds discuss people.**
 
-Anonymous
+Eleanor Roosevelt
