@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't judge each day by the harvest you reap but by the seeds that you plant.**
+**Don't think about what might go wrong. Think about what might go right.**
 
-Robert Louis Stevenson
+Anonymous
