@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are so many beautiful reasons to be happy.**
+**The difference between the impossible and the possible lies in a person's determination.**
 
-Anonymous
+Tommy Lasorda
