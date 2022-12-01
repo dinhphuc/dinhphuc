@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Trust the process of life.**
+**Never give up. You only get one life. Go for it.**
 
-Anonymous
+Richard E. Grant
