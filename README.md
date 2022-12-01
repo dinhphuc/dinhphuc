@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up. You only get one life. Go for it.**
+**Blessings sometimes show up in unrecognizable disguises.**
 
-Richard E. Grant
+Janette Oke
