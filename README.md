@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always remember you are braver than you believe, stronger than you seem, and smarter than you think.**
+**Every champion was once a contender that refused to give up.**
 
-Christopher Robin
+Rocky Balboa
