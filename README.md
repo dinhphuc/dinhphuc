@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Learn to value yourself, which means: fight for your happiness.**
+**If you can't live longer, live deeper.**
 
-Ayn Rand
+Italian Proverb
