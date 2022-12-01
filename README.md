@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Difficult roads always lead to beautiful destinations.**
+**There are no mistakes, only lessons. Growth is a process of trial and error.**
 
-Zig Ziglar
+Anonymous
