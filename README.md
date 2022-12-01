@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In life, many things don't go according to plan. If you fall, get back up. If you stumble, regain your balance. Never give up.**
+**At the end of the day, you can either focus on what's tearing you apart, or you can focus on what's keeping you together.**
 
 Anonymous
