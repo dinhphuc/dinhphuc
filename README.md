@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You've never lived this day before, and you never will again. Make the most of it!**
+**Smile at strangers and you just might change a life.**
 
-Anonymous
+Steve Maraboli
