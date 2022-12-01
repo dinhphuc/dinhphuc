@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every day may not be good... but there's something good in every day.**
+**Trust the process of life.**
 
-Alice Morse Earle
+Anonymous
