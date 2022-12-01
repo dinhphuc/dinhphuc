@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Doubt kills more dreams than failure ever will.**
+**Do or do not. There is no try.**
 
-Suzy Kassem
+Yoda
