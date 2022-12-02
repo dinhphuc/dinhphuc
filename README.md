@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Great works are performed, not by strength, but by perseverance.**
+**The one who falls and gets up is so much stronger than the one who never fell.**
 
-Samuel Johnson
+Anonymous
