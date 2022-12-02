@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A difficult time can be more readily endured if we retain the conviction that our existence holds a purpose - a cause to pursue, a person to love, a goal to achieve.**
+**Strength doesn't come from what you can do. It comes from overcoming the things you once thought you couldn't.**
 
-John Maxwell
+Rikki Rogers
