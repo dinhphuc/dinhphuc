@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Work hard and be nice to people.**
+**How wonderful it is that nobody need wait a single moment before starting to improve the world.**
 
-Anonymous
+Anne Frank
