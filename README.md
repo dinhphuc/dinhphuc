@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If one dream should fall and break into a thousand pieces, never be afraid to pick one of those pieces up and begin again.**
+**No matter how old I get, the race remains one of life's most rewarding experiences.**
 
-Flavia Weedn
+George Sheehan
