@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love isn't something you find. Love is something that finds you.**
+**Don't wish it were easier. Wish you were better.**
 
-Loretta Young
+Jim Rohn
