@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I would rather die of passion than of boredom.**
+**Hate. It has caused a lot of problems in this world but has not solved one yet.**
 
-Vincent van Gogh
+Maya Angelou
