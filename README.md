@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Count your age by friends, not years. Count your life by smiles, not tears.**
+**A dream does not become reality through magic; it takes sweat, determination and hard work.**
 
-John Lennon
+Colin Powell
