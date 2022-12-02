@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You miss 100% of the shots you don't take.**
+**Don't criticize, condemn or complain.**
 
-Wayne Gretzky
+Dale Carnegie
