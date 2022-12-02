@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is the secret to all beauty. There is no beauty without happiness.**
+**Opportunities to find deeper powers within ourselves come when life seems most challenging.**
 
-Christian Dior
+Joseph Campbell
