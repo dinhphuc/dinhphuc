@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't criticize, condemn or complain.**
+**You are your only limit.**
 
-Dale Carnegie
+Anonymous
