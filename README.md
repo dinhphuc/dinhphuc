@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The hardest thing to find in life is happiness - money is only hard to find because it gets wasted trying to find happiness.**
+**Certain things catch your eye, but pursue only those that capture the heart.**
 
-Unknown
+Ancient Indian Proverb
