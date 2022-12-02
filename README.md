@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are your only limit.**
+**Every strike brings me closer to the next home run.**
 
-Anonymous
+Babe Ruth
