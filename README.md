@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everytime you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**
+**Great works are performed, not by strength, but by perseverance.**
 
-Mother Teresa
+Samuel Johnson
