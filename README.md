@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life isn't about waiting for the storm to pass, it's about learning how to dance in the rain.**
+**You miss 100% of the shots you don't take.**
 
-Vivian Greene
+Wayne Gretzky
