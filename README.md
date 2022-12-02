@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength doesn't come from what you can do. It comes from overcoming the things you once thought you couldn't.**
+**I would rather die of passion than of boredom.**
 
-Rikki Rogers
+Vincent van Gogh
