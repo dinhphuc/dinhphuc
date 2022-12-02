@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is not final, failure is not fatal: it is the courage to continue that counts.**
+**Because of your smile, you make life more beautiful.**
 
-Winston Churchill
+Thich Nhat Hanh
