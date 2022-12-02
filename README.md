@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Certain things catch your eye, but pursue only those that capture the heart.**
+**The trophy is earned in the hours that no one is watching.**
 
-Ancient Indian Proverb
+Anonymous
