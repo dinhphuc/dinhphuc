@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The trophy is earned in the hours that no one is watching.**
+**Happiness is the secret to all beauty. There is no beauty without happiness.**
 
-Anonymous
+Christian Dior
