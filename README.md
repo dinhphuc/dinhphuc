@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hate. It has caused a lot of problems in this world but has not solved one yet.**
+**Love isn't something you find. Love is something that finds you.**
 
-Maya Angelou
+Loretta Young
