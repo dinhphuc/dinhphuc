@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Even the greatest were beginners. Don't be afraid to take that first step.**
+**Yesterday is history, tomorrow is a mystery, today is a gift of God, which is why we call it the present.**
 
-Anonymous
+Bill Keane
