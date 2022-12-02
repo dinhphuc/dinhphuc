@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength doesn't come from what you can do. It comes from overcoming the things you once thought you couldn't.**
+**The hardest thing to find in life is happiness - money is only hard to find because it gets wasted trying to find happiness.**
 
-Rikki Rogers
+Unknown
