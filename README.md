@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no greater miracle than our conscious efforts to become good human beings.**
+**It's not bragging if you can back it up.**
 
-Sri Chinmoy
+Muhammed Ali
