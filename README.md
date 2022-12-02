@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A dream does not become reality through magic; it takes sweat, determination and hard work.**
+**Life isn't about waiting for the storm to pass, it's about learning how to dance in the rain.**
 
-Colin Powell
+Vivian Greene
