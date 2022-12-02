@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every strike brings me closer to the next home run.**
+**A little progress each day adds up to big results.**
 
-Babe Ruth
+Satya Nani
