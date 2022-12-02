@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A little progress each day adds up to big results.**
+**Your hardest times often lead to the greatest moments of your life. Keep going. Tough situations build strong people in the end.**
 
-Satya Nani
+Roy T. Bennett
