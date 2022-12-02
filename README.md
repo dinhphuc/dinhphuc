@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not bragging if you can back it up.**
+**You deserve to be happy. You deserve to live a life you are excited about. Don't let others make you forget that.**
 
-Muhammed Ali
+Anonymous
