@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A beautiful thing is never perfect.**
+**We become what we think about.**
 
-Egyptian Proverb
+Earl Nightingale
