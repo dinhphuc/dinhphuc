@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't miss out on something that could be great just because it could also be difficult.**
+**Today you are you! That is truer than true! There is no one alive who is you-er than you!**
 
-Anonymous
+Dr. Seuss
