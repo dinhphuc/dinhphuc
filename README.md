@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't miss out on something that could be great just because it could also be difficult.**
+**You fail because you don't believe.**
 
-Anonymous
+Yoda
