@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Start doing things to make you happy.**
+**Happiness is only real when shared.**
 
-Reyna Biddy
+Jon Krakauer
