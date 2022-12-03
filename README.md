@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Today you are you! That is truer than true! There is no one alive who is you-er than you!**
+**Set a goal so big that you can't achieve it until you grow into the person who can.**
 
-Dr. Seuss
+Anonymous
