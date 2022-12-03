@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I failed my way to success.**
+**Success is what comes after you stop making excuses.**
 
-Thomas Edison
+Luis Galarza
