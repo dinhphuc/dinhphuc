@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest danger for most of us is not that our aim is too high and we miss it, but that it is too low and we reach it.**
+**Don't miss out on something that could be great just because it could also be difficult.**
 
-Michaelangelo
+Anonymous
