@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how old I get, the race remains one of life's most rewarding experiences.**
+**Smile in the mirror. Do that every morning and you'll start to see a big difference in your life.**
 
-George Sheehan
+Yoko Ono
