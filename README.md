@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**My heart is always open to love.**
+**100% commitment is easier than 98% commitment.**
 
-Anonymous
+Harvard Business School
