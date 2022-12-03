@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The pessimist sees difficulty in every opportunity. The optimist sees opportunity in every difficulty.**
+**If you don't fall, how are you going to know what getting up feels like?**
 
-Winston Churchill
+Stephen Curry
