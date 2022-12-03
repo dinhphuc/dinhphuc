@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Throw kindness around like confetti.**
+**Mind what you have learned. Save you it can.**
 
-Anonymous
+Yoda
