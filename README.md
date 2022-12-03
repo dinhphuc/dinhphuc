@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how tough it may get, never give up on yourself or you will look back and regret it.**
+**Winning isn't everything, but wanting to win is.**
 
-Anonymous
+Vince Lombardi
