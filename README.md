@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**100% commitment is easier than 98% commitment.**
+**Don't miss out on something that could be great just because it could also be difficult.**
 
-Harvard Business School
+Anonymous
