@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be so happy that when others look at you they become happy too.**
+**The future belongs to those who believe in the beauty of their dreams.**
 
-Anonymous
+Franklin D. Roosevelt
