@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile in the mirror. Do that every morning and you'll start to see a big difference in your life.**
+**No matter how tough it may get, never give up on yourself or you will look back and regret it.**
 
-Yoko Ono
+Anonymous
