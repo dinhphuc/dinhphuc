@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Winning isn't everything, but wanting to win is.**
+**The absence of adversity is an indicator that my goals aren't significant enough.**
 
-Vince Lombardi
+Clint Bruce
