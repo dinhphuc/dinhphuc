@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Mind what you have learned. Save you it can.**
+**Be so happy that when others look at you they become happy too.**
 
-Yoda
+Anonymous
