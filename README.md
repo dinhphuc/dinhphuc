@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not the mountain we conquer, but ourselves.**
+**100% commitment is easier than 98% commitment.**
 
-Sir Edmund Hillary
+Harvard Business School
