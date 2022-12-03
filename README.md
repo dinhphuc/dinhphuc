@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is only real when shared.**
+**I failed my way to success.**
 
-Jon Krakauer
+Thomas Edison
