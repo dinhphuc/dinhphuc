@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The absence of adversity is an indicator that my goals aren't significant enough.**
+**It is not the mountain we conquer, but ourselves.**
 
-Clint Bruce
+Sir Edmund Hillary
