@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You know that it's a fool who plays it cool by making his world a little colder.**
+**The very best thing you can do for the whole world is to make the best of yourself.**
 
-The Beatles
+Anonymous
