@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be strong when you are weak, brave when you are scared, and humble when you are victorious.**
+**Life is a magical ride. Enjoy every moment.**
 
 Anonymous
