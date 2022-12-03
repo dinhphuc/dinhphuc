@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A smile is the beauty of the soul.**
+**Be strong when you are weak, brave when you are scared, and humble when you are victorious.**
 
-Lailah Gifty
+Anonymous
