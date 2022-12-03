@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Blessings sometimes show up in unrecognizable disguises.**
+**You have to fight through some bad days to earn the best days of your life.**
 
-Janette Oke
+Anonymous
