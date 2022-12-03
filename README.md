@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our problems don't stem from our ignorance so much as our disobedience of that which we know to be right.**
+**You miss 100% of the shots you don't take.**
 
-Stephen Covey
+Wayne Gretzky
