@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is what comes after you stop making excuses.**
+**Throw kindness around like confetti.**
 
-Luis Galarza
+Anonymous
