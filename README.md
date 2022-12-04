@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life without love is like a tree without blossoms or fruit.**
+**Blessings sometimes show up in unrecognizable disguises.**
 
-Khalil Gibran
+Janette Oke
