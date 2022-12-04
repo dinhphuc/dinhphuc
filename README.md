@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The harder the battle. The sweeter the victory.**
+**If you're going through hell, keep going.**
 
-Les Brown
+Winston Churchill
