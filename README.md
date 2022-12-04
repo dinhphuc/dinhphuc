@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To be willing is only half the task.**
+**Plenty of people miss their share of happiness, not because they never found it, but because they didn't stop to enjoy it.**
 
-Armenian Proverb
+William Feather
