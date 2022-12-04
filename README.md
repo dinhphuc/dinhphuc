@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are never too old to set another goal or dream a new dream.**
+**It matters not what someone is born, but what they grow to be.**
 
-Les Brown
+Master Oogway
