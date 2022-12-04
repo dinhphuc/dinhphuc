@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We must embrace pain and burn it as fuel for our journey.**
+**Push yourself because no one else is going to do it for you.**
 
-Kenji Miyazawa
+Anonymous
