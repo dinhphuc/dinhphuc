@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Friends show their love in times of trouble, not in happiness.**
+**Never give up. Great things take time. Be patient.**
 
-Euripides
+Anonymous
