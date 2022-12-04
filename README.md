@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Peace begins When expectation ends.**
+**Pessimism leads to weakness, optimism to power.**
 
-Sri Chinmoy
+William James
