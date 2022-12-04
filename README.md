@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're going through hell, keep going.**
+**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
 
-Winston Churchill
+Anonymous
