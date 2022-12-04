@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We either make ourselves miserable or we make ourselves strong. The amount of work is the same.**
+**The best preparation for tomorrow is doing your best today.**
 
-Carlos Costaneda
+H. Jackson Brown, Jr
