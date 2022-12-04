@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't fall, how are you going to know what getting up feels like?**
+**If you're going through hell, keep going.**
 
-Stephen Curry
+Winston Churchill
