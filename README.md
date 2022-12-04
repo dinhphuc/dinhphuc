@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Gratitude is the sweetest thing in a seeker's life- in all human life. If there is gratitude in your heart, then there will be tremendous sweetness in your eyes.**
+**Positive thinking will let you do everything better than negative thinking will.**
 
-Sri Chinmoy
+Zig Ziglar
