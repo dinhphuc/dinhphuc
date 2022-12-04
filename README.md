@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It matters not what someone is born, but what they grow to be.**
+**Every strike brings me closer to the next home run.**
 
-Master Oogway
+Babe Ruth
