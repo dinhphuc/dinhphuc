@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do not blame the world. Find a solution.**
+**We either make ourselves miserable or we make ourselves strong. The amount of work is the same.**
 
-Sri Chinmoy
+Carlos Costaneda
