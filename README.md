@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Challenges are what make life interesting and overcoming them is what makes life meaningful.**
+**When times are good, be grateful, and when times are tough, be graceful.**
 
-Joshua Marine
+Dustin Poirier
