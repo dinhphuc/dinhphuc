@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Positive thinking will let you do everything better than negative thinking will.**
+**Everywhere you go, take a smile with you.**
 
-Zig Ziglar
+Sasha Azevedo
