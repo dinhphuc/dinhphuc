@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up. Great things take time. Be patient.**
+**Do not blame the world. Find a solution.**
 
-Anonymous
+Sri Chinmoy
