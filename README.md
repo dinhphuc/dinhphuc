@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only easy day was yesterday.**
+**To be willing is only half the task.**
 
-Navy Seals
+Armenian Proverb
