@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The best preparation for tomorrow is doing your best today.**
+**The only easy day was yesterday.**
 
-H. Jackson Brown, Jr
+Navy Seals
