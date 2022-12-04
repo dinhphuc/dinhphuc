@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Wisdom is knowing when you can't be wise.**
+**Opportunities don't happen. You create them.**
 
-Muhammad Ali
+Chris Grosser
