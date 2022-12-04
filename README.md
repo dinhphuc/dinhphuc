@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Blessings sometimes show up in unrecognizable disguises.**
+**Peace begins When expectation ends.**
 
-Janette Oke
+Sri Chinmoy
