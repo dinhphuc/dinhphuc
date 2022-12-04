@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Opportunities don't happen. You create them.**
+**Replace those thoughts of worry with thoughts of hope, faith, and victory.**
 
-Chris Grosser
+Joel Osteen
