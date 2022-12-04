@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every strike brings me closer to the next home run.**
+**Our greatest glory is not in never falling, but in rising every time we fall.**
 
-Babe Ruth
+Confucius
