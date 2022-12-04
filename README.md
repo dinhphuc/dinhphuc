@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When times are good, be grateful, and when times are tough, be graceful.**
+**Life without love is like a tree without blossoms or fruit.**
 
-Dustin Poirier
+Khalil Gibran
