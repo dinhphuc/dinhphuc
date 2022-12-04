@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything you've ever wanted is on the other side of fear.**
+**Challenges are what make life interesting and overcoming them is what makes life meaningful.**
 
-George Addair
+Joshua Marine
