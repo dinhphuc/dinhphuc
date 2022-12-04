@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
+**Challenges are what make life interesting and overcoming them is what makes life meaningful.**
 
-Anonymous
+Joshua Marine
