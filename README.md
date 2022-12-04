@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Push yourself because no one else is going to do it for you.**
+**Friends show their love in times of trouble, not in happiness.**
 
-Anonymous
+Euripides
