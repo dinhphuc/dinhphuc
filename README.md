@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I am happy because I choose to be happy no matter what the situation is.**
+**You are never too old to set another goal or dream a new dream.**
 
-Anonymous
+Les Brown
