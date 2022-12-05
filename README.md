@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do all things with love.**
+**Not all those who wander are lost.**
 
-Og Mandino
+J. R. R. Tolkien
