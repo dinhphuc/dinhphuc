@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't miss out on something that could be great just because it could also be difficult.**
+**Be happy not because everything is good, but because you can see the good side of everything.**
 
 Anonymous
