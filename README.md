@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are what you do, not what you say you'll do.**
+**Work on being in love with the person in the mirror who has been through so much but is still standing.**
 
 Anonymous
