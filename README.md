@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I always like to look on the optimistic side of life, but I am realistic enough to know that life is a complex matter.**
+**Remember that guy that gave up? Neither does anyone else.**
 
-Walt Disney
+Anonymous
