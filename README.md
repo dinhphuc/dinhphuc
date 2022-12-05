@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Work on being in love with the person in the mirror who has been through so much but is still standing.**
+**Good friends are like stars. You don't always see them, but you know they're always there.**
 
-Anonymous
+Christy Evans
