@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success trains. Failure complains.**
+**The struggle you're in today is developing the strength you need tomorrow.**
 
-Anonymous
+Robert Tew
