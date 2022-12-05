@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only journey is the one within.**
+**Every next level of your life will demand a different version of you.**
 
-Rainer Maria Rilke
+Anonymous
