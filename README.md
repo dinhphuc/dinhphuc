@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can't live longer, live deeper.**
+**I'm not here to be average, I'm here to be awesome.**
 
-Italian Proverb
+Anonymous
