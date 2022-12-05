@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The struggle you're in today is developing the strength you need tomorrow.**
+**You miss 100% of the shots you don't take.**
 
-Robert Tew
+Wayne Gretzky
