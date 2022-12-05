@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Set a goal so big that you can't achieve it until you grow into the person who can.**
+**Life chips away at us all. Some play the victim. Some choose to be a survivor. And then there are those who choose to conquer.**
 
 Anonymous
