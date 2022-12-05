@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A teacher is better than two books.**
+**You don't manifest dreams without taking chances.**
 
-German Proverb
+Stephen Richards
