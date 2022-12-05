@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No marathon gets easier later. The halfway point only marks the end of the beginning.**
+**Success trains. Failure complains.**
 
-Joe Henderson
+Anonymous
