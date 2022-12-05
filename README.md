@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Control, control, you must learn control!**
+**I ask not for a lighter burden, but for broader shoulders.**
 
-Yoda
+Jewish Proverb
