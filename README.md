@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Earn your confidence, nurture it, then help to build it in others.**
+**There are only two mistakes one can make along the road to truth; not going all the way, and not starting.**
 
-Alex Malley
+Buddha
