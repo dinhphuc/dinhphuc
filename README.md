@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Attachment leads to jealously. The shadow of greed, that is.**
+**If you can't live longer, live deeper.**
 
-Yoda
+Italian Proverb
