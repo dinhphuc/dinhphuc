@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Not all those who wander are lost.**
+**If you can't live longer, live deeper.**
 
-J. R. R. Tolkien
+Italian Proverb
