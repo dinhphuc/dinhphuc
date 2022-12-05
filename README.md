@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is a journey ... not a destination.**
+**There is only one corner of the universe you can be certain of improving, and that's your own self.**
 
-Ben Sweetland
+Aldous Huxley
