@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm not here to be average, I'm here to be awesome.**
+**Control, control, you must learn control!**
 
-Anonymous
+Yoda
