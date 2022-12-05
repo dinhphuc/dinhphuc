@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life chips away at us all. Some play the victim. Some choose to be a survivor. And then there are those who choose to conquer.**
+**The sun itself is weak when it first rises, and gathers strength and courage as the day gets on.**
 
-Anonymous
+Charles Dickens
