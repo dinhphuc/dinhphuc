@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Surround yourself with only people who are going to lift you higher.**
+**Attachment leads to jealously. The shadow of greed, that is.**
 
-Oprah
+Yoda
