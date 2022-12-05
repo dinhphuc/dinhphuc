@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You miss 100% of the shots you don't take.**
+**Set a goal so big that you can't achieve it until you grow into the person who can.**
 
-Wayne Gretzky
+Anonymous
