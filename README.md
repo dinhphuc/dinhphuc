@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I ask not for a lighter burden, but for broader shoulders.**
+**The only journey is the one within.**
 
-Jewish Proverb
+Rainer Maria Rilke
