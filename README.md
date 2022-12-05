@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A teacher is better than two books.**
+**Do all things with love.**
 
-German Proverb
+Og Mandino
