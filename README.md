@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good friends are like stars. You don't always see them, but you know they're always there.**
+**Don't stop until you're proud.**
 
-Christy Evans
+Anonymous
