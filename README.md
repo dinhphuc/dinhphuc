@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't manifest dreams without taking chances.**
+**Don't miss out on something that could be great just because it could also be difficult.**
 
-Stephen Richards
+Anonymous
