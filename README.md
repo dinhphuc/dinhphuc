@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are only two mistakes one can make along the road to truth; not going all the way, and not starting.**
+**Good judgment comes from experience, and a lot of that comes from bad judgment.**
 
-Buddha
+Will Rogers
