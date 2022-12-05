@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember that guy that gave up? Neither does anyone else.**
+**No marathon gets easier later. The halfway point only marks the end of the beginning.**
 
-Anonymous
+Joe Henderson
