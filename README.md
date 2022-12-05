@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happy are those who take life day by day, complain very little, and are thankful for the little things in life.**
+**Earn your confidence, nurture it, then help to build it in others.**
 
-Anonymous
+Alex Malley
