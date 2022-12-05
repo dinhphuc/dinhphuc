@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good judgment comes from experience, and a lot of that comes from bad judgment.**
+**The starting point of all achievement is desire.**
 
-Will Rogers
+Napoleon Hill
