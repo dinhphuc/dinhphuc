@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you want to succeed as bad as you want to breathe, you will be successful.**
+**Happy are those who take life day by day, complain very little, and are thankful for the little things in life.**
 
-Eric Thomas
+Anonymous
