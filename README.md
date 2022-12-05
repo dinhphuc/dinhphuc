@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life chips away at us all. Some play the victim. Some choose to be a survivor. And then there are those who choose to conquer.**
+**There are only two mistakes one can make along the road to truth; not going all the way, and not starting.**
 
-Anonymous
+Buddha
