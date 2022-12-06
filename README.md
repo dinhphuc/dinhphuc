@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't regret the past, just learn from it.**
+**The secret of success is to do the common thing uncommonly well.**
 
-Ben Ipock
+John D. Rockefeller Jr
