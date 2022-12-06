@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You may be disappointed if you fail, but you are doomed if you don't try.**
+**Always two there are, no more, no less. A master and an apprentice.**
 
-Beverly Sills
+Yoda
