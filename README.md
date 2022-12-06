@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't waste a minute not being happy. If one door closes, run to the next window - or break down a door.**
+**Do what makes you happy.**
 
-Brooke Shields
+Rachel Ann Nunes
