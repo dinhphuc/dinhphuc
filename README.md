@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All that matters is how you see yourself.**
+**Hustle until your haters ask if you are hiring.**
 
-Conor McGregor
+Anonymous
