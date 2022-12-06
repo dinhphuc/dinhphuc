@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between stumbling blocks and stepping stones is how you use them.**
+**To give anything less than your best is to sacrifice the gift.**
 
-Anonymous
+Steve Prefontaine
