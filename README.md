@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness can be found, even in the darkest of times, if one only remembers to turn on the light.**
+**Keep your face always toward the sunshine - and shadows will fall behind you.**
 
-Anonymous
+Walt Whitman
