@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One small positive thought in the morning can change your whole day.**
+**When will you realize, the more you take, the less you have.**
 
-Anonymous
+Master Oogway
