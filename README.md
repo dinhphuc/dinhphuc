@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can either spend your time or invest your time.**
+**You were born to win. But to be a winner, you must plan to win, prepare to win, and expect to win.**
 
-Chip Kelly
+Zig Ziglar
