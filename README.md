@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To be calm is the highest achievement of the self.**
+**It's gonna get harder before it gets easier. But it will get better, you just gotta make it through the hard stuff first.**
 
-Zen Proverb
+Anonymous
