@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our own self-esteem is something we can actually twist in whatever way we want.**
+**The difference between stumbling blocks and stepping stones is how you use them.**
 
-Stephen Richards
+Anonymous
