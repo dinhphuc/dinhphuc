@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are only two options regarding commitment. You're either IN or you're OUT. There is no such thing as life in-between.**
+**He who lives in harmony with himself lives in harmony with the universe.**
 
-Pat Riley
+Marcus Aurelius
