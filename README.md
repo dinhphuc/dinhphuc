@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of success is to do the common thing uncommonly well.**
+**Inhale confidence. Exhale doubt.**
 
-John D. Rockefeller Jr
+Anonymous
