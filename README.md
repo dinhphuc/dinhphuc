@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't judge each day by the harvest you reap but by the seeds that you plant.**
+**To be calm is the highest achievement of the self.**
 
-Robert Louis Stevenson
+Zen Proverb
