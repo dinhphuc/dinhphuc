@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To give anything less than your best is to sacrifice the gift.**
+**Don't let the past steal your present.**
 
-Steve Prefontaine
+Terri Guillemets
