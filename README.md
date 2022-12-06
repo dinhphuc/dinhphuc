@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When will you realize, the more you take, the less you have.**
+**You can either spend your time or invest your time.**
 
-Master Oogway
+Chip Kelly
