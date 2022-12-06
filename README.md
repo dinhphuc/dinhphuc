@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't let the past steal your present.**
+**Don't judge each day by the harvest you reap but by the seeds that you plant.**
 
-Terri Guillemets
+Robert Louis Stevenson
