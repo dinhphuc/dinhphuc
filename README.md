@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What keeps me going is goals.**
+**To give anything less than your best is to sacrifice the gift.**
 
-Muhammad Ali
+Steve Prefontaine
