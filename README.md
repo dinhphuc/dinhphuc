@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Easy choices, hard life. Hard choices, easy life.**
+**All that matters is how you see yourself.**
 
-Jerzy Gregorek
+Conor McGregor
