@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**He who lives in harmony with himself lives in harmony with the universe.**
+**Some people dream of success... while others wake up and work hard at it.**
 
-Marcus Aurelius
+Anonymous
