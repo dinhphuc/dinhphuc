@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Some people dream of success... while others wake up and work hard at it.**
+**You may be disappointed if you fail, but you are doomed if you don't try.**
 
-Anonymous
+Beverly Sills
