@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can't live longer, live deeper.**
+**Our own self-esteem is something we can actually twist in whatever way we want.**
 
-Italian Proverb
+Stephen Richards
