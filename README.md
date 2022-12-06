@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always two there are, no more, no less. A master and an apprentice.**
+**Happiness can be found, even in the darkest of times, if one only remembers to turn on the light.**
 
-Yoda
+Anonymous
