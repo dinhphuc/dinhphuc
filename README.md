@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can't live longer, live deeper.**
+**Don't regret the past, just learn from it.**
 
-Italian Proverb
+Ben Ipock
