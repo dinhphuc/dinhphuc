@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep your face always toward the sunshine - and shadows will fall behind you.**
+**What keeps me going is goals.**
 
-Walt Whitman
+Muhammad Ali
