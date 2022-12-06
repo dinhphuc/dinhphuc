@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To give anything less than your best is to sacrifice the gift.**
+**Easy choices, hard life. Hard choices, easy life.**
 
-Steve Prefontaine
+Jerzy Gregorek
