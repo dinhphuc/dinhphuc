@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do what makes you happy.**
+**Acting on a good idea is better than just having a good idea.**
 
-Rachel Ann Nunes
+Robert Half
