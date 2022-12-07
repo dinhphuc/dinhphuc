@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every strike brings me closer to the next home run.**
+**Always be yourself and have faith in yourself. Do not go out and look for a successful personality and try to duplicate it.**
 
-Babe Ruth
+Bruce Lee
