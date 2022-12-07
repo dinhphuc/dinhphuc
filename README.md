@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whoever loves much, performs much, and can accomplish much, and what is done in love is done well.**
+**When it rains look for rainbows.**
 
-Vincent van Gogh
+Oscar Wilde
