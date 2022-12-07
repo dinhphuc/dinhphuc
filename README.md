@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want it, you'll find a way. If you don't, you'll find an excuse.**
+**I am in charge of how I feel and today I am choosing happiness.**
 
 Anonymous
