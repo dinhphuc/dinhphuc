@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always find opportunities to make someone smile, and to offer random acts of kindness in everyday life.**
+**Whatever can happen at any time can happen today.**
 
-Roy T. Bennett
+Seneca
