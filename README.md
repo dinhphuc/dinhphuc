@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do all things with love.**
+**Choosing to be positive and having a grateful attitude is going to determine how you're going to live your life.**
 
-Og Mandino
+Joel Osteen
