@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever can happen at any time can happen today.**
+**Do all things with love.**
 
-Seneca
+Og Mandino
