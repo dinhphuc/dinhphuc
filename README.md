@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Another day another blessing.**
+**Whoever loves much, performs much, and can accomplish much, and what is done in love is done well.**
 
-Anonymous
+Vincent van Gogh
