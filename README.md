@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When it rains look for rainbows.**
+**No one controls how I feel about myself, but me.**
 
-Oscar Wilde
+Anonymous
