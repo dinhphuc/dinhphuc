@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Through challenge and difficulty, we learn to see life differently than before.**
+**Happy people don't have the best of everything they make the best of everything.**
 
-Auliq-Ice
+Anonymous
