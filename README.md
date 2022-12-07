@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Dream big. Start small. But most of all, start.**
+**Every strike brings me closer to the next home run.**
 
-Simon Sinek
+Babe Ruth
