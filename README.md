@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Between stimulus and response, there is a space. In that space is our power to choose our response.**
+**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
 
-Viktor Frankl
+Wayne Dyer
