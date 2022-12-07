@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always be yourself and have faith in yourself. Do not go out and look for a successful personality and try to duplicate it.**
+**Through challenge and difficulty, we learn to see life differently than before.**
 
-Bruce Lee
+Auliq-Ice
