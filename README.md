@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Staying positive does not mean that things will turn out okay. Rather it is knowing that you will be okay no matter how things turn out.**
+**There are two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle.**
 
-Anonymous
+Albert Einstein
