@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whenever you see a successful person, you only see the public glories, never the private sacrifices to reach them.**
+**The harder the struggle, the more glorious the triumph.**
 
-Vaibhav Shah
+Anonymous
