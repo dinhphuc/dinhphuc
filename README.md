@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm alone, but I'm not lonely. I like who I am. I like who I'm becoming.**
+**Always find opportunities to make someone smile, and to offer random acts of kindness in everyday life.**
 
-Deena Kastor
+Roy T. Bennett
