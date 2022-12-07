@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle.**
+**Between stimulus and response, there is a space. In that space is our power to choose our response.**
 
-Albert Einstein
+Viktor Frankl
