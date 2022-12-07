@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only a life lived for others is a life worthwhile.**
+**None of us is as smart as all of us.**
 
-Albert Einstein
+Ken Blanchard
