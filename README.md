@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Acting on a good idea is better than just having a good idea.**
+**Nobody can bring you peace but yourself.**
 
-Robert Half
+Ralph Waldo Emerson
