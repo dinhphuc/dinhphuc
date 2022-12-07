@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's the repetition of affirmations that leads to belief. And once that belief becomes a deep conviction, things begin to happen.**
+**You don't have to control your thoughts; you just have to stop letting them control you.**
 
-Muhammad Ali
+Dan Millman
