@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happy people don't have the best of everything they make the best of everything.**
+**Simple to open a shop; another thing to keep it open.**
 
-Anonymous
+Chinese Proverb
