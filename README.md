@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Choosing to be positive and having a grateful attitude is going to determine how you're going to live your life.**
+**Dream big. Start small. But most of all, start.**
 
-Joel Osteen
+Simon Sinek
