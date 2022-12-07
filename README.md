@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's lack of faith that makes people afraid of meeting challenges, and I believed in myself.**
+**Attitude will always define who we are in life.**
 
-Muhammad Ali
+Mark A. Brennan
