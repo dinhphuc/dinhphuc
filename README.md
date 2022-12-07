@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Attitude will always define who we are in life.**
+**If you want your dinner, don't insult the cook.**
 
-Mark A. Brennan
+Chinese Proverb
