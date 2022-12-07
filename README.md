@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No one controls how I feel about myself, but me.**
+**Love has no age, no limit; and no death.**
 
-Anonymous
+John Galsworthy
