@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't have to control your thoughts; you just have to stop letting them control you.**
+**It's lack of faith that makes people afraid of meeting challenges, and I believed in myself.**
 
-Dan Millman
+Muhammad Ali
