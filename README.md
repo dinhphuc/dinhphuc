@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Through challenge and difficulty, we learn to see life differently than before.**
+**Staying positive does not mean that things will turn out okay. Rather it is knowing that you will be okay no matter how things turn out.**
 
-Auliq-Ice
+Anonymous
