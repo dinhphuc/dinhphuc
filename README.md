@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Simple to open a shop; another thing to keep it open.**
+**Through challenge and difficulty, we learn to see life differently than before.**
 
-Chinese Proverb
+Auliq-Ice
