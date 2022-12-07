@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The harder the struggle, the more glorious the triumph.**
+**This a wonderful day. I've never seen this one before.**
 
-Anonymous
+Maya Angelou
