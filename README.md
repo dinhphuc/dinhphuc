@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence comes not from always being right but from not fearing to be wrong.**
+**Remember that not getting what you want is sometimes a wonderful stroke of luck.**
 
-Peter T. Mcintyre
+Dalai Lama
