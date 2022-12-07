@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**This a wonderful day. I've never seen this one before.**
+**Only a life lived for others is a life worthwhile.**
 
-Maya Angelou
+Albert Einstein
