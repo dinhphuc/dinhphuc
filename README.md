@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**None of us is as smart as all of us.**
+**Confidence comes not from always being right but from not fearing to be wrong.**
 
-Ken Blanchard
+Peter T. Mcintyre
