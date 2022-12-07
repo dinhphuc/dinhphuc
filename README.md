@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love has no age, no limit; and no death.**
+**I'm alone, but I'm not lonely. I like who I am. I like who I'm becoming.**
 
-John Galsworthy
+Deena Kastor
