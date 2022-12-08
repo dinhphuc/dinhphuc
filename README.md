@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure is not the falling down but the staying down.**
+**Train yourself to let go of everything you fear to lose.**
 
-Anonymous
+Yoda
