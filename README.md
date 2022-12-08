@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We love life, not because we are used to living but because we are used to loving.**
+**Luck is what happens when preparation meets opportunity.**
 
-Friedrich Nietzsche
+Seneca
