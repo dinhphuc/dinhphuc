@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The beginning is the most important part of the work.**
+**We love life, not because we are used to living but because we are used to loving.**
 
-Plato
+Friedrich Nietzsche
