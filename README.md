@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It does not matter how slowly you go as long as you do not stop.**
+**Life's a journey not a race.**
 
-Confucius
+Meir Ezra
