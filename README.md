@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you have only one smile in you, give it to the people you love.**
+**Determination is doing what needs to be done even when you don't feel like doing it.**
 
-Maya Angelou
+Anonymous
