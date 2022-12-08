@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success doesn't just come and find you, you have to go out and get it.**
+**Do all things with love.**
 
-Anonymous
+Og Mandino
