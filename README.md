@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whenever you see a successful person, you only see the public glories, never the private sacrifices to reach them.**
+**You have a choice. You can throw in the towel, or you can use it to wipe the sweat off of your face.**
 
-Vaibhav Shah
+Gatorade
