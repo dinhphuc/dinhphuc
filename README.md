@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Action is the foundational key to all success.**
+**Always remember that you are absolutely unique. Just like everyone else.**
 
-Pablo Picasso
+Margaret Mead
