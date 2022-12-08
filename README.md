@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What we achieve inwardly will change outer reality.**
+**The beginning is the most important part of the work.**
 
-Plutarch
+Plato
