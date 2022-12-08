@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I always like to look on the optimistic side of life, but I am realistic enough to know that life is a complex matter.**
+**It is not in the stars to hold our destiny but in ourselves.**
 
-Walt Disney
+William Shakespeare
