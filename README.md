@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The marathon can humble you.**
+**If you want to change the world, start with yourself.**
 
-Bill Rodgers
+Mahatma Gandhi
