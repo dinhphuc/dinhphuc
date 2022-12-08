@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Determination is doing what needs to be done even when you don't feel like doing it.**
+**Sometimes you face difficulties not because you're doing something wrong but because you're doing something right.**
 
 Anonymous
