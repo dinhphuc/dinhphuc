@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It never gets easier. You just get better.**
+**The only way to do great work is to love what you do.**
 
-Jordan Hoechlin
+Steve Jobs
