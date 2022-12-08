@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to change the world, start with yourself.**
+**Failure is not the falling down but the staying down.**
 
-Mahatma Gandhi
+Anonymous
