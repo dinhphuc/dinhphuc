@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life isn't about finding yourself. Life is about creating yourself.**
+**The marathon can humble you.**
 
-George Bernard Shaw
+Bill Rodgers
