@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Open your eyes and notice the beauty of this wonderful world.**
+**If you have only one smile in you, give it to the people you love.**
 
-Anonymous
+Maya Angelou
