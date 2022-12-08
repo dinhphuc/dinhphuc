@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not in the stars to hold our destiny but in ourselves.**
+**Attitude will always define who we are in life.**
 
-William Shakespeare
+Mark A. Brennan
