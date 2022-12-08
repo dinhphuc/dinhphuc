@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only way to do great work is to love what you do.**
+**A runner must run with dreams in his heart.**
 
-Steve Jobs
+Emil Zatopek
