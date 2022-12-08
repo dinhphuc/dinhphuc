@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Luck is what happens when preparation meets opportunity.**
+**One day you will wake up and there won't be any time to do the things you've always wanted to do. Do it now.**
 
-Seneca
+Paulo Coelho
