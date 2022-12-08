@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Luck is what happens when preparation meets opportunity.**
+**Take it all one day at a time and enjoy the journey.**
 
-Seneca
+Kristi Bartlett
