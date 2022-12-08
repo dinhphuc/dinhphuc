@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Sometimes you face difficulties not because you're doing something wrong but because you're doing something right.**
+**Success doesn't just come and find you, you have to go out and get it.**
 
 Anonymous
