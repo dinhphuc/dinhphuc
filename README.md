@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When I hear somebody sigh, 'Life is hard,' I am always tempted to ask, 'Compared to what?'**
+**What we achieve inwardly will change outer reality.**
 
-Sydney Harris
+Plutarch
