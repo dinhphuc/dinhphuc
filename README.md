@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
+**Whenever you see a successful person, you only see the public glories, never the private sacrifices to reach them.**
 
-Wayne Dyer
+Vaibhav Shah
