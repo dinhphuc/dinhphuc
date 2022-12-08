@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Float like a butterfly, sting like a bee. The hands can't hit what the eyes can't see.**
+**Our greatest weakness lies in giving up. The most certain way to succeed is to just try one more time.**
 
-Muhammad Ali
+Thomas Edison
