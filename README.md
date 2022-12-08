@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A runner must run with dreams in his heart.**
+**If you can't live longer, live deeper.**
 
-Emil Zatopek
+Italian Proverb
