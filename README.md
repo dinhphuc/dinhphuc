@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can't live longer, live deeper.**
+**Life isn't about finding yourself. Life is about creating yourself.**
 
-Italian Proverb
+George Bernard Shaw
