@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Take it all one day at a time and enjoy the journey.**
+**Open your eyes and notice the beauty of this wonderful world.**
 
-Kristi Bartlett
+Anonymous
