@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always remember that you are absolutely unique. Just like everyone else.**
+**You don't get what you wish for. You get what you work for.**
 
-Margaret Mead
+Anonymous
