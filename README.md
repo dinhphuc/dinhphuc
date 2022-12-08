@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Attitude will always define who we are in life.**
+**Action is the foundational key to all success.**
 
-Mark A. Brennan
+Pablo Picasso
