@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be strong now, because things will get better. It might be stormy now, but it can't rain forever.**
+**To fall in love with yourself is the first secret to happiness.**
 
-Anonymous
+Robert Morley
