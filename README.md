@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All souls are lost until they are found.**
+**You don't want to look back and know you could have done better.**
 
-Kate McGahan
+Anonymous
