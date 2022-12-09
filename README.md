@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your hardest times often lead to the greatest moments of your life. Keep going. Tough situations build strong people in the end.**
+**Mistakes are proof that you are trying.**
 
-Roy T. Bennett
+Anonymous
