@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only thing worse than starting something and failing... is not starting something.**
+**Believe with all of your heart that you will do what you were made to do.**
 
-Seth Godin
+Orison Swett Marden
