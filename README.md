@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be a voice not an echo.**
+**You don't gain anything from stressing. Remember that.**
 
 Anonymous
