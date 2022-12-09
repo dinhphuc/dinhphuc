@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Mistakes are proof that you are trying.**
+**It is only possible to live happily ever after on a daily basis.**
 
 Anonymous
