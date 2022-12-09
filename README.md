@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is only possible to live happily ever after on a daily basis.**
+**Don't dream of winning, train for it!**
 
-Anonymous
+Mo Farah
