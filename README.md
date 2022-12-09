@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't dream of winning, train for it!**
+**Be aware as often as possible of the great transformation process you are going through.**
 
-Mo Farah
+Anonymous
