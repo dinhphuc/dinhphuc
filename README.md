@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**'Thank you' is the best prayer that anyone could say.**
+**Be patient, good things are coming your way.**
 
-Alice Walker
+Anonymous
