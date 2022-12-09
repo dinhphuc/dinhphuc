@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't want to look back and know you could have done better.**
+**Where there is love there is life.**
 
-Anonymous
+Mahatma Gandhi
