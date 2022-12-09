@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You've got to be willing to lose everything to gain yourself.**
+**We know what we are, but know not what we may be.**
 
-Iyanla Vanzant
+William Shakespeare
