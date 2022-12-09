@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live your life for you.**
+**There will be obstacles. There will be doubters. There will be mistakes. But with hard work, there are no limits.**
 
 Anonymous
