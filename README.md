@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Trust the process of life.**
+**If you want to find happiness, find gratitude.**
 
-Anonymous
+Steve Maraboli
