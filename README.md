@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Running is therapy anyone can afford.**
+**Life is a succession of lessons which must be lived to be understood.**
 
-Toni Sorenson
+Ralph Waldo Emerson
