@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To fall in love with yourself is the first secret to happiness.**
+**The only thing worse than starting something and failing... is not starting something.**
 
-Robert Morley
+Seth Godin
