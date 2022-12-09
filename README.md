@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To fall in love with yourself is the first secret to happiness.**
+**Every next level of your life will demand a different version of you.**
 
-Robert Morley
+Anonymous
