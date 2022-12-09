@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life becomes easier and more beautiful when we can see the good in other people.**
+**100% commitment is easier than 98% commitment.**
 
-Roy T. Bennett
+Harvard Business School
