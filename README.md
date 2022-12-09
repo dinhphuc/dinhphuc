@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every next level of your life will demand a different version of you.**
+**Nurture your mind with great thoughts, for you will never go any higher than you think.**
 
-Anonymous
+Benjamin Disraeli
