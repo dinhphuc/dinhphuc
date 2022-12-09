@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We know what we are, but know not what we may be.**
+**Everytime you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**
 
-William Shakespeare
+Mother Teresa
