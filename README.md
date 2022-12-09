@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hardships often prepare ordinary people for an extraordinary destiny.**
+**'Thank you' is the best prayer that anyone could say.**
 
-C.S. Lewis
+Alice Walker
