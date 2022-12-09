@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Where there is love there is life.**
+**Live your life for you.**
 
-Mahatma Gandhi
+Anonymous
