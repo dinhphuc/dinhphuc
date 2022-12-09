@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The vision of a champion is someone who is bent over, drenched in sweat, at the point of exhaustion when no one else is watching.**
+**Live as if you were to die tomorrow. Learn as if you were to live forever.**
 
-Jim Afremow
+Mahatma Gandhi
