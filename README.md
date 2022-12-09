@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everytime you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**
+**Life becomes easier and more beautiful when we can see the good in other people.**
 
-Mother Teresa
+Roy T. Bennett
