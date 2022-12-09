@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Tension is who you think you should be. Relaxation is who you are.**
+**Running is therapy anyone can afford.**
 
-Jim Afremow
+Toni Sorenson
