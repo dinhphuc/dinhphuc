@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**100% commitment is easier than 98% commitment.**
+**To fall in love with yourself is the first secret to happiness.**
 
-Harvard Business School
+Robert Morley
