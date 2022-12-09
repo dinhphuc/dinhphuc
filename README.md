@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be patient, good things are coming your way.**
+**Train your mind to see the positive in any situation and keep going.**
 
 Anonymous
