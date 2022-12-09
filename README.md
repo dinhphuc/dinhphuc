@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe and act as if it were impossible to fail.**
+**All souls are lost until they are found.**
 
-Charles Kettering
+Kate McGahan
