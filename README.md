@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be aware as often as possible of the great transformation process you are going through.**
+**You don't get what you wish for. You get what you work for.**
 
 Anonymous
