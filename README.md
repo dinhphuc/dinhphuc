@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There will be obstacles. There will be doubters. There will be mistakes. But with hard work, there are no limits.**
+**Your hardest times often lead to the greatest moments of your life. Keep going. Tough situations build strong people in the end.**
 
-Anonymous
+Roy T. Bennett
