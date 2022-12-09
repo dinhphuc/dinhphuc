@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is a succession of lessons which must be lived to be understood.**
+**Be a voice not an echo.**
 
-Ralph Waldo Emerson
+Anonymous
