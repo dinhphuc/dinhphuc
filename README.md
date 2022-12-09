@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't get what you wish for. You get what you work for.**
+**You've got to be willing to lose everything to gain yourself.**
 
-Anonymous
+Iyanla Vanzant
