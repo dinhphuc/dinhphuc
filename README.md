@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody can make you to feel inferior without your consent.**
+**When a new day begins, dare to smile gratefully.**
 
-Eleanor Roosevelt
+Steve Maraboli
