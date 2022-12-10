@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Today, give a stranger one of your smiles. It might be the only sunshine they see all day.**
+**Failure is not the opposite of success. Its part of success.**
 
-H. Jackson Brown Jr
+Anonymous
