@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good friends are like stars. You don't always see them, but you know they're always there.**
+**Pessimism leads to weakness, optimism to power.**
 
-Christy Evans
+William James
