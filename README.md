@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to find happiness, find gratitude.**
+**Today, give a stranger one of your smiles. It might be the only sunshine they see all day.**
 
-Steve Maraboli
+H. Jackson Brown Jr
