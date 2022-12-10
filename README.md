@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The supreme art of war is to subdue the enemy without fighting.**
+**Champions keep playing until they get it right.**
 
-Sun Tzu
+Billie Jean King
