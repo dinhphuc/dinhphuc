@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There's nothing that you can do that can't be done.**
+**Move fast and break things. If you are not breaking things, you are not moving fast enough.**
 
-The Beatles
+Mark Zuckerberg
