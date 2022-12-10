@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I failed my way to success.**
+**Another day another blessing.**
 
-Thomas Edison
+Anonymous
