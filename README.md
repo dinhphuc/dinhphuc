@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is a journey ... not a destination.**
+**Nobody said it would be easy, so don't ever give up when it gets hard.**
 
-Ben Sweetland
+Anonymous
