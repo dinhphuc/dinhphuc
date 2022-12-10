@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**'Thank you' is the best prayer that anyone could say.**
+**The things you regret most in life are the risks you didn't take.**
 
-Alice Walker
+Anonymous
