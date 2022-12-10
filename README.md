@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When a new day begins, dare to smile gratefully.**
+**Instead of feeding myself excuses why I can't, I give myself reasons why I can.**
 
-Steve Maraboli
+Anonymous
