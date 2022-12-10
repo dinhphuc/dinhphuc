@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Make today so awesome yesterday gets jealous.**
+**If you want to find happiness, find gratitude.**
 
-Anonymous
+Steve Maraboli
