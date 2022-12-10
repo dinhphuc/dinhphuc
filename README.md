@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The struggle you're in today is developing the strength you need tomorrow.**
+**'Thank you' is the best prayer that anyone could say.**
 
-Robert Tew
+Alice Walker
