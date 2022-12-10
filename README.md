@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Train your mind to see the positive in any situation and keep going.**
+**The struggle you're in today is developing the strength you need tomorrow.**
 
-Anonymous
+Robert Tew
