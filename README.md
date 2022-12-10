@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing builds self-esteem and self-confidence like accomplishment.**
+**The good life is a process, not a state of being. It is a direction, not a destination.**
 
-Thomas Carlyle
+Carl Rogers
