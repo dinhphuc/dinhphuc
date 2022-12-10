@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Inhale confidence. Exhale doubt.**
+**Luck is what happens when preparation meets opportunity.**
 
-Anonymous
+Seneca
