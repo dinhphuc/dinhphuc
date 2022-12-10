@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't sail out farther than you can row back.**
+**Make today so awesome yesterday gets jealous.**
 
-Danish Proverb
+Anonymous
