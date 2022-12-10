@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whenever you see a successful person, you only see the public glories, never the private sacrifices to reach them.**
+**One day I'll be at the place I always wanted to be.**
 
-Vaibhav Shah
+Anonymous
