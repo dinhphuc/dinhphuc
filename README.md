@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Luck is what happens when preparation meets opportunity.**
+**To be willing is only half the task.**
 
-Seneca
+Armenian Proverb
