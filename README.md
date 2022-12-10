@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You deserve to be happy. You deserve to live a life you are excited about. Don't let others make you forget that.**
+**We are made to persist. That's how we find out who we are.**
 
-Anonymous
+Tobias Wolff
