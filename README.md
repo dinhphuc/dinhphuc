@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The things you regret most in life are the risks you didn't take.**
+**Life is never fair, and perhaps it is a good thing for most of us that it is not.**
 
-Anonymous
+Oscar Wilde
