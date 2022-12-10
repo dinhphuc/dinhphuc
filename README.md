@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody said it would be easy, so don't ever give up when it gets hard.**
+**The supreme art of war is to subdue the enemy without fighting.**
 
-Anonymous
+Sun Tzu
