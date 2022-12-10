@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's hard to beat a person who never gives up.**
+**We love life, not because we are used to living but because we are used to loving.**
 
-Anonymous
+Friedrich Nietzsche
