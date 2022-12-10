@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Move fast and break things. If you are not breaking things, you are not moving fast enough.**
+**I learned that courage was not the absence of fear, but the triumph over it.**
 
-Mark Zuckerberg
+Nelson Mandela
