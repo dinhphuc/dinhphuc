@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pessimism leads to weakness, optimism to power.**
+**I don't make excuses. I make results.**
 
-William James
+Anonymous
