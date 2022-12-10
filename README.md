@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I learned that courage was not the absence of fear, but the triumph over it.**
+**Inhale confidence. Exhale doubt.**
 
-Nelson Mandela
+Anonymous
