@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We are made to persist. That's how we find out who we are.**
+**It's hard to beat a person who never gives up.**
 
-Tobias Wolff
+Anonymous
