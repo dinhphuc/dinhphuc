@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The question isn't who is going to let me; it's who is going to stop me.**
+**Nothing builds self-esteem and self-confidence like accomplishment.**
 
-Ayn Rand
+Thomas Carlyle
