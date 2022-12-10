@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Instead of feeding myself excuses why I can't, I give myself reasons why I can.**
+**I failed my way to success.**
 
-Anonymous
+Thomas Edison
