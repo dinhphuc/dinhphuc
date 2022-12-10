@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Champions keep playing until they get it right.**
+**Nobody can make you to feel inferior without your consent.**
 
-Billie Jean King
+Eleanor Roosevelt
