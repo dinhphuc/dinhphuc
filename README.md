@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If it doesn't challenge you, it won't change you.**
+**Good judgment comes from experience, and a lot of that comes from bad judgment.**
 
-Anonymous
+Will Rogers
