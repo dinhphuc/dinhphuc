@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You've got to find people who love like you do.**
+**It's easy to stand in the crowd but it takes courage to stand alone.**
 
-Anonymous
+Mahatma Gandhi
