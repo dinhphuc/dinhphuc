@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**People who make you feel better about yourself when you're sad are so important.**
+**He who lives in harmony with himself lives in harmony with the universe.**
 
-Anonymous
+Marcus Aurelius
