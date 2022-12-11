@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is what happens when you're busy making other plans.**
+**People who make you feel better about yourself when you're sad are so important.**
 
-John Lennon
+Anonymous
