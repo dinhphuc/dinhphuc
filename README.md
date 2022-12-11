@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Tough times don't last. Tough people do.**
+**Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence.**
 
-Robert H. Schuller
+Helen Keller
