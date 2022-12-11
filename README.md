@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smiling doesn't necessarily mean you're happy. Sometimes it just means you're strong.**
+**You've got to find people who love like you do.**
 
 Anonymous
