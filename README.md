@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Wisdom is knowing when you can't be wise.**
+**It is not the mountain we conquer, but ourselves.**
 
-Muhammad Ali
+Sir Edmund Hillary
