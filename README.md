@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be gentle with yourself. You're doing the best you can.**
+**Wisdom is knowing when you can't be wise.**
 
-Anonymous
+Muhammad Ali
