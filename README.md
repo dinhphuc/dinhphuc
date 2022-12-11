@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how old I get, the race remains one of life's most rewarding experiences.**
+**Love who you are, embrace who you are. Love yourself.**
 
-George Sheehan
+Lilly Singh
