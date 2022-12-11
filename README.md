@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.**
+**A good life is doing what you love as much as you can and doing what you must as much as you should.**
 
-William Arthur Ward
+Savania China
