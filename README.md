@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure is not the opposite of success. Its part of success.**
+**If it doesn't challenge you, it won't change you.**
 
 Anonymous
