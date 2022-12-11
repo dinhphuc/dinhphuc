@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's easy to stand in the crowd but it takes courage to stand alone.**
+**Be gentle with yourself. You're doing the best you can.**
 
-Mahatma Gandhi
+Anonymous
