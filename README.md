@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Instead of worrying about what you cannot control, shift your energy to what you can create.**
+**When it rains look for rainbows.**
 
-Roy T. Bennett
+Oscar Wilde
