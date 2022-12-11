@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Not all those who wander are lost.**
+**When you want to succeed as bad as you want to breathe, you will be successful.**
 
-J. R. R. Tolkien
+Eric Thomas
