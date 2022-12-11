@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence.**
+**No matter how old I get, the race remains one of life's most rewarding experiences.**
 
-Helen Keller
+George Sheehan
