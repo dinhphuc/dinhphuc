@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Peace begins When expectation ends.**
+**Life is what happens when you're busy making other plans.**
 
-Sri Chinmoy
+John Lennon
