@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Enjoy the little things, for one day you may look back and realize they were the big things.**
+**Every day may not be good... but there's something good in every day.**
 
-Robert Brault
+Alice Morse Earle
