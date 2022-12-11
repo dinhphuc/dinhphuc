@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To be willing is only half the task.**
+**Peace begins When expectation ends.**
 
-Armenian Proverb
+Sri Chinmoy
