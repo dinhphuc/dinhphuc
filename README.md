@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your path you must decide.**
+**Not all those who wander are lost.**
 
-Yoda
+J. R. R. Tolkien
