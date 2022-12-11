@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you want to succeed as bad as you want to breathe, you will be successful.**
+**A difficult time can be more readily endured if we retain the conviction that our existence holds a purpose - a cause to pursue, a person to love, a goal to achieve.**
 
-Eric Thomas
+John Maxwell
