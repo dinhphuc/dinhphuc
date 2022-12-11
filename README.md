@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love who you are, embrace who you are. Love yourself.**
+**Happiness resides not in possessions, and not in gold, happiness dwells in the soul.**
 
-Lilly Singh
+Democritus
