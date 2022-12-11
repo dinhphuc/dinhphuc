@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A good life is doing what you love as much as you can and doing what you must as much as you should.**
+**Instead of worrying about what you cannot control, shift your energy to what you can create.**
 
-Savania China
+Roy T. Bennett
