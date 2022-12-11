@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good judgment comes from experience, and a lot of that comes from bad judgment.**
+**Risk more than others think is safe. Dream more than others think is practical.**
 
-Will Rogers
+Anonymous
