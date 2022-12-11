@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not the mountain we conquer, but ourselves.**
+**Enjoy the little things, for one day you may look back and realize they were the big things.**
 
-Sir Edmund Hillary
+Robert Brault
