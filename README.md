@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When it rains look for rainbows.**
+**The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.**
 
-Oscar Wilde
+William Arthur Ward
