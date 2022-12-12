@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are only two mistakes one can make along the road to truth; not going all the way, and not starting.**
+**Nurture your mind with great thoughts, for you will never go any higher than you think.**
 
-Buddha
+Benjamin Disraeli
