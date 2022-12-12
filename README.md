@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of being happy is accepting where you are in life and making the most out of everyday.**
+**It is better to fail in originality than to succeed in imitation.**
 
-Anonymous
+Herman Melville
