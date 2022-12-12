@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The more grateful I am, the more beauty I see.**
+**Goals may give focus, but dreams give power.**
 
-Mary Davis
+John Maxwell
