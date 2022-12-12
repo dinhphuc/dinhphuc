@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't let the past steal your present.**
+**The more grateful I am, the more beauty I see.**
 
-Terri Guillemets
+Mary Davis
