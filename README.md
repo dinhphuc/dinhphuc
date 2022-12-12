@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are loved.**
+**I can and I will. Watch me.**
 
-Anonymous
+Carrie Green
