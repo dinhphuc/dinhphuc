@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will face many defeats in life, but never let yourself be defeated.**
+**You've never lived this day before, and you never will again. Make the most of it!**
 
-Maya Angelou
+Anonymous
