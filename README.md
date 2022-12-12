@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Shared joy is a double joy; shared sorrow is half a sorrow.**
+**The only journey is the one within.**
 
-Swedish Proverb
+Rainer Maria Rilke
