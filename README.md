@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**He who always thinks it is too soon is sure to come too late.**
+**I don't care how long it takes me, but I'm going somewhere beautiful.**
 
-German Proverb
+Anonymous
