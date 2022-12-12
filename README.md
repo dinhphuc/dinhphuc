@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Plenty of people miss their share of happiness, not because they never found it, but because they didn't stop to enjoy it.**
+**Do all things with love.**
 
-William Feather
+Og Mandino
