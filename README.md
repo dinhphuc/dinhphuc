@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't give up on yourself. You're worth it.**
+**Your time is limited, so don't waste it living someone else's life.**
 
-Anonymous
+Steve Jobs
