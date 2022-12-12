@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I can and I will. Watch me.**
+**The secret of being happy is accepting where you are in life and making the most out of everyday.**
 
-Carrie Green
+Anonymous
