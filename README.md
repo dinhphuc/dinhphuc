@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Goals may give focus, but dreams give power.**
+**I'm not here to be average, I'm here to be awesome.**
 
-John Maxwell
+Anonymous
