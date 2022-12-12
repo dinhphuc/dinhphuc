@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I always like to look on the optimistic side of life, but I am realistic enough to know that life is a complex matter.**
+**He who always thinks it is too soon is sure to come too late.**
 
-Walt Disney
+German Proverb
