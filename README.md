@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When something is important enough, you do it even if the odds are not in your favor.**
+**You cannot fail at being yourself.**
 
-Elon Musk
+Wayne Dyer
