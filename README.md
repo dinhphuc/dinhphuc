@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your time is limited, so don't waste it living someone else's life.**
+**We can't be brave without fear.**
 
-Steve Jobs
+Muhammad Ali
