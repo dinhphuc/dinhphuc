@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Look at this tree. I cannot make it blossom when it suits me, nor make it bear fruit before its time.**
+**Don't give up on yourself. You're worth it.**
 
-Master Oogway
+Anonymous
