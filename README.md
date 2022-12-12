@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot fail at being yourself.**
+**Smile, and let the world wonder why.**
 
-Wayne Dyer
+Minnie Mouse
