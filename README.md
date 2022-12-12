@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will face many defeats in life, but never let yourself be defeated.**
+**There are two things a person should never be angry at: what they can help, and what they cannot.**
 
-Maya Angelou
+Plato
