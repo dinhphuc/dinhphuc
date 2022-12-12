@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nurture your mind with great thoughts, for you will never go any higher than you think.**
+**A positive attitude causes a chain reaction of positive thoughts, events, and outcomes. It is a catalyst, and it sparks extraordinary results.**
 
-Benjamin Disraeli
+Wade Boggs
