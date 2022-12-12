@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whoever is happy will make others happy too.**
+**Better than a thousand days of diligent study is one day with a great teacher.**
 
-Anonymous
+Jim Afremow
