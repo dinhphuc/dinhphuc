@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**An attitude of positive expectation is the mark of the superior personality.**
+**Look at this tree. I cannot make it blossom when it suits me, nor make it bear fruit before its time.**
 
-Brian Tracy
+Master Oogway
