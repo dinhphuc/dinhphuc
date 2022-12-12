@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only journey is the one within.**
+**Good, better, best. Never let it rest. Until your good is better and your better is best.**
 
-Rainer Maria Rilke
+Tim Duncan
