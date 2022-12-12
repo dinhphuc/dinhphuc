@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When it's pouring rain and you're bowling along through the wet, there's satisfaction in knowing you're out there and the others aren't.**
+**There are only two mistakes one can make along the road to truth; not going all the way, and not starting.**
 
-Peter Snell
+Buddha
