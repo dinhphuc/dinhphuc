@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Better than a thousand days of diligent study is one day with a great teacher.**
+**Great works are performed, not by strength, but by perseverance.**
 
-Jim Afremow
+Samuel Johnson
