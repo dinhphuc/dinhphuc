@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I don't care how long it takes me, but I'm going somewhere beautiful.**
+**You will face many defeats in life, but never let yourself be defeated.**
 
-Anonymous
+Maya Angelou
