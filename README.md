@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is better to fail in originality than to succeed in imitation.**
+**When it's pouring rain and you're bowling along through the wet, there's satisfaction in knowing you're out there and the others aren't.**
 
-Herman Melville
+Peter Snell
