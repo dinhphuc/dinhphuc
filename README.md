@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good, better, best. Never let it rest. Until your good is better and your better is best.**
+**I always like to look on the optimistic side of life, but I am realistic enough to know that life is a complex matter.**
 
-Tim Duncan
+Walt Disney
