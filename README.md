@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can either spend your time or invest your time.**
+**You are loved.**
 
-Chip Kelly
+Anonymous
