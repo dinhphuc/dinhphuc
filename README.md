@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A positive attitude causes a chain reaction of positive thoughts, events, and outcomes. It is a catalyst, and it sparks extraordinary results.**
+**Shared joy is a double joy; shared sorrow is half a sorrow.**
 
-Wade Boggs
+Swedish Proverb
