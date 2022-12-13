@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Shine like the whole universe is yours.**
+**There's never enough time to do everything, but there's always enough time to do the most important thing.**
 
-Rumi
+Dean Bokhari
