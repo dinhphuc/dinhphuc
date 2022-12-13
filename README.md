@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Open your eyes and notice the beauty of this wonderful world.**
+**Self-control is strength. Right thought is mastery. Calmness is power.**
 
-Anonymous
+James Allen
