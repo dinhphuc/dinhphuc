@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to find happiness, find gratitude.**
+**Appreciate the people who make you smile.**
 
-Steve Maraboli
+Anonymous
