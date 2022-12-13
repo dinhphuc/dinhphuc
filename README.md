@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want light to come into your life, you need to stand where it is shining.**
+**In a dark place we find ourselves, and a little more knowledge lights our way.**
 
-Guy Finley
+Yoda
