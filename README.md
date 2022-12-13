@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Relationships are based on four principles: respect, understanding, acceptance and appreciation.**
+**If you want to find happiness, find gratitude.**
 
-Mahatma Gandhi
+Steve Maraboli
