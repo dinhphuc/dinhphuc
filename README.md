@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Appreciate the people who make you smile.**
+**Peace begins When expectation ends.**
 
-Anonymous
+Sri Chinmoy
