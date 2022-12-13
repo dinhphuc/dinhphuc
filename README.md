@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**So certain were you. Go back and closer you must look.**
+**Life's most persistent and urgent question is, 'What are you doing for others?'**
 
-Yoda
+Martin Luther King
