@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The struggle you're in today is developing the strength you need tomorrow.**
+**Mistakes are proof that you are trying.**
 
-Robert Tew
+Anonymous
