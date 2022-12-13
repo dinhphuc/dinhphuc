@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Not all those who wander are lost.**
+**So certain were you. Go back and closer you must look.**
 
-J. R. R. Tolkien
+Yoda
