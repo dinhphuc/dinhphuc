@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's your place in the world; it's your life. Go on and do all you can with it, and make it the life you want to live.**
+**Don't be afraid of your fears. They're not there to scare you. They're there to let you know that something is worth it.**
 
-Mae Jemison
+C. JoyBell C
