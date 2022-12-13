@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be strong when you are weak, brave when you are scared, and humble when you are victorious.**
+**Confidence is the ability to feel beautiful, without needing someone to tell you.**
 
 Anonymous
