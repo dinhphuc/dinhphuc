@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Peace begins When expectation ends.**
+**Keep your face always toward the sunshine - and shadows will fall behind you.**
 
-Sri Chinmoy
+Walt Whitman
