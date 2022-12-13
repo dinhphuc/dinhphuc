@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life isn't about getting and having, it's about giving and being.**
+**Nothing is more beautiful than the smile that has struggled through the tears.**
 
-Kevin Kruse
+Demi Lovato
