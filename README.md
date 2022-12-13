@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile, it is the key that fits the lock of everybody's heart.**
+**Life isn't about getting and having, it's about giving and being.**
 
-Anthony J D'Angelo
+Kevin Kruse
