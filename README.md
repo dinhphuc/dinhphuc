@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't cry because it's over, smile because it happened.**
+**Walk on with hope in your heart, and you'll never walk alone.**
 
-Dr. Seuss
+Shah Rukh Khan
