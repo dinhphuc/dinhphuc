@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Give up on being perfect and start working on becoming yourself.**
+**Be strong when you are weak, brave when you are scared, and humble when you are victorious.**
 
-Anna Quindlen
+Anonymous
