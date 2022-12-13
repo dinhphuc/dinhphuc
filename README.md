@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Mind what you have learned. Save you it can.**
+**The struggle you're in today is developing the strength you need tomorrow.**
 
-Yoda
+Robert Tew
