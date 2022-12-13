@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Not all those who wander are lost.**
+**Appreciate the people who make you smile.**
 
-J. R. R. Tolkien
+Anonymous
