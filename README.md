@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There's never enough time to do everything, but there's always enough time to do the most important thing.**
+**There is no charm equal to tenderness of heart.**
 
-Dean Bokhari
+Jane Austen
