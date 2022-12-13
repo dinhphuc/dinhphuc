@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile, and let the world wonder why.**
+**Mind what you have learned. Save you it can.**
 
-Minnie Mouse
+Yoda
