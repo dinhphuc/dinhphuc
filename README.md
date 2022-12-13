@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Even if I knew that tomorrow the world would go to pieces, I would still plant my apple tree.**
+**Open your eyes and notice the beauty of this wonderful world.**
 
-Martin Luther
+Anonymous
