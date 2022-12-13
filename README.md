@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Run when you can, walk if you have to, crawl if you must; just never give up.**
+**If you want light to come into your life, you need to stand where it is shining.**
 
-Dean Karnazes
+Guy Finley
