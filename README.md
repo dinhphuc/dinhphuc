@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing is more beautiful than the smile that has struggled through the tears.**
+**We should never change our minds about where we are going, but always be curious about different ways to get there.**
 
-Demi Lovato
+Simon Sinek
