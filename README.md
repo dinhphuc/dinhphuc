@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't downgrade your dream just to fit your reality. Upgrade your conviction to match your destiny.**
+**Smile, it is the key that fits the lock of everybody's heart.**
 
-John Assaraf
+Anthony J D'Angelo
