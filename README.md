@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Two wrongs don't make a right.**
+**Not all those who wander are lost.**
 
-English Proverb
+J. R. R. Tolkien
