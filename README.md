@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We should never change our minds about where we are going, but always be curious about different ways to get there.**
+**Give up on being perfect and start working on becoming yourself.**
 
-Simon Sinek
+Anna Quindlen
