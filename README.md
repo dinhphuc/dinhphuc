@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep your face always toward the sunshine - and shadows will fall behind you.**
+**Even if I knew that tomorrow the world would go to pieces, I would still plant my apple tree.**
 
-Walt Whitman
+Martin Luther
