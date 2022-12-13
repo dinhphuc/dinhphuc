@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**May the Force be with you.**
+**Relationships are based on four principles: respect, understanding, acceptance and appreciation.**
 
-Yoda
+Mahatma Gandhi
