@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be the change you are trying to create.**
+**Whatever you are, be a good one.**
 
-Mahatma Gandhi
+Abraham Lincoln
