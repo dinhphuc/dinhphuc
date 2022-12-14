@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I've never let anyone talk me into not believing in myself.**
+**Don't wait around for other people to be happy for you. Any happiness you get, you've got to make yourself.**
 
-Muhammad Ali
+Alice Walker
