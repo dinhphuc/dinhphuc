@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure is not the falling down but the staying down.**
+**Life is trying things to see if they work.**
 
-Anonymous
+Ray Bradbury
