@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always plan for the fact that no plan ever goes according to plan.**
+**Life is too short to spend it at war with yourself.**
 
-Simon Sinek
+Anonymous
