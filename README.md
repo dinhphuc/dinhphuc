@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Self-control is strength. Right thought is mastery. Calmness is power.**
+**Winning doesn't always mean being first. Winning means you're doing better than you've done before.**
 
-James Allen
+Bonnie Blair
