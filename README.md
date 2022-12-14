@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be gentle with yourself. You're doing the best you can.**
+**Always plan for the fact that no plan ever goes according to plan.**
 
-Anonymous
+Simon Sinek
