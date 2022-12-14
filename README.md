@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hustle until your haters ask if you are hiring.**
+**Remember, most of your stress comes from the way you respond, not the way life is.**
 
 Anonymous
