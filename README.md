@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To be the best, you must be able to handle the worst.**
+**Remember that not getting what you want is sometimes a wonderful stroke of luck.**
 
-Wilson Kanadi
+Dalai Lama
