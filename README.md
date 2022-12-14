@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember that not getting what you want is sometimes a wonderful stroke of luck.**
+**Throw kindness around like confetti.**
 
-Dalai Lama
+Anonymous
