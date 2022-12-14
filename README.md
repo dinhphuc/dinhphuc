@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everywhere you go, take a smile with you.**
+**Be gentle with yourself. You're doing the best you can.**
 
-Sasha Azevedo
+Anonymous
