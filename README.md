@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Very little is needed to make a happy life; it is all within yourself, in your way of thinking.**
+**Failure is not the falling down but the staying down.**
 
-Marcus Aurelius
+Anonymous
