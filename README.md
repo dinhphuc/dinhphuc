@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember, most of your stress comes from the way you respond, not the way life is.**
+**You have a choice. You can throw in the towel, or you can use it to wipe the sweat off of your face.**
 
-Anonymous
+Gatorade
