@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest teacher, failure is.**
+**Only those who risk going too far, can possibly find out how far one can go.**
 
-Yoda
+T.S. Elliot
