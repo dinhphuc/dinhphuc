@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is short, and it is up to you to make it sweet.**
+**I knew that if I failed I wouldn't regret that. But I would regret not trying.**
 
-Sarah Louise Delany
+Jeff Bezos
