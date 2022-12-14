@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm not telling you it is going to be easy, I'm telling you it's going to be worth it.**
+**I've never let anyone talk me into not believing in myself.**
 
-Art Williams
+Muhammad Ali
