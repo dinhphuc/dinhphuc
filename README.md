@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be happy not because everything is good, but because you can see the good side of everything.**
+**Very little is needed to make a happy life; it is all within yourself, in your way of thinking.**
 
-Anonymous
+Marcus Aurelius
