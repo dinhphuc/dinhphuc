@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is too short to spend it at war with yourself.**
+**Hustle until your haters ask if you are hiring.**
 
 Anonymous
