@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You have a choice. You can throw in the towel, or you can use it to wipe the sweat off of your face.**
+**The supreme art of war is to subdue the enemy without fighting.**
 
-Gatorade
+Sun Tzu
