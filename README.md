@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do or do not. There is no try.**
+**I learned that courage was not the absence of fear, but the triumph over it.**
 
-Yoda
+Nelson Mandela
