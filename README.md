@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you are, be a good one.**
+**Be happy not because everything is good, but because you can see the good side of everything.**
 
-Abraham Lincoln
+Anonymous
