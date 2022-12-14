@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence is the ability to feel beautiful, without needing someone to tell you.**
+**Everywhere you go, take a smile with you.**
 
-Anonymous
+Sasha Azevedo
