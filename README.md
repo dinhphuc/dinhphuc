@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The man who views the world at 50 the same as he did at 20 has wasted 30 years of his life.**
+**Self-control is strength. Right thought is mastery. Calmness is power.**
 
-Muhammad Ali
+James Allen
