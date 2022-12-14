@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only those who risk going too far, can possibly find out how far one can go.**
+**I'm not telling you it is going to be easy, I'm telling you it's going to be worth it.**
 
-T.S. Elliot
+Art Williams
