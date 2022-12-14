@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are wonderfully made.**
+**Be the change you are trying to create.**
 
-Anonymous
+Mahatma Gandhi
