@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The supreme art of war is to subdue the enemy without fighting.**
+**Kill them with success and bury them with a smile.**
 
-Sun Tzu
+Usain Bolt
