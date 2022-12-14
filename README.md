@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Kill them with success and bury them with a smile.**
+**Life is short, and it is up to you to make it sweet.**
 
-Usain Bolt
+Sarah Louise Delany
