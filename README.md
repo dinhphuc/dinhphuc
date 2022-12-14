@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Work hard and be nice to people.**
+**Gratitude turns what we have into enough.**
 
 Anonymous
