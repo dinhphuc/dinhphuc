@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I knew that if I failed I wouldn't regret that. But I would regret not trying.**
+**Do or do not. There is no try.**
 
-Jeff Bezos
+Yoda
