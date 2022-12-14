@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Gratitude turns what we have into enough.**
+**The greatest teacher, failure is.**
 
-Anonymous
+Yoda
