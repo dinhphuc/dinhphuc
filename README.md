@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The vision of a champion is someone who is bent over, drenched in sweat, at the point of exhaustion when no one else is watching.**
+**If you want your dinner, don't insult the cook.**
 
-Jim Afremow
+Chinese Proverb
