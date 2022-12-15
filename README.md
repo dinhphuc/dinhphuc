@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want your dinner, don't insult the cook.**
+**Why worry? If you've done the very best you can, worrying won't make it any better.**
 
-Chinese Proverb
+Walt Disney
