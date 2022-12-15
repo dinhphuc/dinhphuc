@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest ability as humans is not to change the world; but to change ourselves.**
+**The biggest adventure you can take is to live the life of your dreams.**
 
-Mahatma Gandhi
+Oprah Winfrey
