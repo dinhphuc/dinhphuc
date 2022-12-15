@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't ask what the world needs. Ask what makes you come alive and go do it. Because what the world needs is more people who have come alive.**
+**Whatever the mind can conceive and believe, it can achieve.**
 
-Howard Thurman
+Napoleon Hill
