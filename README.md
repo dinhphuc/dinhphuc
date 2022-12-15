@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Stop doubting yourself. Work hard and make it happen.**
+**Go after the things you want.**
 
-Anonymous
+Simon Sinek
