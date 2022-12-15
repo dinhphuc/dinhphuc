@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every day may not be good... but there's something good in every day.**
+**When you want to succeed as bad as you want to breathe, you will be successful.**
 
-Alice Morse Earle
+Eric Thomas
