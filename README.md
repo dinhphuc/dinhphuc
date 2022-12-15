@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Why worry? If you've done the very best you can, worrying won't make it any better.**
+**Every day may not be good... but there's something good in every day.**
 
-Walt Disney
+Alice Morse Earle
