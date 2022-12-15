@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The biggest adventure you can take is to live the life of your dreams.**
+**When we are no longer able to change a situation - we are challenged to change ourselves.**
 
-Oprah Winfrey
+Viktor E. Frankl
