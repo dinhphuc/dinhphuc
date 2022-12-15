@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There's no shortage of remarkable ideas, what's missing is the will to execute them.**
+**Happy are those who take life day by day, complain very little, and are thankful for the little things in life.**
 
-Seth Godin
+Anonymous
