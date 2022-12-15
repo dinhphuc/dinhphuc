@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are willing to do more than you are paid to do, eventually you will be paid to do more than you do.**
+**Be strong when you are weak, brave when you are scared, and humble when you are victorious.**
 
 Anonymous
