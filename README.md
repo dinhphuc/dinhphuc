@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of success is to do the common thing uncommonly well.**
+**Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching.**
 
-John D. Rockefeller Jr
+Satchel Paige
