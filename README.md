@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever the mind can conceive and believe, it can achieve.**
+**Remember the entrance to the sanctuary is inside you.**
 
-Napoleon Hill
+Rumi
