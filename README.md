@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happy are those who take life day by day, complain very little, and are thankful for the little things in life.**
+**If you're offered a seat on a rocket ship, don't ask what seat! Just get on.**
 
-Anonymous
+Sheryl Sandberg
