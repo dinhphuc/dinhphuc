@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Go after the things you want.**
+**Life is not a problem to be solved, but a reality to be experienced.**
 
-Simon Sinek
+Soren Kierkegaard
