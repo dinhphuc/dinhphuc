@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Why worry? If you've done the very best you can, worrying won't make it any better.**
+**Run when you can, walk if you have to, crawl if you must; just never give up.**
 
-Walt Disney
+Dean Karnazes
