@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Run when you can, walk if you have to, crawl if you must; just never give up.**
+**When you feel like giving up, that's when you need to dig deep and push through your self doubt and weaknesses.**
 
-Dean Karnazes
+Anonymous
