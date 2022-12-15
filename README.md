@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do not blame the world. Find a solution.**
+**Our greatest ability as humans is not to change the world; but to change ourselves.**
 
-Sri Chinmoy
+Mahatma Gandhi
