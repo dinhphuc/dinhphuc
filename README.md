@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe you can and you're halfway there.**
+**The vision of a champion is someone who is bent over, drenched in sweat, at the point of exhaustion when no one else is watching.**
 
-Theodore Roosevelt
+Jim Afremow
