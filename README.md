@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember the entrance to the sanctuary is inside you.**
+**Do more of what lights you up and makes you feel alive. The world needs your spark.**
 
-Rumi
+Anonymous
