@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching.**
+**When will you realize, the more you take, the less you have.**
 
-Satchel Paige
+Master Oogway
