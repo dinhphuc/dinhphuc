@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're offered a seat on a rocket ship, don't ask what seat! Just get on.**
+**Sometimes the bravest thing you can do is to keep going when you really feel like giving up.**
 
-Sheryl Sandberg
+Anonymous
