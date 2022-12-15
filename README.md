@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm alone, but I'm not lonely. I like who I am. I like who I'm becoming.**
+**Don't ask what the world needs. Ask what makes you come alive and go do it. Because what the world needs is more people who have come alive.**
 
-Deena Kastor
+Howard Thurman
