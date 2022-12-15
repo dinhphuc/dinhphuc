@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you want to succeed as bad as you want to breathe, you will be successful.**
+**There's no shortage of remarkable ideas, what's missing is the will to execute them.**
 
-Eric Thomas
+Seth Godin
