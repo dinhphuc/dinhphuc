@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When we are no longer able to change a situation - we are challenged to change ourselves.**
+**The secret of success is to do the common thing uncommonly well.**
 
-Viktor E. Frankl
+John D. Rockefeller Jr
