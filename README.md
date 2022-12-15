@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Sometimes the bravest thing you can do is to keep going when you really feel like giving up.**
+**Do not blame the world. Find a solution.**
 
-Anonymous
+Sri Chinmoy
