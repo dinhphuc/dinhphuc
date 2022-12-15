@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be strong when you are weak, brave when you are scared, and humble when you are victorious.**
+**Why worry? If you've done the very best you can, worrying won't make it any better.**
 
-Anonymous
+Walt Disney
