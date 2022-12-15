@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is not a problem to be solved, but a reality to be experienced.**
+**Believe you can and you're halfway there.**
 
-Soren Kierkegaard
+Theodore Roosevelt
