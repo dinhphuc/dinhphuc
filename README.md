@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are not willing to risk the usual, you will have to settle for the ordinary.**
+**The purpose of our lives is to be happy.**
 
-Jim Rohn
+Dalai Lama
