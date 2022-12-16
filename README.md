@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Start doing things to make you happy.**
+**If you are not willing to risk the usual, you will have to settle for the ordinary.**
 
-Reyna Biddy
+Jim Rohn
