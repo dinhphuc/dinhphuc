@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you believe it will work out, you'll see opportunities. If you believe it won't, you will see obstacles.**
+**Go confidently in the direction of your dreams! Live the life you've imagined.**
 
-Wayne Dyer
+Henry David Thoreau
