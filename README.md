@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything has beauty, but not everyone can see.**
+**Let your unique awesomeness and positive energy inspire confidence in others.**
 
-Confucius
+Anonymous
