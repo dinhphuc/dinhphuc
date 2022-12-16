@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If it is important to you, you will find a way. If not, you'll find an excuse.**
+**Life is about making an impact, not making an income.**
 
-Anonymous
+Kevin Kruse
