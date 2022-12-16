@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe in yourself. You are braver than you think, more talented than you know, and capable of more than you imagine.**
+**Happy are those who take life day by day, complain very little, and are thankful for the little things in life.**
 
-Roy T. Bennett
+Anonymous
