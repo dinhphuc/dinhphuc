@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good, better, best. Never let it rest. Until your good is better and your better is best.**
+**Nothing will work unless you do.**
 
-Tim Duncan
+Maya Angelou
