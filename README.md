@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Spread love everywhere you go. Let no one ever come to you without leaving happier.**
+**Confidence comes from discipline and training.**
 
-Mother Teresa
+Robert Kiyosaki
