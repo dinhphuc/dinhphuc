@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**As we express our gratitude, we must never forget that the highest appreciation is not to utter words, but to live by them.**
+**Good, better, best. Never let it rest. Until your good is better and your better is best.**
 
-John F. Kennedy
+Tim Duncan
