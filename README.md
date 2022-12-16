@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Spend your life with people who make you smile, laugh, and feel loved.**
+**Love the life you live. Live the life you love.**
 
-Roy T. Bennett
+Bob Marley
