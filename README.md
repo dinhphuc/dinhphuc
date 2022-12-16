@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you depersonalize abrasive behavior and see it as a call for help you become a catalyst for the best kind of change.**
+**You've got to find people who love like you do.**
 
-Marilyn Suttle
+Anonymous
