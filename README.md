@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest teacher, failure is.**
+**Everything has beauty, but not everyone can see.**
 
-Yoda
+Confucius
