@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love the life you live. Live the life you love.**
+**Spread love everywhere you go. Let no one ever come to you without leaving happier.**
 
-Bob Marley
+Mother Teresa
