@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happy are those who take life day by day, complain very little, and are thankful for the little things in life.**
+**Don't fear moving slowly forward...fear standing still.**
 
-Anonymous
+Kathleen Harris
