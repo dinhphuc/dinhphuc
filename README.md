@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Let your unique awesomeness and positive energy inspire confidence in others.**
+**Life is about making an impact, not making an income.**
 
-Anonymous
+Kevin Kruse
