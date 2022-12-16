@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**How long are you going to wait before you demand the best for yourself?**
+**Start doing things to make you happy.**
 
-Epictetus
+Reyna Biddy
