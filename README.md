@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smaller in number are we, but larger in mind.**
+**Great minds discuss ideas; average minds discuss events; small minds discuss people.**
 
-Yoda
+Eleanor Roosevelt
