@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Well I am here to tell you that one of the best ways to make a difference, is by sharing a smile and radiating good positive energy.**
+**Spend your life with people who make you smile, laugh, and feel loved.**
 
-Anonymous
+Roy T. Bennett
