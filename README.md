@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Instead of worrying about what you cannot control, shift your energy to what you can create.**
+**Be strong when you are weak, brave when you are scared, and humble when you are victorious.**
 
-Roy T. Bennett
+Anonymous
