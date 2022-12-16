@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Kill them with success and bury them with a smile.**
+**You can either spend your time or invest your time.**
 
-Usain Bolt
+Chip Kelly
