@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The purpose of our lives is to be happy.**
+**Smaller in number are we, but larger in mind.**
 
-Dalai Lama
+Yoda
