@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The people who make you smile from just seeing them, those are my favorite people.**
+**When you depersonalize abrasive behavior and see it as a call for help you become a catalyst for the best kind of change.**
 
-Koi Fresco
+Marilyn Suttle
