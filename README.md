@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Positive anything is better than negative nothing.**
+**If you believe it will work out, you'll see opportunities. If you believe it won't, you will see obstacles.**
 
-Elbert Hubbard
+Wayne Dyer
