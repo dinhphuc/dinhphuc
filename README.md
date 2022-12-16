@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Just think how happy you would be if you lost everything you have right now, and then got it back again.**
+**Virtually nothing is impossible in this world if you just put your mind to it and maintain a positive attitude.**
 
-Frances Rodman
+Lou Holtz
