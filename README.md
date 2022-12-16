@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only in the darkness can you see the stars.**
+**Whether you think you can or can't, you're right.**
 
-Martin Luther King, Jr.
+Henry Ford
