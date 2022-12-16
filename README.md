@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be strong when you are weak, brave when you are scared, and humble when you are victorious.**
+**Only in the darkness can you see the stars.**
 
-Anonymous
+Martin Luther King, Jr.
