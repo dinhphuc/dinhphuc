@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing will work unless you do.**
+**Whether you think you can or can't, you're right.**
 
-Maya Angelou
+Henry Ford
