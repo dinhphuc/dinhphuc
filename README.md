@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't fear moving slowly forward...fear standing still.**
+**Instead of worrying about what you cannot control, shift your energy to what you can create.**
 
-Kathleen Harris
+Roy T. Bennett
