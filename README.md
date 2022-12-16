@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Virtually nothing is impossible in this world if you just put your mind to it and maintain a positive attitude.**
+**How long are you going to wait before you demand the best for yourself?**
 
-Lou Holtz
+Epictetus
