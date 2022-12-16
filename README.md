@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Even if I knew that tomorrow the world would go to pieces, I would still plant my apple tree.**
+**The people who make you smile from just seeing them, those are my favorite people.**
 
-Martin Luther
+Koi Fresco
