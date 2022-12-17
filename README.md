@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Cry. Forgive. Learn. Move on. Let your tears water the seeds of your future happiness.**
+**Always dream and shoot higher than you know you can do. Do not bother just to be better than your contemporaries or predecessors. Try to be better than yourself.**
 
-Steve Maraboli
+William Faulkner
