@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Change your thoughts and you change your world.**
+**The only easy day was yesterday.**
 
-Norman Vincent Peale
+Navy Seals
