@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Two wrongs don't make a right.**
+**Today, give a stranger one of your smiles. It might be the only sunshine they see all day.**
 
-English Proverb
+H. Jackson Brown Jr
