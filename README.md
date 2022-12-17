@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only easy day was yesterday.**
+**Start by doing what's necessary; then do what's possible; and suddenly you are doing the impossible.**
 
-Navy Seals
+Francis of Assisi
