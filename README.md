@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I learned that courage was not the absence of fear, but the triumph over it.**
+**Change your thoughts and you change your world.**
 
-Nelson Mandela
+Norman Vincent Peale
