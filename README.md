@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life without love is like a tree without blossoms or fruit.**
+**Strength grows in the moments when you think you can't go on but you keep going anyway.**
 
-Khalil Gibran
+Anonymous
