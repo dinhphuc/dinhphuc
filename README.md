@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**None of us is as smart as all of us.**
+**If it is not right, do not do it, if it is not true, do not say it.**
 
-Ken Blanchard
+Marcus Aurelius
