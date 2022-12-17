@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe you can and you're halfway there.**
+**If you want light to come into your life, you need to stand where it is shining.**
 
-Theodore Roosevelt
+Guy Finley
