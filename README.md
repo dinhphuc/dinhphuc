@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I am an ordinary man who worked hard to develop the talent I was given. I believed in myself, and I believe in the goodness of others.**
+**None of us is as smart as all of us.**
 
-Muhammad Ali
+Ken Blanchard
