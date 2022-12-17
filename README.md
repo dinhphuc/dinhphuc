@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Start by doing what's necessary; then do what's possible; and suddenly you are doing the impossible.**
+**Try to be a rainbow in someone's cloud.**
 
-Francis of Assisi
+Maya Angelou
