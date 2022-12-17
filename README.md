@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Today, give a stranger one of your smiles. It might be the only sunshine they see all day.**
+**There's never enough time to do everything, but there's always enough time to do the most important thing.**
 
-H. Jackson Brown Jr
+Dean Bokhari
