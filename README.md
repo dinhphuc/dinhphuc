@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you believe it, the mind can achieve it.**
+**Start where you are. Use what you have. Do what you can.**
 
-Ronnie Lott
+Arthur Ashe
