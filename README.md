@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**More smiling, less worrying. More compassion, less judgment. More blessed, less stressed. More love, less hate.**
+**Happiness is not out there, it's in you.**
 
-Roy T. Bennett
+Anonymous
