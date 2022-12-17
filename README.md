@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Make sure your worst enemy doesn't live between your own two ears.**
+**Confidence is something you create in yourself by believing in who you are.**
 
-Laird Hamilton
+Anonymous
