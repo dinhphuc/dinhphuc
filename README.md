@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't think about what might go wrong. Think about what might go right.**
+**The supreme art of war is to subdue the enemy without fighting.**
 
-Anonymous
+Sun Tzu
