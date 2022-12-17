@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Try to be a rainbow in someone's cloud.**
+**Are your excuses more important than your dreams?**
 
-Maya Angelou
+Anonymous
