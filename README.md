@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There's never enough time to do everything, but there's always enough time to do the most important thing.**
+**Believe you can and you're halfway there.**
 
-Dean Bokhari
+Theodore Roosevelt
