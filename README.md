@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The supreme art of war is to subdue the enemy without fighting.**
+**Nothing will work unless you do.**
 
-Sun Tzu
+Maya Angelou
