@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is not out there, it's in you.**
+**Don't think about what might go wrong. Think about what might go right.**
 
 Anonymous
