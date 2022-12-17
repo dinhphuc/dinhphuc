@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence is something you create in yourself by believing in who you are.**
+**More smiling, less worrying. More compassion, less judgment. More blessed, less stressed. More love, less hate.**
 
-Anonymous
+Roy T. Bennett
