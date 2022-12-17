@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The critics only made me work harder.**
+**I learned that courage was not the absence of fear, but the triumph over it.**
 
-Muhammad Ali
+Nelson Mandela
