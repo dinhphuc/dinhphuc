@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile, it is the key that fits the lock of everybody's heart.**
+**I have learned over the years that when one's mind is made up, this diminishes fear.**
 
-Anthony J D'Angelo
+Rosa Parks
