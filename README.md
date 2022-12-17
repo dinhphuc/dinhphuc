@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength grows in the moments when you think you can't go on but you keep going anyway.**
+**Make sure your worst enemy doesn't live between your own two ears.**
 
-Anonymous
+Laird Hamilton
