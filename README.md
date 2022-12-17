@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I have learned over the years that when one's mind is made up, this diminishes fear.**
+**Never stop believing in hope because miracles happen everyday.**
 
-Rosa Parks
+Anonymous
