@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not who you are that holds you back, it's who you think you're not.**
+**If you believe it, the mind can achieve it.**
 
-Anonymous
+Ronnie Lott
