@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing builds self-esteem and self-confidence like accomplishment.**
+**Two wrongs don't make a right.**
 
-Thomas Carlyle
+English Proverb
