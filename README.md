@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't dream of winning, train for it!**
+**Smile, it is the key that fits the lock of everybody's heart.**
 
-Mo Farah
+Anthony J D'Angelo
