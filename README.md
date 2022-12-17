@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Start where you are. Use what you have. Do what you can.**
+**The critics only made me work harder.**
 
-Arthur Ashe
+Muhammad Ali
