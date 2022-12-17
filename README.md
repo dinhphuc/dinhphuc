@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing will work unless you do.**
+**Nothing builds self-esteem and self-confidence like accomplishment.**
 
-Maya Angelou
+Thomas Carlyle
