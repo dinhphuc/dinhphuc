@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Many of the truths that we cling to depend on our point of view.**
+**Everything has beauty, but not everyone can see.**
 
-Yoda
+Confucius
