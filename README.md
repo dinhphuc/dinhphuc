@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest teacher, failure is.**
+**Many of the truths that we cling to depend on our point of view.**
 
 Yoda
