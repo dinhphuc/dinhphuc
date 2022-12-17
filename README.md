@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If it is not right, do not do it, if it is not true, do not say it.**
+**It's not who you are that holds you back, it's who you think you're not.**
 
-Marcus Aurelius
+Anonymous
