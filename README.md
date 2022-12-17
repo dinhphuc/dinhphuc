@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Are your excuses more important than your dreams?**
+**The greatest teacher, failure is.**
 
-Anonymous
+Yoda
