@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can either spend your time or invest your time.**
+**Cry. Forgive. Learn. Move on. Let your tears water the seeds of your future happiness.**
 
-Chip Kelly
+Steve Maraboli
