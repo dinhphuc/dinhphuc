@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never stop believing in hope because miracles happen everyday.**
+**Life without love is like a tree without blossoms or fruit.**
 
-Anonymous
+Khalil Gibran
