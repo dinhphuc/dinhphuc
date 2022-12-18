@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't manifest dreams without taking chances.**
+**Almost every successful person begins their journey with two core beliefs: the future can be better than the present, and I have the power to make it so.**
 
-Stephen Richards
+Anonymous
