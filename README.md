@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You've got to be willing to lose everything to gain yourself.**
+**Be gentle with yourself. You're doing the best you can.**
 
-Iyanla Vanzant
+Anonymous
