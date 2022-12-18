@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest teacher, failure is.**
+**To give anything less than your best is to sacrifice the gift.**
 
-Yoda
+Steve Prefontaine
