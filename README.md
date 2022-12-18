@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To give anything less than your best is to sacrifice the gift.**
+**You've got to be willing to lose everything to gain yourself.**
 
-Steve Prefontaine
+Iyanla Vanzant
