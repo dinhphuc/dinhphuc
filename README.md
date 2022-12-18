@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When it gets difficult is often right before you succeed.**
+**Courage is the birthplace of confidence.**
 
-Jeffrey Walker
+Debbie Millman
