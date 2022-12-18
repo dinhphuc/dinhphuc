@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Look for something positive in each day, even if some days you have to look a little harder.**
+**Be gentle with yourself. You're doing the best you can.**
 
 Anonymous
