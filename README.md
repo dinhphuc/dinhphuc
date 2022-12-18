@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The biggest adventure you can take is to live the life of your dreams.**
+**Change yourself and fortune will change.**
 
-Oprah Winfrey
+Portuguese Proverb
