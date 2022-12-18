@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You've got to find people who love like you do.**
+**Keep your eyes on the stars, and your feet on the ground.**
 
-Anonymous
+Theodore Roosevelt
