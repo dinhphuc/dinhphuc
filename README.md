@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Cry. Forgive. Learn. Move on. Let your tears water the seeds of your future happiness.**
+**Motivation is what gets you started. Habit is what keeps you going.**
 
-Steve Maraboli
+Jim Rohn
