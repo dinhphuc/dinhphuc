@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The starting point of all achievement is desire.**
+**Life is ours to be spent, not to be saved.**
 
-Napoleon Hill
+D. H. Lawrence
