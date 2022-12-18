@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Change yourself and fortune will change.**
+**Love is not running away or giving up, it is standing and fighting for every moment.**
 
-Portuguese Proverb
+M.F. Moonzajer
