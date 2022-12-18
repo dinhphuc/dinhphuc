@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Motivation is what gets you started. Habit is what keeps you going.**
+**Spend more of your time on what gives you energy and less of your time on what takes it away.**
 
-Jim Rohn
+Anonymous
