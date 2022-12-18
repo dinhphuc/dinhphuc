@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You only live once, but if you do it right, once is enough.**
+**The greatest teacher, failure is.**
 
-Mae West
+Yoda
