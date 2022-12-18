@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be a voice not an echo.**
+**So certain were you. Go back and closer you must look.**
 
-Anonymous
+Yoda
