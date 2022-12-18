@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is a journey ... not a destination.**
+**When it gets difficult is often right before you succeed.**
 
-Ben Sweetland
+Jeffrey Walker
