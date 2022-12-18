@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always plan for the fact that no plan ever goes according to plan.**
+**Opportunities don't happen. You create them.**
 
-Simon Sinek
+Chris Grosser
