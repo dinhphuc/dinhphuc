@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want light to come into your life, you need to stand where it is shining.**
+**Cry. Forgive. Learn. Move on. Let your tears water the seeds of your future happiness.**
 
-Guy Finley
+Steve Maraboli
