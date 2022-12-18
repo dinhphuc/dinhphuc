@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is ours to be spent, not to be saved.**
+**You're off to great places, today is your day. Your mountain is waiting, so get on your way.**
 
-D. H. Lawrence
+Dr. Seuss
