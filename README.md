@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's easy to stand in the crowd but it takes courage to stand alone.**
+**The biggest adventure you can take is to live the life of your dreams.**
 
-Mahatma Gandhi
+Oprah Winfrey
