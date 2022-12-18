@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Courage is the birthplace of confidence.**
+**If you want to achieve greatness, stop asking for permission.**
 
-Debbie Millman
+Anonymous
