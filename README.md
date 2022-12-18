@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be gentle with yourself. You're doing the best you can.**
+**Don't regret the past, just learn from it.**
 
-Anonymous
+Ben Ipock
