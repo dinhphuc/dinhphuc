@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Spend more of your time on what gives you energy and less of your time on what takes it away.**
+**You only live once, but if you do it right, once is enough.**
 
-Anonymous
+Mae West
