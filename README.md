@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep your eyes on the stars, and your feet on the ground.**
+**You don't manifest dreams without taking chances.**
 
-Theodore Roosevelt
+Stephen Richards
