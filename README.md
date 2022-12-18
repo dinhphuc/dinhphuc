@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Leadership is not about being in charge. Leadership is about taking care of those in your charge.**
+**The starting point of all achievement is desire.**
 
-Simon Sinek
+Napoleon Hill
