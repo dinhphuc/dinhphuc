@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't regret the past, just learn from it.**
+**We are what we repeatedly do. Excellence, then, is not an act, but a habit.**
 
-Ben Ipock
+Aristotle
