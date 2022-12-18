@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**So certain were you. Go back and closer you must look.**
+**Always plan for the fact that no plan ever goes according to plan.**
 
-Yoda
+Simon Sinek
