@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to achieve greatness, stop asking for permission.**
+**You've got to find people who love like you do.**
 
 Anonymous
