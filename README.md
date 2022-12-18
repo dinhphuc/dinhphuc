@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Opportunities don't happen. You create them.**
+**Happiness is a journey ... not a destination.**
 
-Chris Grosser
+Ben Sweetland
