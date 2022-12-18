@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You're off to great places, today is your day. Your mountain is waiting, so get on your way.**
+**Let your unique awesomeness and positive energy inspire confidence in others.**
 
-Dr. Seuss
+Anonymous
