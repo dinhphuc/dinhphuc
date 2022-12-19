@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you only do what you can do, you will never be more than you are now.**
+**Are your excuses more important than your dreams?**
 
-Master Oogway
+Anonymous
