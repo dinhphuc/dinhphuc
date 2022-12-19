@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Are your excuses more important than your dreams?**
+**A beautiful thing is never perfect.**
 
-Anonymous
+Egyptian Proverb
