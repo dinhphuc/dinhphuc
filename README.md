@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest mistake you can make in life is to continually fear that you will make one.**
+**Do something today that your future self will thank you for.**
 
-Elbert Hubbard
+Anonymous
