@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**How long are you going to wait before you demand the best for yourself?**
+**Not all those who wander are lost.**
 
-Epictetus
+J. R. R. Tolkien
