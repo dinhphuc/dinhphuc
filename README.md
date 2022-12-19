@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Not all those who wander are lost.**
+**The only time you fail is when you fall down and stay down.**
 
-J. R. R. Tolkien
+Stephen Richards
