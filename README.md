@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When something is important enough, you do it even if the odds are not in your favor.**
+**Not all those who wander are lost.**
 
-Elon Musk
+J. R. R. Tolkien
