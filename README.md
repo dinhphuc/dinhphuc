@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always remember that you are absolutely unique. Just like everyone else.**
+**Everytime you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**
 
-Margaret Mead
+Mother Teresa
