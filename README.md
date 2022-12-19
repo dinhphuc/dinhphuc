@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Spend your life with people who make you smile, laugh, and feel loved.**
+**Attitude is a choice. Happiness is a choice. Optimism is a choice. Kindness is a choice. Giving is a choice. Respect is a choice. Whatever choice you make makes you. Choose wisely.**
 
 Roy T. Bennett
