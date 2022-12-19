@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In the end, it's not the years in your life that count. It's the life in your years.**
+**How long are you going to wait before you demand the best for yourself?**
 
-Abraham Lincoln
+Epictetus
