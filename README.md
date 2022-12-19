@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can dream it, then you can achieve it.**
+**If you only do what you can do, you will never be more than you are now.**
 
-Zig Ziglar
+Master Oogway
