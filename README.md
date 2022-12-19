@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A beautiful thing is never perfect.**
+**Virtually nothing is impossible in this world if you just put your mind to it and maintain a positive attitude.**
 
-Egyptian Proverb
+Lou Holtz
