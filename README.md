@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your relationship with yourself sets the tone for every other relationship you have.**
+**It is not human nature to enjoy what we get with no effort.**
 
-Anonymous
+Sri Chinmoy
