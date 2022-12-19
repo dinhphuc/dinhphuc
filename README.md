@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe and act as if it were impossible to fail.**
+**Don't sail out farther than you can row back.**
 
-Charles Kettering
+Danish Proverb
