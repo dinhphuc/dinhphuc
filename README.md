@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do something today that your future self will thank you for.**
+**Believe and act as if it were impossible to fail.**
 
-Anonymous
+Charles Kettering
