@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything you've ever wanted is on the other side of fear.**
+**We can't help everyone, but everyone can help someone.**
 
-George Addair
+Ronald Reagan
