@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't manifest dreams without taking chances.**
+**Don't fear moving slowly forward...fear standing still.**
 
-Stephen Richards
+Kathleen Harris
