@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is never fair, and perhaps it is a good thing for most of us that it is not.**
+**In the end, it's not the years in your life that count. It's the life in your years.**
 
-Oscar Wilde
+Abraham Lincoln
