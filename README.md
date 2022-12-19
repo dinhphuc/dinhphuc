@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Yesterday is not ours to recover, but tomorrow is ours to win or lose.**
+**Spend your life with people who make you smile, laugh, and feel loved.**
 
-Lyndon B. Johnson
+Roy T. Bennett
