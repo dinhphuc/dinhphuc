@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only time you fail is when you fall down and stay down.**
+**Everything you've ever wanted is on the other side of fear.**
 
-Stephen Richards
+George Addair
