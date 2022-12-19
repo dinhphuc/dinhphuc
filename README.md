@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is not final, failure is not fatal: it is the courage to continue that counts.**
+**You don't manifest dreams without taking chances.**
 
-Winston Churchill
+Stephen Richards
