@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The question isn't who is going to let me; it's who is going to stop me.**
+**Yesterday is not ours to recover, but tomorrow is ours to win or lose.**
 
-Ayn Rand
+Lyndon B. Johnson
