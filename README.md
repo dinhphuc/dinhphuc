@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Virtually nothing is impossible in this world if you just put your mind to it and maintain a positive attitude.**
+**The question isn't who is going to let me; it's who is going to stop me.**
 
-Lou Holtz
+Ayn Rand
