@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We can't help everyone, but everyone can help someone.**
+**If you can dream it, then you can achieve it.**
 
-Ronald Reagan
+Zig Ziglar
