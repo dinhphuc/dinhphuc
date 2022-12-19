@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't sail out farther than you can row back.**
+**Replace those thoughts of worry with thoughts of hope, faith, and victory.**
 
-Danish Proverb
+Joel Osteen
