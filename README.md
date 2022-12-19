@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Not all those who wander are lost.**
+**You came into the world to do something; So... do something!**
 
-J. R. R. Tolkien
+Johnnie Dent Jr
