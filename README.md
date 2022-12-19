@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pain has taught me to appreciate the things that don't hurt.**
+**Your relationship with yourself sets the tone for every other relationship you have.**
 
-Melissa Tripp
+Anonymous
