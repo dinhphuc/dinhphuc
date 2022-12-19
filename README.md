@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everytime you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**
+**Pain has taught me to appreciate the things that don't hurt.**
 
-Mother Teresa
+Melissa Tripp
