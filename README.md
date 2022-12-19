@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't fear moving slowly forward...fear standing still.**
+**We become what we think about.**
 
-Kathleen Harris
+Earl Nightingale
