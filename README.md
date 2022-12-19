@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You came into the world to do something; So... do something!**
+**Life is never fair, and perhaps it is a good thing for most of us that it is not.**
 
-Johnnie Dent Jr
+Oscar Wilde
