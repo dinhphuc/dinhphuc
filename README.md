@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you have exhausted all possibilities, remember this: you haven't.**
+**Shared joy is a double joy; shared sorrow is half a sorrow.**
 
-Thomas Edison
+Swedish Proverb
