@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once you choose hope, anything's possible.**
+**It does not matter how slowly you go as long as you do not stop.**
 
-Christopher Reeve
+Confucius
