@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you love what you have, you have everything you need.**
+**Don't criticize, condemn or complain.**
 
-Anonymous
+Dale Carnegie
