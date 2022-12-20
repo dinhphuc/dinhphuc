@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To give anything less than your best is to sacrifice the gift.**
+**We should never change our minds about where we are going, but always be curious about different ways to get there.**
 
-Steve Prefontaine
+Simon Sinek
