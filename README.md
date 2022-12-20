@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We become what we think about.**
+**Alone, we can do so little; together we can do so much.**
 
-Earl Nightingale
+Helen Keller
