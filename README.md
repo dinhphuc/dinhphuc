@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember that not getting what you want is sometimes a wonderful stroke of luck.**
+**The greatest mistake you can make in life is to continually fear that you will make one.**
 
-Dalai Lama
+Elbert Hubbard
