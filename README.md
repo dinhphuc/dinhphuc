@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Before you score, you first must have a goal.**
+**Every morning you have a new opportunity to become a happier version of yourself.**
 
-Greek Proverb
+Anonymous
