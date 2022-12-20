@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest mistake you can make in life is to continually fear that you will make one.**
+**When you love what you have, you have everything you need.**
 
-Elbert Hubbard
+Anonymous
