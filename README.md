@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Shared joy is a double joy; shared sorrow is half a sorrow.**
+**To be calm is the highest achievement of the self.**
 
-Swedish Proverb
+Zen Proverb
