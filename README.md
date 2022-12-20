@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Make the most of yourself....for that is all there is of you.**
+**We love life, not because we are used to living but because we are used to loving.**
 
-Ralph Waldo Emerson
+Friedrich Nietzsche
