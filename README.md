@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Count your age by friends, not years. Count your life by smiles, not tears.**
+**Gratitude turns what we have into enough.**
 
-John Lennon
+Anonymous
