@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't dream of winning, train for it!**
+**Limitations live only in our minds. But if we use our imaginations, our possibilities become limitless.**
 
-Mo Farah
+Jamie Paolinetti
