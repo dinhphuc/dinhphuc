@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We should never change our minds about where we are going, but always be curious about different ways to get there.**
+**Do or do not. There is no try.**
 
-Simon Sinek
+Yoda
