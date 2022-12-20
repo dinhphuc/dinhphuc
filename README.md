@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Through challenge and difficulty, we learn to see life differently than before.**
+**You will never always be motivated. You have to learn to be disciplined.**
 
-Auliq-Ice
+Anonymous
