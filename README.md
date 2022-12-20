@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Attachment leads to jealously. The shadow of greed, that is.**
+**Self-confidence is the most attractive quality a person can have. How can anyone see how great you are if you can't see it yourself?**
 
-Yoda
+Anonymous
