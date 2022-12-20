@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Skill is only developed by hours and hours of work.**
+**If you are not willing to risk the usual, you will have to settle for the ordinary.**
 
-Usain Bolt
+Jim Rohn
