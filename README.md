@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest weakness lies in giving up. The most certain way to succeed is to just try one more time.**
+**In life, many things don't go according to plan. If you fall, get back up. If you stumble, regain your balance. Never give up.**
 
-Thomas Edison
+Anonymous
