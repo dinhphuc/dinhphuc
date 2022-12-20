@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every morning you have a new opportunity to become a happier version of yourself.**
+**A good life is doing what you love as much as you can and doing what you must as much as you should.**
 
-Anonymous
+Savania China
