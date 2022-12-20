@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Are your excuses more important than your dreams?**
+**Through challenge and difficulty, we learn to see life differently than before.**
 
-Anonymous
+Auliq-Ice
