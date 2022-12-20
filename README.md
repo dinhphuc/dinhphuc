@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do or do not. There is no try.**
+**Remember that not getting what you want is sometimes a wonderful stroke of luck.**
 
-Yoda
+Dalai Lama
