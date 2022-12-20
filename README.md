@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When something is important enough, you do it even if the odds are not in your favor.**
+**Everything that is done in this world is done by hope.**
 
-Elon Musk
+Martin Luther
