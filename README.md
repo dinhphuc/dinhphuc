@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Shared joy is a double joy; shared sorrow is half a sorrow.**
+**Make the most of yourself....for that is all there is of you.**
 
-Swedish Proverb
+Ralph Waldo Emerson
