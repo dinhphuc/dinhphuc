@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Alone, we can do so little; together we can do so much.**
+**Are your excuses more important than your dreams?**
 
-Helen Keller
+Anonymous
