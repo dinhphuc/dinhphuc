@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Limitations live only in our minds. But if we use our imaginations, our possibilities become limitless.**
+**When something is important enough, you do it even if the odds are not in your favor.**
 
-Jamie Paolinetti
+Elon Musk
