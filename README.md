@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will never always be motivated. You have to learn to be disciplined.**
+**Doubt kills more dreams than failure ever will.**
 
-Anonymous
+Suzy Kassem
