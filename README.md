@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Gratitude turns what we have into enough.**
+**Another day another blessing.**
 
 Anonymous
