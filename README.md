@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We love life, not because we are used to living but because we are used to loving.**
+**When you have exhausted all possibilities, remember this: you haven't.**
 
-Friedrich Nietzsche
+Thomas Edison
