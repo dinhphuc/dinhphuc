@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Self-confidence is the most attractive quality a person can have. How can anyone see how great you are if you can't see it yourself?**
+**Skill is only developed by hours and hours of work.**
 
-Anonymous
+Usain Bolt
