@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To be calm is the highest achievement of the self.**
+**Our greatest weakness lies in giving up. The most certain way to succeed is to just try one more time.**
 
-Zen Proverb
+Thomas Edison
