@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Doubt kills more dreams than failure ever will.**
+**Count your age by friends, not years. Count your life by smiles, not tears.**
 
-Suzy Kassem
+John Lennon
