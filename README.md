@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Another day another blessing.**
+**The first place where self-esteem begins its journey is within us.**
 
-Anonymous
+Stephen Richards
