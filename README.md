@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything that is done in this world is done by hope.**
+**Before you score, you first must have a goal.**
 
-Martin Luther
+Greek Proverb
