@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It does not matter how slowly you go as long as you do not stop.**
+**Shared joy is a double joy; shared sorrow is half a sorrow.**
 
-Confucius
+Swedish Proverb
