@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't try to be perfect. Just try to be better than you were yesterday.**
+**I attribute my success to this: I never gave or took any excuse.**
 
-Anonymous
+Florence Nightingale
