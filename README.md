@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is trying things to see if they work.**
+**Words should be weighed, not counted.**
 
-Ray Bradbury
+Yiddish Proverb
