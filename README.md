@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't always control what goes on outside, but you can always control what goes on inside.**
+**Be a voice not an echo.**
 
-Wayne Dyer
+Anonymous
