@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Successful people are not gifted; they just work hard, then succeed on purpose.**
+**It takes but one positive thought when given a chance to survive and thrive to overpower an entire army of negative thoughts.**
 
-G.K. Nielson
+Robert H. Schuller
