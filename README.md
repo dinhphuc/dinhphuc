@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are stronger than you think.**
+**When something is important enough, you do it even if the odds are not in your favor.**
 
-Anonymous
+Elon Musk
