@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You've got to find people who love like you do.**
+**Never give up, stay focused, stay positive, stay strong.**
 
 Anonymous
