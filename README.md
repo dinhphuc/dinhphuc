@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of change is to focus all of your energy, not on fighting the old, but on building the new.**
+**You have brains in your head. You have feet in your shoes. You can steer yourself any direction you choose.**
 
-Socrates
+Dr. Seuss
