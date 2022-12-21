@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You have brains in your head. You have feet in your shoes. You can steer yourself any direction you choose.**
+**Even the greatest were beginners. Don't be afraid to take that first step.**
 
-Dr. Seuss
+Anonymous
