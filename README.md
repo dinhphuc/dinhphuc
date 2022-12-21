@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Rock bottom became the solid foundation on which I rebuilt my life.**
+**The secret of change is to focus all of your energy, not on fighting the old, but on building the new.**
 
-J.K. Rowling
+Socrates
