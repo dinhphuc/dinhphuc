@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Words should be weighed, not counted.**
+**It's not so much that I began to run, but that I continued.**
 
-Yiddish Proverb
+Hal Higdon
