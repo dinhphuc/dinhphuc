@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I think that the good and the great are only separated by the willingness to sacrifice.**
+**Passion first and everything will fall into place.**
 
-Kareem Abdul-Jabbar
+Holly Holm
