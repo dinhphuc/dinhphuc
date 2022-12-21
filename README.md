@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not bragging if you can back it up.**
+**The key to being happy is knowing you have the power to choose what to accept and what to let go.**
 
-Muhammed Ali
+Anonymous
