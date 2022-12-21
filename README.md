@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When something is important enough, you do it even if the odds are not in your favor.**
+**Rock bottom became the solid foundation on which I rebuilt my life.**
 
-Elon Musk
+J.K. Rowling
