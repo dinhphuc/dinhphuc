@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The key to being happy is knowing you have the power to choose what to accept and what to let go.**
+**Never stop believing in hope because miracles happen everyday.**
 
 Anonymous
