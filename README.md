@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't like something, change it. If you can't change it, change your attitude.**
+**We are what we repeatedly do. Excellence, then, is not an act, but a habit.**
 
-Maya Angelou
+Aristotle
