@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The harder the struggle, the more glorious the triumph.**
+**Successful people are not gifted; they just work hard, then succeed on purpose.**
 
-Anonymous
+G.K. Nielson
