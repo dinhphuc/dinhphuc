@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Passion first and everything will fall into place.**
+**We either make ourselves miserable or we make ourselves strong. The amount of work is the same.**
 
-Holly Holm
+Carlos Costaneda
