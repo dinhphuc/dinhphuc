@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I am happy because I choose to be happy no matter what the situation is.**
+**You've got to find people who love like you do.**
 
 Anonymous
