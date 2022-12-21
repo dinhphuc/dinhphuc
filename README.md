@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A good life is doing what you love as much as you can and doing what you must as much as you should.**
+**Great minds discuss ideas; average minds discuss events; small minds discuss people.**
 
-Savania China
+Eleanor Roosevelt
