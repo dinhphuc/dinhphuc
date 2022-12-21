@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how old I get, the race remains one of life's most rewarding experiences.**
+**It's not bragging if you can back it up.**
 
-George Sheehan
+Muhammed Ali
