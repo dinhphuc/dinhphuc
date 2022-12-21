@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never stop believing in hope because miracles happen everyday.**
+**Life is trying things to see if they work.**
 
-Anonymous
+Ray Bradbury
