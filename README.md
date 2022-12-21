@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Stop doubting yourself. Work hard and make it happen.**
+**The harder the struggle, the more glorious the triumph.**
 
 Anonymous
