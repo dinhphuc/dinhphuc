@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are never too old to set another goal or dream a new dream.**
+**No matter how old I get, the race remains one of life's most rewarding experiences.**
 
-Les Brown
+George Sheehan
