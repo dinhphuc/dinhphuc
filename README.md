@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be a voice not an echo.**
+**The only easy day was yesterday.**
 
-Anonymous
+Navy Seals
