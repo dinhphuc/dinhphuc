@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you choose to focus on expands and grows.**
+**The past does not equal the future.**
 
-Anonymous
+Tony Robbins
