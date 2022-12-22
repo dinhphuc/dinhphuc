@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only those who dare to fail greatly can ever achieve greatly.**
+**It's important to feel good about yourself. When you feel good about yourself, nothing negative can touch you.**
 
-Robert F. Kennedy
+Anonymous
