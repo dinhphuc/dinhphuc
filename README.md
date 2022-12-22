@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously.**
+**If you want to change the world, start with yourself.**
 
-Steve Maraboli
+Mahatma Gandhi
