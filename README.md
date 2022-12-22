@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**And in the end, the love you take, is equal to the love you make.**
+**Someone who is busier than you is running right now.**
 
-The Beatles
+Nike
