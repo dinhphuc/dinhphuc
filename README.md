@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can have everything you want in life if you just help enough people get what they want in life.**
+**Only those who dare to fail greatly can ever achieve greatly.**
 
-Zig Ziglar
+Robert F. Kennedy
