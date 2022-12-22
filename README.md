@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's important to feel good about yourself. When you feel good about yourself, nothing negative can touch you.**
+**Smile at strangers and you just might change a life.**
 
-Anonymous
+Steve Maraboli
