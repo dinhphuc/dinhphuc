@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Move fast and break things. If you are not breaking things, you are not moving fast enough.**
+**What you choose to focus on expands and grows.**
 
-Mark Zuckerberg
+Anonymous
