@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All things equal, people will do business with, and refer business to, people they know trust and like.**
+**I'm alone, but I'm not lonely. I like who I am. I like who I'm becoming.**
 
-Bob Burg
+Deena Kastor
