@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To give anything less than your best is to sacrifice the gift.**
+**In a battle between elephants, the ants get squashed.**
 
-Steve Prefontaine
+Thai Proverb
