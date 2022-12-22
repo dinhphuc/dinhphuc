@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Open your eyes and notice the beauty of this wonderful world.**
+**The difference between ordinary and extraordinary is that little extra.**
 
-Anonymous
+Jimmy Johnson
