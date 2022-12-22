@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Inhale confidence. Exhale doubt.**
+**If you want to change the world, start with yourself.**
 
-Anonymous
+Mahatma Gandhi
