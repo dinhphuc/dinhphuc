@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile at strangers and you just might change a life.**
+**All things equal, people will do business with, and refer business to, people they know trust and like.**
 
-Steve Maraboli
+Bob Burg
