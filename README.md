@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want light to come into your life, you need to stand where it is shining.**
+**Change your thoughts and you change your world.**
 
-Guy Finley
+Norman Vincent Peale
