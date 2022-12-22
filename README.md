@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are what you believe yourself to be.**
+**The goal is not to be perfect by the end. The goal is to be better today.**
 
-Paulo Coelho
+Simon Sinek
