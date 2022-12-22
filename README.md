@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to change the world, start with yourself.**
+**Be strong enough to let go and patient enough to wait for what you deserve.**
 
-Mahatma Gandhi
+Anonymous
