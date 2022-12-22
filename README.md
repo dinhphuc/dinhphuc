@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between ordinary and extraordinary is that little extra.**
+**I'm not telling you it is going to be easy, I'm telling you it's going to be worth it.**
 
-Jimmy Johnson
+Art Williams
