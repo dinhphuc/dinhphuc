@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be strong enough to let go and patient enough to wait for what you deserve.**
+**You can have everything you want in life if you just help enough people get what they want in life.**
 
-Anonymous
+Zig Ziglar
