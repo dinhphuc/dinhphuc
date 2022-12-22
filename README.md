@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In a battle between elephants, the ants get squashed.**
+**Focus on your goal. Don't look in any direction but ahead.**
 
-Thai Proverb
+Anonymous
