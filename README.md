@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Someone who is busier than you is running right now.**
+**To give anything less than your best is to sacrifice the gift.**
 
-Nike
+Steve Prefontaine
