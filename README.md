@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To give anything less than your best is to sacrifice the gift.**
+**Hope never abandons you, you abandon it.**
 
-Steve Prefontaine
+George Weinberg
