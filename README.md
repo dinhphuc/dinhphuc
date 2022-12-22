@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Start by doing what's necessary; then do what's possible; and suddenly you are doing the impossible.**
+**The best feeling of happiness is when you're happy because you've made somebody else happy.**
 
-Francis of Assisi
+Anonymous
