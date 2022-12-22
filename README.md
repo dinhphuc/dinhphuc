@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No one controls how I feel about myself, but me.**
+**There is no charm equal to tenderness of heart.**
 
-Anonymous
+Jane Austen
