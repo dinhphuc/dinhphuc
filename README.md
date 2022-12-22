@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always two there are, no more, no less. A master and an apprentice.**
+**No one controls how I feel about myself, but me.**
 
-Yoda
+Anonymous
