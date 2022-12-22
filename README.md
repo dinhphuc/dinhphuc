@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to change the world, start with yourself.**
+**You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously.**
 
-Mahatma Gandhi
+Steve Maraboli
