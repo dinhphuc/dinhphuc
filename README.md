@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Dream big. Start small. But most of all, start.**
+**Open your eyes and notice the beauty of this wonderful world.**
 
-Simon Sinek
+Anonymous
