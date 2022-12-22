@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The first place where self-esteem begins its journey is within us.**
+**Start by doing what's necessary; then do what's possible; and suddenly you are doing the impossible.**
 
-Stephen Richards
+Francis of Assisi
