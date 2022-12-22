@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Change your thoughts and you change your world.**
+**Dream big. Start small. But most of all, start.**
 
-Norman Vincent Peale
+Simon Sinek
