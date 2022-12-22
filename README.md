@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**People are just as happy as they make up their minds to be.**
+**Always two there are, no more, no less. A master and an apprentice.**
 
-Abraham Lincoln
+Yoda
