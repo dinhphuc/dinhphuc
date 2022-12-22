@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life isn't about getting and having, it's about giving and being.**
+**You will find only what you bring in.**
 
-Kevin Kruse
+Yoda
