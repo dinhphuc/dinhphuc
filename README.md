@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm alone, but I'm not lonely. I like who I am. I like who I'm becoming.**
+**Life isn't about getting and having, it's about giving and being.**
 
-Deena Kastor
+Kevin Kruse
