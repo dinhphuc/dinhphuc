@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody can make you to feel inferior without your consent.**
+**Move fast and break things. If you are not breaking things, you are not moving fast enough.**
 
-Eleanor Roosevelt
+Mark Zuckerberg
