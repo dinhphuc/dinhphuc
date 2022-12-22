@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The past does not equal the future.**
+**People are just as happy as they make up their minds to be.**
 
-Tony Robbins
+Abraham Lincoln
