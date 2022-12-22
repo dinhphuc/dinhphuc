@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will find only what you bring in.**
+**And in the end, the love you take, is equal to the love you make.**
 
-Yoda
+The Beatles
