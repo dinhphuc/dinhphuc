@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Focus on your goal. Don't look in any direction but ahead.**
+**The first place where self-esteem begins its journey is within us.**
 
-Anonymous
+Stephen Richards
