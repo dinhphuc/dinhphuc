@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The marathon can humble you.**
+**It is not human nature to enjoy what we get with no effort.**
 
-Bill Rodgers
+Sri Chinmoy
