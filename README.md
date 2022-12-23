@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Float like a butterfly, sting like a bee. The hands can't hit what the eyes can't see.**
+**You walk through life much easier with a smile on your face.**
 
-Muhammad Ali
+Sweet Paul
