@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The marathon can humble you.**
+**Only those who dare to fail greatly can ever achieve greatly.**
 
-Bill Rodgers
+Robert F. Kennedy
