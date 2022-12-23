@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no charm equal to tenderness of heart.**
+**It is not how much we have, but how much we enjoy, that makes happiness.**
 
-Jane Austen
+Charles Spurgeon
