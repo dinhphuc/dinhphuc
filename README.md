@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be so good they can't ignore you.**
+**Once we accept our limits, we go beyond them.**
 
-Steve Martin
+Albert Einstein
