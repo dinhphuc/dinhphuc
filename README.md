@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A runner must run with dreams in his heart.**
+**The marathon can humble you.**
 
-Emil Zatopek
+Bill Rodgers
