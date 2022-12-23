@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It takes courage to grow up and become who you really are.**
+**Tough times don't last. Tough people do.**
 
-E.E. Cummings
+Robert H. Schuller
