@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no charm equal to tenderness of heart.**
+**It takes courage to grow up and become who you really are.**
 
-Jane Austen
+E.E. Cummings
