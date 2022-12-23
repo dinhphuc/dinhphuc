@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Start doing things to make you happy.**
+**A runner must run with dreams in his heart.**
 
-Reyna Biddy
+Emil Zatopek
