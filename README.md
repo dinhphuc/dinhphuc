@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile, it is the key that fits the lock of everybody's heart.**
+**Be so good they can't ignore you.**
 
-Anthony J D'Angelo
+Steve Martin
