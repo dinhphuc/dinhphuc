@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only those who dare to fail greatly can ever achieve greatly.**
+**My heart is always open to love.**
 
-Robert F. Kennedy
+Anonymous
