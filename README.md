@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**With virtue, you can't be completely poor; without it, you can't be truly rich.**
+**Smile, it is the key that fits the lock of everybody's heart.**
 
-Chinese Proverb
+Anthony J D'Angelo
