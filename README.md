@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You fail because you don't believe.**
+**At first they'll ask you why you're doing it. Later they'll ask how you did it.**
 
-Yoda
+Anonymous
