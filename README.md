@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Goals may give focus, but dreams give power.**
+**The only journey is the one within.**
 
-John Maxwell
+Rainer Maria Rilke
