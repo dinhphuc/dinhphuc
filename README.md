@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only journey is the one within.**
+**There is no charm equal to tenderness of heart.**
 
-Rainer Maria Rilke
+Jane Austen
