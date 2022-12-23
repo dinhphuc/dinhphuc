@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't ask what the world needs. Ask what makes you come alive and go do it. Because what the world needs is more people who have come alive.**
+**Whatever you do, do with all your might.**
 
-Howard Thurman
+Marcus Tullius Cicero
