@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not how much we have, but how much we enjoy, that makes happiness.**
+**Float like a butterfly, sting like a bee. The hands can't hit what the eyes can't see.**
 
-Charles Spurgeon
+Muhammad Ali
