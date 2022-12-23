@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is when what you think, what you say, and what you do are in harmony.**
+**Every strike brings me closer to the next home run.**
 
-Mahatma Gandhi
+Babe Ruth
