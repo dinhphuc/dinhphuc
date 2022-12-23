@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life without love is like a tree without blossoms or fruit.**
+**Honesty is the first chapter in the book of wisdom.**
 
-Khalil Gibran
+Thomas Jefferson
