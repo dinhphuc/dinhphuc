@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The first and greatest victory is to conquer self.**
+**Life without love is like a tree without blossoms or fruit.**
 
-Plato
+Khalil Gibran
