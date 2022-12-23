@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One day I'll be at the place I always wanted to be.**
+**Happiness is when what you think, what you say, and what you do are in harmony.**
 
-Anonymous
+Mahatma Gandhi
