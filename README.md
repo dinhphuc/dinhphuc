@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every strike brings me closer to the next home run.**
+**You fail because you don't believe.**
 
-Babe Ruth
+Yoda
