@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Tough times don't last. Tough people do.**
+**I have not failed. I've just found 10,000 ways that won't work.**
 
-Robert H. Schuller
+Thomas Edison
