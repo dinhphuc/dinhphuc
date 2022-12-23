@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**My heart is always open to love.**
+**With virtue, you can't be completely poor; without it, you can't be truly rich.**
 
-Anonymous
+Chinese Proverb
