@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Honesty is the first chapter in the book of wisdom.**
+**Start doing things to make you happy.**
 
-Thomas Jefferson
+Reyna Biddy
