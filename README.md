@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You walk through life much easier with a smile on your face.**
+**You fail because you don't believe.**
 
-Sweet Paul
+Yoda
