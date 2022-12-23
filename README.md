@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you do, do with all your might.**
+**Goals may give focus, but dreams give power.**
 
-Marcus Tullius Cicero
+John Maxwell
