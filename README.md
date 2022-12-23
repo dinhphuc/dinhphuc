@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You fail because you don't believe.**
+**Life is not a problem to be solved, but a reality to be experienced.**
 
-Yoda
+Soren Kierkegaard
