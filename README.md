@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When it comes to success, there are no shortcuts.**
+**The first and greatest victory is to conquer self.**
 
-Bo Bennett
+Plato
