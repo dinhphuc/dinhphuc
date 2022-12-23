@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not human nature to enjoy what we get with no effort.**
+**You have to be at your strongest when you're feeling at your weakest.**
 
-Sri Chinmoy
+Anonymous
