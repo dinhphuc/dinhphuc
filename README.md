@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I have not failed. I've just found 10,000 ways that won't work.**
+**When it comes to success, there are no shortcuts.**
 
-Thomas Edison
+Bo Bennett
