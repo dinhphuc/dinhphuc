@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Inhale confidence. Exhale doubt.**
+**Champions play to win. Failure is just feedback. There's everything to gain by trying your best.**
 
-Anonymous
+Jim Afremow
