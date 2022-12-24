@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There's no shortage of remarkable ideas, what's missing is the will to execute them.**
+**Appreciate the people who make you smile.**
 
-Seth Godin
+Anonymous
