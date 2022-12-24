@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you cannot do great things, do small things in a great way.**
+**Be helpful. When you see a person without a smile, give them yours.**
 
-Napoleon Hill
+Zig Ziglar
