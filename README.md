@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love has no age, no limit; and no death.**
+**Our greatest glory is not in never falling, but in rising every time we fall.**
 
-John Galsworthy
+Confucius
