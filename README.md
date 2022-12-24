@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I don't care how long it takes me, but I'm going somewhere beautiful.**
+**Being deeply loved by someone gives you strength, while loving someone deeply gives you courage.**
 
-Anonymous
+Lao-Tzu
