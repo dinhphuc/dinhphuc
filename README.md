@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is made of ever so many partings welded together.**
+**Happiness is when what you think, what you say, and what you do are in harmony.**
 
-Charles Dickens
+Mahatma Gandhi
