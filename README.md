@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Practice 'gratitude' each day and your relationship will last forever.**
+**I don't care how long it takes me, but I'm going somewhere beautiful.**
 
 Anonymous
