@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Who begins too much accomplishes little.**
+**Success is no accident. It is hard work, perseverance, learning, studying, sacrifice and most of all, love of what you are doing or learning to do.**
 
-German Proverb
+Pele
