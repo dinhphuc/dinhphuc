@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is when what you think, what you say, and what you do are in harmony.**
+**Happiness is not out there, it's in you.**
 
-Mahatma Gandhi
+Anonymous
