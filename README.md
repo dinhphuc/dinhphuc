@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is what happens when you're busy making other plans.**
+**If you only do what you can do, you will never be more than you are now.**
 
-John Lennon
+Master Oogway
