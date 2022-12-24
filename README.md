@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life works for my benefit.**
+**People want to do business with you because you help them get what they want. They don't do business with you to help you get what you want.**
 
-Anonymous
+Don Crowther
