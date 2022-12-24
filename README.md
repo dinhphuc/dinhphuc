@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is not out there, it's in you.**
+**Blessed are they who see beautiful things in humble places where other people see nothing.**
 
-Anonymous
+Camille Pissaro
