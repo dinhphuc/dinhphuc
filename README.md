@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Champions play to win. Failure is just feedback. There's everything to gain by trying your best.**
+**If you want your dinner, don't insult the cook.**
 
-Jim Afremow
+Chinese Proverb
