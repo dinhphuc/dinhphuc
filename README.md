@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once we accept our limits, we go beyond them.**
+**A new command I give you: Love one another.**
 
-Albert Einstein
+Jesus Christ
