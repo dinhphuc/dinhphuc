@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The best feeling of happiness is when you're happy because you've made somebody else happy.**
+**The more you praise and celebrate your life, the more there is in life to celebrate.**
 
-Anonymous
+Oprah Winfrey
