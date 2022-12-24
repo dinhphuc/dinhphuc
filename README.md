@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Are your excuses more important than your dreams?**
+**The best feeling of happiness is when you're happy because you've made somebody else happy.**
 
 Anonymous
