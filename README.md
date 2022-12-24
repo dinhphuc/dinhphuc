@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If it doesn't challenge you, it won't change you.**
+**And if you want to have a day filled with joy, love, and excitement, it is vital that you fill yourself with positivity so you can radiate good energy.**
 
 Anonymous
