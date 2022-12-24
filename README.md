@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is not a problem to be solved, but a reality to be experienced.**
+**There's no shortage of remarkable ideas, what's missing is the will to execute them.**
 
-Soren Kierkegaard
+Seth Godin
