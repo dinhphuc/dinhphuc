@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you depersonalize abrasive behavior and see it as a call for help you become a catalyst for the best kind of change.**
+**If you cannot do great things, do small things in a great way.**
 
-Marilyn Suttle
+Napoleon Hill
