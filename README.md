@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Through challenge and difficulty, we learn to see life differently than before.**
+**Who begins too much accomplishes little.**
 
-Auliq-Ice
+German Proverb
