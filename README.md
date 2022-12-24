@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be helpful. When you see a person without a smile, give them yours.**
+**Love has no age, no limit; and no death.**
 
-Zig Ziglar
+John Galsworthy
