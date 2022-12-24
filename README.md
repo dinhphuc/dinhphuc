@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength grows in the moments when you think you can't go on but you keep going anyway.**
+**Life is what happens when you're busy making other plans.**
 
-Anonymous
+John Lennon
