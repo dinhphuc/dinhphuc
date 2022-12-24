@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Wisdom is knowing when you can't be wise.**
+**Once we accept our limits, we go beyond them.**
 
-Muhammad Ali
+Albert Einstein
