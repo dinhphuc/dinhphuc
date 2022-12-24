@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest glory is not in never falling, but in rising every time we fall.**
+**Are your excuses more important than your dreams?**
 
-Confucius
+Anonymous
