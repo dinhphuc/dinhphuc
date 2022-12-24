@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A new command I give you: Love one another.**
+**You don't find will power, you create it.**
 
-Jesus Christ
+Anonymous
