@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Being deeply loved by someone gives you strength, while loving someone deeply gives you courage.**
+**Strength grows in the moments when you think you can't go on but you keep going anyway.**
 
-Lao-Tzu
+Anonymous
