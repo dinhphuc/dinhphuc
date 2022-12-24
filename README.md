@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you only do what you can do, you will never be more than you are now.**
+**Life is made of ever so many partings welded together.**
 
-Master Oogway
+Charles Dickens
