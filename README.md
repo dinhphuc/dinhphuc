@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Blessed are they who see beautiful things in humble places where other people see nothing.**
+**If it doesn't challenge you, it won't change you.**
 
-Camille Pissaro
+Anonymous
