@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**He who lives in harmony with himself lives in harmony with the universe.**
+**Many of life's failures are people who did not realize how close they were to success when they gave up.**
 
-Marcus Aurelius
+Thomas A. Edison
