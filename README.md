@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Winning is fun, but those moments that you can touch someone's life in a very positive way are better.**
+**Each time I thought I had achieved my life's purpose, I discovered it was only another step in my journey.**
 
-Tim Howard
+Muhammad Ali
