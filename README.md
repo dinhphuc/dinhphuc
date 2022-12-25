@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's important to feel good about yourself. When you feel good about yourself, nothing negative can touch you.**
+**You may say I'm a dreamer but I'm not the only one.**
 
-Anonymous
+John Lennon
