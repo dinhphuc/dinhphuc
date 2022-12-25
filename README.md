@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you see in yourself is what you see in the world.**
+**Stay strong. You never know who you are inspiring.**
 
-Afghan Proverb
+Anonymous
