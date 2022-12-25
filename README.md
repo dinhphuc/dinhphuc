@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I am happy because I choose to be happy no matter what the situation is.**
+**When you find an idea that you just can't stop thinking about, that's probably a good one to pursue.**
 
-Anonymous
+Josh James
