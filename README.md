@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A smile is the beauty of the soul.**
+**There is no greater miracle than our conscious efforts to become good human beings.**
 
-Lailah Gifty
+Sri Chinmoy
