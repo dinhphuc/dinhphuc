@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile, it is the key that fits the lock of everybody's heart.**
+**Smile at strangers and you just might change a life.**
 
-Anthony J D'Angelo
+Steve Maraboli
