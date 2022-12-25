@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**As we express our gratitude, we must never forget that the highest appreciation is not to utter words, but to live by them.**
+**Train like a silver medalist, compete like a gold.**
 
-John F. Kennedy
+Anonymous
