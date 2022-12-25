@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A smile is the beauty of the soul.**
+**It is not the strongest of the species that survive, nor the most intelligent, but the one most responsive to change.**
 
-Lailah Gifty
+Charles Darwin
