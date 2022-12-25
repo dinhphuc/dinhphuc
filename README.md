@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You have brains in your head. You have feet in your shoes. You can steer yourself any direction you choose.**
+**A smile is the beauty of the soul.**
 
-Dr. Seuss
+Lailah Gifty
