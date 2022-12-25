@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our problems don't stem from our ignorance so much as our disobedience of that which we know to be right.**
+**All things equal, people will do business with, and refer business to, people they know trust and like.**
 
-Stephen Covey
+Bob Burg
