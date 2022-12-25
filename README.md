@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Stay strong. You never know who you are inspiring.**
+**I hated every minute of training, but I said, 'Don't quit. Suffer now and live the rest of your life as a champion'.**
 
-Anonymous
+Muhammad Ali
