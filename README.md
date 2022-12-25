@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Many of life's failures are people who did not realize how close they were to success when they gave up.**
+**It's not who you are that holds you back, it's who you think you're not.**
 
-Thomas A. Edison
+Anonymous
