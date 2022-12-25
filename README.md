@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe with all of your heart that you will do what you were made to do.**
+**Our problems don't stem from our ignorance so much as our disobedience of that which we know to be right.**
 
-Orison Swett Marden
+Stephen Covey
