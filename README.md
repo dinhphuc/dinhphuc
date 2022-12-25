@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no greater miracle than our conscious efforts to become good human beings.**
+**Good friends are all that matter.**
 
-Sri Chinmoy
+Anonymous
