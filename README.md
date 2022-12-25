@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A beautiful thing is never perfect.**
+**One small positive thought in the morning can change your whole day.**
 
-Egyptian Proverb
+Anonymous
