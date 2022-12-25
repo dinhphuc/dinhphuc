@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you find an idea that you just can't stop thinking about, that's probably a good one to pursue.**
+**Self-control is strength. Right thought is mastery. Calmness is power.**
 
-Josh James
+James Allen
