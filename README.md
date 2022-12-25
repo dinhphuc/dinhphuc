@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are enough, just as you are.**
+**Smile, it is the key that fits the lock of everybody's heart.**
 
-Anonymous
+Anthony J D'Angelo
