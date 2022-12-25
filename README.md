@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good judgment comes from experience, and a lot of that comes from bad judgment.**
+**A beautiful thing is never perfect.**
 
-Will Rogers
+Egyptian Proverb
