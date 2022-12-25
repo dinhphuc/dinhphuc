@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One small positive thought in the morning can change your whole day.**
+**Words should be weighed, not counted.**
 
-Anonymous
+Yiddish Proverb
