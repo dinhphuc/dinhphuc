@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I hated every minute of training, but I said, 'Don't quit. Suffer now and live the rest of your life as a champion'.**
+**Winning is fun, but those moments that you can touch someone's life in a very positive way are better.**
 
-Muhammad Ali
+Tim Howard
