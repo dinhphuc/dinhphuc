@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You may say I'm a dreamer but I'm not the only one.**
+**You have brains in your head. You have feet in your shoes. You can steer yourself any direction you choose.**
 
-John Lennon
+Dr. Seuss
