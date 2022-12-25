@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All things equal, people will do business with, and refer business to, people they know trust and like.**
+**Good judgment comes from experience, and a lot of that comes from bad judgment.**
 
-Bob Burg
+Will Rogers
