@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good friends are all that matter.**
+**He who lives in harmony with himself lives in harmony with the universe.**
 
-Anonymous
+Marcus Aurelius
