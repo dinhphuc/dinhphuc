@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Words should be weighed, not counted.**
+**What you see in yourself is what you see in the world.**
 
-Yiddish Proverb
+Afghan Proverb
