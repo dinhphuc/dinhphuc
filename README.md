@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Obstacles don't have to stop you. If you run into a wall, don't turn around and give up. Figure out how to climb it, go through it, or work around it.**
+**Failure is simply the opportunity to begin again. Except this time more intelligently.**
 
-Michael Jordan
+Henry Ford
