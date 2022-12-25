@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not who you are that holds you back, it's who you think you're not.**
+**I am happy because I choose to be happy no matter what the situation is.**
 
 Anonymous
