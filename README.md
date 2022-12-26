@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Losers quit when they're tired. Winners quit when they've won.**
+**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
 
 Anonymous
