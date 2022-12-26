@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's easy to stand in the crowd but it takes courage to stand alone.**
+**Spend more of your time on what gives you energy and less of your time on what takes it away.**
 
-Mahatma Gandhi
+Anonymous
