@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be a voice not an echo.**
+**It is not human nature to enjoy what we get with no effort.**
 
-Anonymous
+Sri Chinmoy
