@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of change is to focus all of your energy, not on fighting the old, but on building the new.**
+**Life isn't about waiting for the storm to pass, it's about learning how to dance in the rain.**
 
-Socrates
+Vivian Greene
