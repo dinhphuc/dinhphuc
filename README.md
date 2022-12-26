@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The people who make you smile from just seeing them, those are my favorite people.**
+**Life without love is like a tree without blossoms or fruit.**
 
-Koi Fresco
+Khalil Gibran
