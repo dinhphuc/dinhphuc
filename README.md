@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life without love is like a tree without blossoms or fruit.**
+**One day I'll be at the place I always wanted to be.**
 
-Khalil Gibran
+Anonymous
