@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Speed is irrelevant if you are going in the wrong direction.**
+**It's easy to stand in the crowd but it takes courage to stand alone.**
 
 Mahatma Gandhi
