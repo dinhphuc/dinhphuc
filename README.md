@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is a succession of lessons which must be lived to be understood.**
+**Don't wait for opportunity. Create it.**
 
-Ralph Waldo Emerson
+Anonymous
