@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is never fair, and perhaps it is a good thing for most of us that it is not.**
+**Spend more of your time on what gives you energy and less of your time on what takes it away.**
 
-Oscar Wilde
+Anonymous
