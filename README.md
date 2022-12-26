@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never stop believing in hope because miracles happen everyday.**
+**Don't judge each day by the harvest you reap but by the seeds that you plant.**
 
-Anonymous
+Robert Louis Stevenson
