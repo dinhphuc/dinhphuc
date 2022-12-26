@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Spend more of your time on what gives you energy and less of your time on what takes it away.**
+**A dream does not become reality through magic; it takes sweat, determination and hard work.**
 
-Anonymous
+Colin Powell
