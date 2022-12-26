@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't wait for opportunity. Create it.**
+**Speed is irrelevant if you are going in the wrong direction.**
 
-Anonymous
+Mahatma Gandhi
