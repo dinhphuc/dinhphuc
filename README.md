@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One conquers the world by conquering himself.**
+**Everyone is breakable, but not everyone is aware that it's a choice to stay broken.**
 
-Zeno of Citium
+Stanley Behrman
