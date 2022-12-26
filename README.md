@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Get going ... walk if you have to, but finish the damned race.**
+**When things are bad, remember: it won't always be this way. Take one day at a time.**
 
-Ron Hill
+Anonymous
