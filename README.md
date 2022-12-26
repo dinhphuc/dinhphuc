@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I've failed over and over and over again in my life and that is why I succeed.**
+**Stay strong. You never know who you are inspiring.**
 
-Michael Jordan
+Anonymous
