@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You walk through life much easier with a smile on your face.**
+**I've failed over and over and over again in my life and that is why I succeed.**
 
-Sweet Paul
+Michael Jordan
