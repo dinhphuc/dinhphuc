@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The best way to predict your future is to create it.**
+**Don't miss out on something that could be great just because it could also be difficult.**
 
-Peter F. Drucker
+Anonymous
