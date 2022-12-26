@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep smiling. It makes people wonder what you are up to.**
+**Train like a silver medalist, compete like a gold.**
 
 Anonymous
