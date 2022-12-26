@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not human nature to enjoy what we get with no effort.**
+**One conquers the world by conquering himself.**
 
-Sri Chinmoy
+Zeno of Citium
