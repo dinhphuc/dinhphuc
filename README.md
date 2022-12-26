@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't judge each day by the harvest you reap but by the seeds that you plant.**
+**Great works are performed, not by strength, but by perseverance.**
 
-Robert Louis Stevenson
+Samuel Johnson
