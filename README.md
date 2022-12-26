@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
+**If no mistake have you made, yet losing you are... a different game you should play.**
 
-Anonymous
+Yoda
