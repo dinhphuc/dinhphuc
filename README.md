@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A leader is one who knows the way, goes the way, and shows the way.**
+**He who lives in harmony with himself lives in harmony with the universe.**
 
-John C. Maxwell
+Marcus Aurelius
