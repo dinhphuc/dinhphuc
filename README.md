@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Train like a silver medalist, compete like a gold.**
+**A leader is one who knows the way, goes the way, and shows the way.**
 
-Anonymous
+John C. Maxwell
