@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't miss out on something that could be great just because it could also be difficult.**
+**Life is a succession of lessons which must be lived to be understood.**
 
-Anonymous
+Ralph Waldo Emerson
