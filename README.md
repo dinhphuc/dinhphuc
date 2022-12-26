@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everyone is breakable, but not everyone is aware that it's a choice to stay broken.**
+**A house is made of bricks and beams. A home is made of hopes and dreams.**
 
-Stanley Behrman
+Anonymous
