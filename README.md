@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot fail at being yourself.**
+**Never stop believing in hope because miracles happen everyday.**
 
-Wayne Dyer
+Anonymous
