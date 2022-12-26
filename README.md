@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't criticize, condemn or complain.**
+**Losers quit when they're tired. Winners quit when they've won.**
 
-Dale Carnegie
+Anonymous
