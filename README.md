@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**He who lives in harmony with himself lives in harmony with the universe.**
+**The best way to predict your future is to create it.**
 
-Marcus Aurelius
+Peter F. Drucker
