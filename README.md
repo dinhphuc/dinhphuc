@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When things are bad, remember: it won't always be this way. Take one day at a time.**
+**You can either spend your time or invest your time.**
 
-Anonymous
+Chip Kelly
