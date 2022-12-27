@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are no mistakes, only lessons. Growth is a process of trial and error.**
+**If your dreams don't scare you, they aren't big enough.**
 
-Anonymous
+Muhammad Ali
