@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything you've ever wanted is on the other side of fear.**
+**Happiness resides not in possessions, and not in gold, happiness dwells in the soul.**
 
-George Addair
+Democritus
