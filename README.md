@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up, stay focused, stay positive, stay strong.**
+**To be calm is the highest achievement of the self.**
 
-Anonymous
+Zen Proverb
