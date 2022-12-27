@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The wise listens to her mind, the foolish to the mob.**
+**Good, better, best. Never let it rest. Until your good is better and your better is best.**
 
-Chinese Proverb
+Tim Duncan
