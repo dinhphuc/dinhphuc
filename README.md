@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you set your goals ridiculously high and it's a failure, you will fail above everyone else's success.**
+**Friends show their love in times of trouble, not in happiness.**
 
-James Cameron
+Euripides
