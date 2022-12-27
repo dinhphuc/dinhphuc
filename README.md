@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**How long are you going to wait before you demand the best for yourself?**
+**There is no greater miracle than our conscious efforts to become good human beings.**
 
-Epictetus
+Sri Chinmoy
