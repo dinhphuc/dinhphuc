@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Challenges are what make life interesting and overcoming them is what makes life meaningful.**
+**Make sure your worst enemy doesn't live between your own two ears.**
 
-Joshua Marine
+Laird Hamilton
