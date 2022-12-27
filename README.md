@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In matters of style, swim with the current; in matters of principle, stand like a rock.**
+**How long are you going to wait before you demand the best for yourself?**
 
-Thomas Jefferson
+Epictetus
