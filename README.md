@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no greater miracle than our conscious efforts to become good human beings.**
+**If you set your goals ridiculously high and it's a failure, you will fail above everyone else's success.**
 
-Sri Chinmoy
+James Cameron
