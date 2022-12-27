@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I am not a product of my circumstances. I am a product of my decisions.**
+**We are what we repeatedly do. Excellence, then, is not an act, but a habit.**
 
-Stephen Covey
+Aristotle
