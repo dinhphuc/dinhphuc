@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**More smiling, less worrying. More compassion, less judgment. More blessed, less stressed. More love, less hate.**
+**Pain is temporary. Quitting lasts forever.**
 
-Roy T. Bennett
+Lance Armstrong
