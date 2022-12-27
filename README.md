@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be the change you are trying to create.**
+**Live your life for you.**
 
-Mahatma Gandhi
+Anonymous
