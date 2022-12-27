@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We either make ourselves miserable or we make ourselves strong. The amount of work is the same.**
+**Dream big. Start small. But most of all, start.**
 
-Carlos Costaneda
+Simon Sinek
