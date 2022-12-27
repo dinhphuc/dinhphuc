@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your positive action combined with positive thinking results in success.**
+**I'm too grateful to be hateful. I am too blessed to be stressed.**
 
-Anonymous
+El DeBarge
