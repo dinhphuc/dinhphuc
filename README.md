@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hard work beats talent when talent doesn't work hard.**
+**In matters of style, swim with the current; in matters of principle, stand like a rock.**
 
-Tim Notke
+Thomas Jefferson
