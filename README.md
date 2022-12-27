@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness resides not in possessions, and not in gold, happiness dwells in the soul.**
+**Beat the drum inside the house to spare the neighbors.**
 
-Democritus
+Chinese Proverb
