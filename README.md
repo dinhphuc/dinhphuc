@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If no mistake have you made, yet losing you are... a different game you should play.**
+**Be the change you are trying to create.**
 
-Yoda
+Mahatma Gandhi
