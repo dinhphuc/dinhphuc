@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If your dreams don't scare you, they aren't big enough.**
+**Your positive action combined with positive thinking results in success.**
 
-Muhammad Ali
+Anonymous
