@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Dream big. Start small. But most of all, start.**
+**Look for something positive in each day, even if some days you have to look a little harder.**
 
-Simon Sinek
+Anonymous
