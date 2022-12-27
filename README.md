@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good, better, best. Never let it rest. Until your good is better and your better is best.**
+**Walk on with hope in your heart, and you'll never walk alone.**
 
-Tim Duncan
+Shah Rukh Khan
