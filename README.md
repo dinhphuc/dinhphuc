@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We are what we repeatedly do. Excellence, then, is not an act, but a habit.**
+**We either make ourselves miserable or we make ourselves strong. The amount of work is the same.**
 
-Aristotle
+Carlos Costaneda
