@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Make sure your worst enemy doesn't live between your own two ears.**
+**I am not a product of my circumstances. I am a product of my decisions.**
 
-Laird Hamilton
+Stephen Covey
