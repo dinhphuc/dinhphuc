@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success seems to be connected with action. Successful people keep moving. They make mistakes, but they don't quit.**
+**Everything you've ever wanted is on the other side of fear.**
 
-Conrad Hilton
+George Addair
