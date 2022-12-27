@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Friends show their love in times of trouble, not in happiness.**
+**Challenges are what make life interesting and overcoming them is what makes life meaningful.**
 
-Euripides
+Joshua Marine
