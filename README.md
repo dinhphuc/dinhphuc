@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success consists of getting up just one more time than you fall.**
+**There are no mistakes, only lessons. Growth is a process of trial and error.**
 
-Oliver Goldsmith
+Anonymous
