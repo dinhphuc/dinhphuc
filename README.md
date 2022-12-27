@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Beat the drum inside the house to spare the neighbors.**
+**Try to be a rainbow in someone's cloud.**
 
-Chinese Proverb
+Maya Angelou
