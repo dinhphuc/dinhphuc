@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can either spend your time or invest your time.**
+**If no mistake have you made, yet losing you are... a different game you should play.**
 
-Chip Kelly
+Yoda
