@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm too grateful to be hateful. I am too blessed to be stressed.**
+**The wise listens to her mind, the foolish to the mob.**
 
-El DeBarge
+Chinese Proverb
