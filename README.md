@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Walk on with hope in your heart, and you'll never walk alone.**
+**Keep your face always toward the sunshine - and shadows will fall behind you.**
 
-Shah Rukh Khan
+Walt Whitman
