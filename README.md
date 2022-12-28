@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to change the world, start with yourself.**
+**Success is what happens after you have survived all of your disappointments.**
 
-Mahatma Gandhi
+Anonymous
