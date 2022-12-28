@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing builds self-esteem and self-confidence like accomplishment.**
+**Determination is doing what needs to be done even when you don't feel like doing it.**
 
-Thomas Carlyle
+Anonymous
