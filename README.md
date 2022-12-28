@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always believe that something wonderful is about to happen.**
+**Life chips away at us all. Some play the victim. Some choose to be a survivor. And then there are those who choose to conquer.**
 
 Anonymous
