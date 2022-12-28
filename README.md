@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep your face always toward the sunshine - and shadows will fall behind you.**
+**If you want to change the world, start with yourself.**
 
-Walt Whitman
+Mahatma Gandhi
