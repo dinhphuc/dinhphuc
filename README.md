@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Start doing things to make you happy.**
+**Always believe that something wonderful is about to happen.**
 
-Reyna Biddy
+Anonymous
