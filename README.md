@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Each time I thought I had achieved my life's purpose, I discovered it was only another step in my journey.**
+**The positive thinker sees the invisible, feels the intangible, and achieves the impossible.**
 
-Muhammad Ali
+Winston Churchill
