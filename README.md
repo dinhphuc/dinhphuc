@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest danger for most of us is not that our aim is too high and we miss it, but that it is too low and we reach it.**
+**You can't use up creativity. The more you use, the more you have.**
 
-Michaelangelo
+Maya Angelou
