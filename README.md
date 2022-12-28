@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The positive thinker sees the invisible, feels the intangible, and achieves the impossible.**
+**You miss 100% of the shots you don't take.**
 
-Winston Churchill
+Wayne Gretzky
