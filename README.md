@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be yourself. An original is so much better than a copy.**
+**Nothing builds self-esteem and self-confidence like accomplishment.**
 
-Anonymous
+Thomas Carlyle
