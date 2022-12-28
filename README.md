@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life chips away at us all. Some play the victim. Some choose to be a survivor. And then there are those who choose to conquer.**
+**It's not who you are that holds you back, it's who you think you're not.**
 
 Anonymous
