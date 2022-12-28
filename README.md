@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To be calm is the highest achievement of the self.**
+**I have found that if you love life, life will love you back.**
 
-Zen Proverb
+Arthur Rubinstein
