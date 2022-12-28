@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You miss 100% of the shots you don't take.**
+**Don't be afraid to start over. It's a brand new opportunity to rebuild what you truly want.**
 
-Wayne Gretzky
+Anonymous
