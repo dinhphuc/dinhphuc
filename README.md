@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Just when the caterpillar thought the world was ending, it turned into a butterfly.**
+**Everytime you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**
 
-Anonymous
+Mother Teresa
