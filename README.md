@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be who you are and say what you feel because those who mind don't matter and those who matter don't mind.**
+**Just when the caterpillar thought the world was ending, it turned into a butterfly.**
 
-Dr. Seuss
+Anonymous
