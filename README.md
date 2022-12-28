@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't use up creativity. The more you use, the more you have.**
+**Every day may not be good... but there's something good in every day.**
 
-Maya Angelou
+Alice Morse Earle
