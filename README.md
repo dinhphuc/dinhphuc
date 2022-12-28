@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't fall, how are you going to know what getting up feels like?**
+**Start doing things to make you happy.**
 
-Stephen Curry
+Reyna Biddy
