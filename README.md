@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If it is important to you, you will find a way. If not, you'll find an excuse.**
+**If you don't fall, how are you going to know what getting up feels like?**
 
-Anonymous
+Stephen Curry
