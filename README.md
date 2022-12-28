@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The vision of a champion is someone who is bent over, drenched in sweat, at the point of exhaustion when no one else is watching.**
+**To be calm is the highest achievement of the self.**
 
-Jim Afremow
+Zen Proverb
