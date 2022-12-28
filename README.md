@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Running is therapy anyone can afford.**
+**The beginning is the most important part of the work.**
 
-Toni Sorenson
+Plato
