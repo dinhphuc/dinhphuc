@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We can't be brave without fear.**
+**Be yourself. An original is so much better than a copy.**
 
-Muhammad Ali
+Anonymous
