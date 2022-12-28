@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The beginning is the most important part of the work.**
+**Live for yourself and don't ever stop.**
 
-Plato
+John Tew
