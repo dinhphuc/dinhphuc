@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live for yourself and don't ever stop.**
+**Each time I thought I had achieved my life's purpose, I discovered it was only another step in my journey.**
 
-John Tew
+Muhammad Ali
