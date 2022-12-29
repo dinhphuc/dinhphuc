@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be happy, be yourself, and if others don't like it, let them be. Your happiness is a choice. Life isn't about pleasing everybody, so do you.**
+**Be helpful. When you see a person without a smile, give them yours.**
 
-Anonymous
+Zig Ziglar
