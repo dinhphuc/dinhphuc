@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I know I have unlimited potential to create the life of my dreams.**
+**If you cannot do great things, do small things in a great way.**
 
-Anonymous
+Napoleon Hill
