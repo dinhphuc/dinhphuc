@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You walk through life much easier with a smile on your face.**
+**Life is ours to be spent, not to be saved.**
 
-Sweet Paul
+D. H. Lawrence
