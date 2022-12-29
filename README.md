@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hustle until your haters ask if you are hiring.**
+**Nothing will work unless you do.**
 
-Anonymous
+Maya Angelou
