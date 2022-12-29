@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good friends are like stars. You don't always see them, but you know they're always there.**
+**Be who you are and say what you feel because those who mind don't matter and those who matter don't mind.**
 
-Christy Evans
+Dr. Seuss
