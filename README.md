@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I am happy because I'm grateful. I choose to be grateful. That gratitude allows me to be happy.**
+**The reputation of a thousand years may be determined by the conduct of one hour.**
 
-Will Arnett
+Japanese Proverb
