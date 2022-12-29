@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be helpful. When you see a person without a smile, give them yours.**
+**To fall in love with yourself is the first secret to happiness.**
 
-Zig Ziglar
+Robert Morley
