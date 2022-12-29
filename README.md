@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Words should be weighed, not counted.**
+**You walk through life much easier with a smile on your face.**
 
-Yiddish Proverb
+Sweet Paul
