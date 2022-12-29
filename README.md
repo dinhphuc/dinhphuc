@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence.**
+**Words may inspire but only action creates change.**
 
-Helen Keller
+Simon Sinek
