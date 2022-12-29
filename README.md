@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your body is made to move so move it.**
+**Make the most of yourself....for that is all there is of you.**
 
-Toni Sorenson
+Ralph Waldo Emerson
