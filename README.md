@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Many of life's failures are people who did not realize how close they were to success when they gave up.**
+**Successful people build each other up. They inspire, motivate, and push each other. Unsuccessful people just hate, blame, and complain.**
 
-Thomas A. Edison
+Anonymous
