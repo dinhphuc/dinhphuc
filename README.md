@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is made of ever so many partings welded together.**
+**Setting goals is the first step into turning the invisible into the visible.**
 
-Charles Dickens
+Tony Robbins
