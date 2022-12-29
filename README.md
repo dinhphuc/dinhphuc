@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing will work unless you do.**
+**Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence.**
 
-Maya Angelou
+Helen Keller
