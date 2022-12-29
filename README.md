@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you cannot do great things, do small things in a great way.**
+**No one controls how I feel about myself, but me.**
 
-Napoleon Hill
+Anonymous
