@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A runner must run with dreams in his heart.**
+**Your body is made to move so move it.**
 
-Emil Zatopek
+Toni Sorenson
