@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When it rains look for rainbows.**
+**Words should be weighed, not counted.**
 
-Oscar Wilde
+Yiddish Proverb
