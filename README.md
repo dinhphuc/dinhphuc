@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no charm equal to tenderness of heart.**
+**Education is the most powerful weapon which you can use to change the world.**
 
-Jane Austen
+Nelson Mandela
