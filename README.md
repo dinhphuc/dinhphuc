@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everytime you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**
+**Many of life's failures are people who did not realize how close they were to success when they gave up.**
 
-Mother Teresa
+Thomas A. Edison
