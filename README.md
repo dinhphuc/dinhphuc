@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life becomes easier and more beautiful when we can see the good in other people.**
+**Life isn't about waiting for the storm to pass, it's about learning how to dance in the rain.**
 
-Roy T. Bennett
+Vivian Greene
