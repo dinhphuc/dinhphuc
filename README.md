@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Words may inspire but only action creates change.**
+**You may say I'm a dreamer but I'm not the only one.**
 
-Simon Sinek
+John Lennon
