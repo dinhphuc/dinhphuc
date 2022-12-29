@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is ours to be spent, not to be saved.**
+**Good friends are like stars. You don't always see them, but you know they're always there.**
 
-D. H. Lawrence
+Christy Evans
