@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Setting goals is the first step into turning the invisible into the visible.**
+**Everything you can imagine is real.**
 
-Tony Robbins
+Pablo Picasso
