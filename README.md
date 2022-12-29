@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life isn't about waiting for the storm to pass, it's about learning how to dance in the rain.**
+**There is no charm equal to tenderness of heart.**
 
-Vivian Greene
+Jane Austen
