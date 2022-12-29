@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything you can imagine is real.**
+**If it is not right, do not do it, if it is not true, do not say it.**
 
-Pablo Picasso
+Marcus Aurelius
