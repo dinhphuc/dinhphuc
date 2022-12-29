@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be who you are and say what you feel because those who mind don't matter and those who matter don't mind.**
+**Life becomes easier and more beautiful when we can see the good in other people.**
 
-Dr. Seuss
+Roy T. Bennett
