@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To fall in love with yourself is the first secret to happiness.**
+**I know I have unlimited potential to create the life of my dreams.**
 
-Robert Morley
+Anonymous
