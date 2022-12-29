@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Education is the most powerful weapon which you can use to change the world.**
+**Life is made of ever so many partings welded together.**
 
-Nelson Mandela
+Charles Dickens
