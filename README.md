@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Make the most of yourself....for that is all there is of you.**
+**Change your thoughts and you change your world.**
 
-Ralph Waldo Emerson
+Norman Vincent Peale
