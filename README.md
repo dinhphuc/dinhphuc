@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If it is not right, do not do it, if it is not true, do not say it.**
+**Start doing things to make you happy.**
 
-Marcus Aurelius
+Reyna Biddy
