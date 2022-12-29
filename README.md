@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Change your thoughts and you change your world.**
+**If you can't stop thinking about it, don't stop working for it.**
 
-Norman Vincent Peale
+Anonymous
