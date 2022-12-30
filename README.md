@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Start where you are. Use what you have. Do what you can.**
+**The will to win means nothing without the will to prepare.**
 
-Arthur Ashe
+Juma Ikangaa
