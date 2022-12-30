@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Look for something positive in each day, even if some days you have to look a little harder.**
+**The greatest mistake you can make in life is to continually fear that you will make one.**
 
-Anonymous
+Elbert Hubbard
