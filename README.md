@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep your eyes on the stars, and your feet on the ground.**
+**When you want to succeed as bad as you want to breathe, you will be successful.**
 
-Theodore Roosevelt
+Eric Thomas
