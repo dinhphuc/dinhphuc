@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You have purpose.**
+**It feels good when you can put a smile on someone's face by simply being yourself.**
 
 Anonymous
