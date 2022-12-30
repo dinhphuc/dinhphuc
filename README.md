@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Fall seven times, stand up eight.**
+**Once you choose hope, anything's possible.**
 
-Japanese Proverb
+Christopher Reeve
