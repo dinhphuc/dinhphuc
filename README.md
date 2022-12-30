@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you are, be a good one.**
+**I will not follow where the path may lead, but I will go where there is no path, and I will leave a trail.**
 
-Abraham Lincoln
+Muriel Strode
