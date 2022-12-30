@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happens to every guy sometimes this does.**
+**Fall seven times, stand up eight.**
 
-Yoda
+Japanese Proverb
