@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only way to do great work is to love what you do.**
+**Kill them with success and bury them with a smile.**
 
-Steve Jobs
+Usain Bolt
