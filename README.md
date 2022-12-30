@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are somebody's reason to smile.**
+**'Thank you' is the best prayer that anyone could say.**
 
-Anonymous
+Alice Walker
