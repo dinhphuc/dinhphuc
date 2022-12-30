@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Control, control, you must learn control!**
+**Results happen over time, not overnight. Work hard, stay consistent, and be patient.**
 
-Yoda
+Anonymous
