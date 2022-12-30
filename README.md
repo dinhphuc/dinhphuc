@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Examine what is said, not who speaks.**
+**Teachers open the door; you enter by yourself.**
 
-Arab Proverb
+Chinese Proverb
