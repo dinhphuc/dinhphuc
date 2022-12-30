@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Get going ... walk if you have to, but finish the damned race.**
+**Are your excuses more important than your dreams?**
 
-Ron Hill
+Anonymous
