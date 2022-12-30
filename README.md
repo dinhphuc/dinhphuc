@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest mistake you can make in life is to continually fear that you will make one.**
+**Your problem isn't the problem, it's your attitude about the problem.**
 
-Elbert Hubbard
+Ann Brashares
