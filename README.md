@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No beauty shines brighter than that of a good heart.**
+**If you can dream it, then you can achieve it.**
 
-Anonymous
+Zig Ziglar
