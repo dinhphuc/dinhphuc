@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once you choose hope, anything's possible.**
+**Get going ... walk if you have to, but finish the damned race.**
 
-Christopher Reeve
+Ron Hill
