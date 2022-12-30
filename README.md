@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile, and let the world wonder why.**
+**I never dreamed about success. I worked for it.**
 
-Minnie Mouse
+Estee Lauder
