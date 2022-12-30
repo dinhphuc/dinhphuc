@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep your eyes on the stars, and your feet on the ground.**
+**There is nothing on this earth more to be prized than true friendship.**
 
-Theodore Roosevelt
+Thomas Aquinas
