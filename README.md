@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm stronger because I had to be, I'm smarter because of my mistakes, happier because of the sadness I've known, and now wiser because I learned.**
+**If you want to find happiness, find gratitude.**
 
-Anonymous
+Steve Maraboli
