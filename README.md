@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No one controls how I feel about myself, but me.**
+**Train like a silver medalist, compete like a gold.**
 
 Anonymous
