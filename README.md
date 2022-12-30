@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Are your excuses more important than your dreams?**
+**Whatever you are, be a good one.**
 
-Anonymous
+Abraham Lincoln
