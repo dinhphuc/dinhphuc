@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**'Thank you' is the best prayer that anyone could say.**
+**Start where you are. Use what you have. Do what you can.**
 
-Alice Walker
+Arthur Ashe
