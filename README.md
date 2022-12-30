@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The will to win means nothing without the will to prepare.**
+**No beauty shines brighter than that of a good heart.**
 
-Juma Ikangaa
+Anonymous
