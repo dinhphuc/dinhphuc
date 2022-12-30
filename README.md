@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Opportunities don't happen. You create them.**
+**Smile, and let the world wonder why.**
 
-Chris Grosser
+Minnie Mouse
