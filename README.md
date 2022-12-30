@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is nothing on this earth more to be prized than true friendship.**
+**Look for something positive in each day, even if some days you have to look a little harder.**
 
-Thomas Aquinas
+Anonymous
