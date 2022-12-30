@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I will not follow where the path may lead, but I will go where there is no path, and I will leave a trail.**
+**Examine what is said, not who speaks.**
 
-Muriel Strode
+Arab Proverb
