@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The reputation of a thousand years may be determined by the conduct of one hour.**
+**You are somebody's reason to smile.**
 
-Japanese Proverb
+Anonymous
