@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can dream it, then you can achieve it.**
+**You have purpose.**
 
-Zig Ziglar
+Anonymous
