@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It feels good when you can put a smile on someone's face by simply being yourself.**
+**Instead of worrying about what you cannot control, shift your energy to what you can create.**
 
-Anonymous
+Roy T. Bennett
