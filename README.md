@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I never dreamed about success. I worked for it.**
+**Keep your eyes on the stars, and your feet on the ground.**
 
-Estee Lauder
+Theodore Roosevelt
