@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Instead of worrying about what you cannot control, shift your energy to what you can create.**
+**A leader is one who knows the way, goes the way, and shows the way.**
 
-Roy T. Bennett
+John C. Maxwell
