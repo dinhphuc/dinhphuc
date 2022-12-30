@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A leader is one who knows the way, goes the way, and shows the way.**
+**No one controls how I feel about myself, but me.**
 
-John C. Maxwell
+Anonymous
