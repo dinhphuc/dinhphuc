@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Running is therapy anyone can afford.**
+**Opportunities don't happen. You create them.**
 
-Toni Sorenson
+Chris Grosser
