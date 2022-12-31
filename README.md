@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be yourself. An original is so much better than a copy.**
+**The best way to make your dreams come true is to wake up.**
 
-Anonymous
+Paul Valery
