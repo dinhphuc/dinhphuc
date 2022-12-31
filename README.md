@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The question isn't who is going to let me; it's who is going to stop me.**
+**Life is either a daring adventure or nothing at all.**
 
-Ayn Rand
+Helen Keller
