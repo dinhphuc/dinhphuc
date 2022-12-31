@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The best way to make your dreams come true is to wake up.**
+**You yourself, as much as anybody in the entire universe, deserve your love and affection.**
 
-Paul Valery
+Buddha
