@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The first and greatest victory is to conquer self.**
+**Be yourself. An original is so much better than a copy.**
 
-Plato
+Anonymous
