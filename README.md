@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Inhale confidence. Exhale doubt.**
+**It's not about perfect. It's about effort.**
 
-Anonymous
+Jillian Michaels
