@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing builds self-esteem and self-confidence like accomplishment.**
+**Goals may give focus, but dreams give power.**
 
-Thomas Carlyle
+John Maxwell
