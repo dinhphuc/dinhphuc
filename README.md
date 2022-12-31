@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You may encounter many defeats, but you must not be defeated.**
+**The question isn't who is going to let me; it's who is going to stop me.**
 
-Maya Angelou
+Ayn Rand
