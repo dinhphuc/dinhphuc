@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is either a daring adventure or nothing at all.**
+**Every strike brings me closer to the next home run.**
 
-Helen Keller
+Babe Ruth
