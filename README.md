@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be afraid to give up the good to go for the great.**
+**Nothing builds self-esteem and self-confidence like accomplishment.**
 
-John D. Rockefeller
+Thomas Carlyle
