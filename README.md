@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you are enthusiastic about what you do, you feel this positive energy. It's very simple.**
+**Happiness is not out there, it's in you.**
 
-Paulo Coelho
+Anonymous
