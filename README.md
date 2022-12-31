@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every strike brings me closer to the next home run.**
+**We are made to persist. That's how we find out who we are.**
 
-Babe Ruth
+Tobias Wolff
