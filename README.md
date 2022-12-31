@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't get what you wish for. You get what you work for.**
+**What you're thinking is what you're becoming.**
 
-Anonymous
+Muhammad Ali
