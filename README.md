@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't sail out farther than you can row back.**
+**Are your excuses more important than your dreams?**
 
-Danish Proverb
+Anonymous
