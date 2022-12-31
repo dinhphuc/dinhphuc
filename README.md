@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Goals may give focus, but dreams give power.**
+**When you are enthusiastic about what you do, you feel this positive energy. It's very simple.**
 
-John Maxwell
+Paulo Coelho
