@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can alter mood by running.**
+**If you're offered a seat on a rocket ship, don't ask what seat! Just get on.**
 
-Tumpal Sihombing
+Sheryl Sandberg
