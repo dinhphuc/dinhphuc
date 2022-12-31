@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We are made to persist. That's how we find out who we are.**
+**Once you're beat mentally, you might as well not even go to the starting line.**
 
-Tobias Wolff
+Todd Williams
