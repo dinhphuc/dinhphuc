@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can if you think you can.**
+**You don't get what you wish for. You get what you work for.**
 
-George Reeves
+Anonymous
