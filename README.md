@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Teachers open the door; you enter by yourself.**
+**Inhale confidence. Exhale doubt.**
 
-Chinese Proverb
+Anonymous
