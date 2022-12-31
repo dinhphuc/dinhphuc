@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every day may not be good... but there's something good in every day.**
+**When it comes to success, there are no shortcuts.**
 
-Alice Morse Earle
+Bo Bennett
