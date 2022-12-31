@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can either complain about it or grind, I choose to grind.**
+**Every day may not be good... but there's something good in every day.**
 
-Kyle Vidrine
+Alice Morse Earle
