@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Are your excuses more important than your dreams?**
+**The first and greatest victory is to conquer self.**
 
-Anonymous
+Plato
