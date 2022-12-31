@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is not out there, it's in you.**
+**You can alter mood by running.**
 
-Anonymous
+Tumpal Sihombing
