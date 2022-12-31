@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're offered a seat on a rocket ship, don't ask what seat! Just get on.**
+**Cheerfulness is the very flower of health.**
 
-Sheryl Sandberg
+Anonymous
