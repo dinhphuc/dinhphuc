@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The best way to make your dreams come true is to wake up.**
+**Don't be afraid to give up the good to go for the great.**
 
-Paul Valery
+John D. Rockefeller
