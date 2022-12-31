@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You may encounter many defeats, but you must not be defeated.**
+**Choose kindness and laugh often.**
 
-Maya Angelou
+Anonymous
