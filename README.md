@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do not blame the world. Find a solution.**
+**When you stop chasing the wrong things you give the right things a chance to catch you.**
 
-Sri Chinmoy
+Anonymous
