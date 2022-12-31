@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you stop chasing the wrong things you give the right things a chance to catch you.**
+**You can either complain about it or grind, I choose to grind.**
 
-Anonymous
+Kyle Vidrine
