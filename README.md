@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Cheerfulness is the very flower of health.**
+**Don't sail out farther than you can row back.**
 
-Anonymous
+Danish Proverb
