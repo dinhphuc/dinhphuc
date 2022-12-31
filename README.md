@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not about perfect. It's about effort.**
+**The best way to make your dreams come true is to wake up.**
 
-Jillian Michaels
+Paul Valery
