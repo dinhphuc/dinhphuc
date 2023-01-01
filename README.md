@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In this life we cannot do great things. We can only do small things with great love.**
+**You cannot change the direction of the wind - only alter the angle of your sails.**
 
-Mother Teresa
+Anonymous
