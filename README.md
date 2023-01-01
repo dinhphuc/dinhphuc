@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every accomplishment begins with the decision to try.**
+**Be you. Do you. For you.**
 
 Anonymous
