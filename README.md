@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When obstacles arise, you change your direction to reach your goal, you do not change your decision to get there.**
+**In this life we cannot do great things. We can only do small things with great love.**
 
-Zig Ziglar
+Mother Teresa
