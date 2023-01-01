@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep your eyes on the stars, and your feet on the ground.**
+**All that matters is how you see yourself.**
 
-Theodore Roosevelt
+Conor McGregor
