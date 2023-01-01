@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hard times don't create heroes. It is during the hard times when the 'hero' within us is revealed.**
+**Everything that is done in this world is done by hope.**
 
-Bob Riley
+Martin Luther
