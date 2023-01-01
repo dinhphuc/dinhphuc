@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't go up to the top, you grow up to the top.**
+**Trust the process of life.**
 
-John C. Maxwell
+Anonymous
