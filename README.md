@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love the life you live. Live the life you love.**
+**A challenge lifelong it is, not to bend fear into anger.**
 
-Bob Marley
+Yoda
