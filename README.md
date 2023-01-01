@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Yesterday is history, tomorrow is a mystery, today is a gift of God, which is why we call it the present.**
+**Love the life you live. Live the life you love.**
 
-Bill Keane
+Bob Marley
