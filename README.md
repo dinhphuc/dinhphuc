@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is what comes after you stop making excuses.**
+**Every accomplishment begins with the decision to try.**
 
-Luis Galarza
+Anonymous
