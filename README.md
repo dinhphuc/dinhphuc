@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success seems to be connected with action. Successful people keep moving. They make mistakes, but they don't quit.**
+**You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously.**
 
-Conrad Hilton
+Steve Maraboli
