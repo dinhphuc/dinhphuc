@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can if you think you can.**
+**Everything will work out in the end. You don't need to know how. You just have to trust that it will.**
 
-George Reeves
+Anonymous
