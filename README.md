@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When it comes to success, there are no shortcuts.**
+**Float like a butterfly, sting like a bee.**
 
-Bo Bennett
+Muhammad Ali
