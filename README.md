@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Build your own dreams, or someone else will hire you to build theirs.**
+**I knew that if I failed I wouldn't regret that. But I would regret not trying.**
 
-Farrah Gray
+Jeff Bezos
