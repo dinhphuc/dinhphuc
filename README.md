@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Today you are you! That is truer than true! There is no one alive who is you-er than you!**
+**There are two ways of spreading light: to be the candle, or the mirror that reflects it.**
 
-Dr. Seuss
+Edith Wharton
