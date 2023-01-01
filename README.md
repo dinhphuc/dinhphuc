@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything that is done in this world is done by hope.**
+**Positive thinking will let you do everything better than negative thinking will.**
 
-Martin Luther
+Zig Ziglar
