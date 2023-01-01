@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm alone, but I'm not lonely. I like who I am. I like who I'm becoming.**
+**Confidence is the ability to feel beautiful, without needing someone to tell you.**
 
-Deena Kastor
+Anonymous
