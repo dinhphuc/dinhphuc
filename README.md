@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously.**
+**Success is what comes after you stop making excuses.**
 
-Steve Maraboli
+Luis Galarza
