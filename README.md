@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be afraid of your fears. They're not there to scare you. They're there to let you know that something is worth it.**
+**Hard times don't create heroes. It is during the hard times when the 'hero' within us is revealed.**
 
-C. JoyBell C
+Bob Riley
