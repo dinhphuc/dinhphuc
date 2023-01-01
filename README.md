@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Positive thinking will let you do everything better than negative thinking will.**
+**The secret of getting ahead is getting started.**
 
-Zig Ziglar
+Mark Twain
