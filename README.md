@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I knew that if I failed I wouldn't regret that. But I would regret not trying.**
+**When it comes to success, there are no shortcuts.**
 
-Jeff Bezos
+Bo Bennett
