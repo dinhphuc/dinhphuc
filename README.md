@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Trust the process of life.**
+**Start where you are. Use what you have. Do what you can.**
 
-Anonymous
+Arthur Ashe
