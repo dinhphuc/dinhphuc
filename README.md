@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All that matters is how you see yourself.**
+**Ask yourself: Can I give more? The answer is usually: Yes.**
 
-Conor McGregor
+Paul Tergat
