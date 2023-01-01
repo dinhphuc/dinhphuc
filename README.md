@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of getting ahead is getting started.**
+**Today you are you! That is truer than true! There is no one alive who is you-er than you!**
 
-Mark Twain
+Dr. Seuss
