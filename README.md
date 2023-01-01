@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A challenge lifelong it is, not to bend fear into anger.**
+**There is no greater miracle than our conscious efforts to become good human beings.**
 
-Yoda
+Sri Chinmoy
