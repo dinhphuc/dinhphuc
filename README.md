@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Tough times don't last. Tough people do.**
+**You don't go up to the top, you grow up to the top.**
 
-Robert H. Schuller
+John C. Maxwell
