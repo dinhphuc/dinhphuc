@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no greater miracle than our conscious efforts to become good human beings.**
+**I'm alone, but I'm not lonely. I like who I am. I like who I'm becoming.**
 
-Sri Chinmoy
+Deena Kastor
