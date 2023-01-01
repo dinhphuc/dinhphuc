@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything will work out in the end. You don't need to know how. You just have to trust that it will.**
+**Keep your eyes on the stars, and your feet on the ground.**
 
-Anonymous
+Theodore Roosevelt
