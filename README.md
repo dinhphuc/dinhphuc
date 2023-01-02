@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Running is therapy anyone can afford.**
+**The only easy day was yesterday.**
 
-Toni Sorenson
+Navy Seals
