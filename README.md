@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Find a place inside where there's joy, and the joy will burn out the pain.**
+**Happiness is when what you think, what you say, and what you do are in harmony.**
 
-Joseph Campbell
+Mahatma Gandhi
