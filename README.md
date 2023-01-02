@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Just one smile, immensely increases the beauty, of the universe.**
+**Opportunities don't happen. You create them.**
 
-Sri Chinmoy
+Chris Grosser
