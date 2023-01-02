@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Try to be a rainbow in someone's cloud.**
+**Always two there are, no more, no less. A master and an apprentice.**
 
-Maya Angelou
+Yoda
