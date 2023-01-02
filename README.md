@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Faith is taking the first step even when you don't see the whole staircase.**
+**The only time you fail is when you fall down and stay down.**
 
-Martin Luther King
+Stephen Richards
