@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't get what you wish for. You get what you work for.**
+**Live life to the fullest and focus on the positive.**
 
-Anonymous
+Matt Cameron
