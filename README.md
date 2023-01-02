@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to achieve greatness, stop asking for permission.**
+**You only live once, but if you do it right, once is enough.**
 
-Anonymous
+Mae West
