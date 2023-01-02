@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Open your eyes and notice the beauty of this wonderful world.**
+**Running is therapy anyone can afford.**
 
-Anonymous
+Toni Sorenson
