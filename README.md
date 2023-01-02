@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One conquers the world by conquering himself.**
+**Everything that is done in this world is done by hope.**
 
-Zeno of Citium
+Martin Luther
