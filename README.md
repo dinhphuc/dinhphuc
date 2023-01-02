@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love isn't something you find. Love is something that finds you.**
+**Today is a beautiful day and I will attract good things into my life.**
 
-Loretta Young
+Anonymous
