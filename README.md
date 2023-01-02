@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody who ever gave their best regretted it.**
+**Open your eyes and notice the beauty of this wonderful world.**
 
-George Halas
+Anonymous
