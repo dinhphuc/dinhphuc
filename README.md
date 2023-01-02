@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You need to spend time crawling alone through shadows to truly appreciate what it is to stand in the sun.**
+**Just one smile, immensely increases the beauty, of the universe.**
 
-Shaun Hick
+Sri Chinmoy
