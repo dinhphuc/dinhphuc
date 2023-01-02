@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We must embrace pain and burn it as fuel for our journey.**
+**You need to spend time crawling alone through shadows to truly appreciate what it is to stand in the sun.**
 
-Kenji Miyazawa
+Shaun Hick
