@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Float like a butterfly, sting like a bee. The hands can't hit what the eyes can't see.**
+**When you feel like giving up, that's when you need to dig deep and push through your self doubt and weaknesses.**
 
-Muhammad Ali
+Anonymous
