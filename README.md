@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't regret the past, just learn from it.**
+**You don't get what you wish for. You get what you work for.**
 
-Ben Ipock
+Anonymous
