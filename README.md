@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In this life we cannot do great things. We can only do small things with great love.**
+**When you want to talk about who made me, you talk to me. Who made me is ME.**
 
-Mother Teresa
+Muhammad Ali
