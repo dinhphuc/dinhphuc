@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only time you fail is when you fall down and stay down.**
+**Find a place inside where there's joy, and the joy will burn out the pain.**
 
-Stephen Richards
+Joseph Campbell
