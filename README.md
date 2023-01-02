@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is when what you think, what you say, and what you do are in harmony.**
+**In this life we cannot do great things. We can only do small things with great love.**
 
-Mahatma Gandhi
+Mother Teresa
