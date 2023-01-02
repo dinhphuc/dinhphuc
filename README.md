@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When someone told me I lived in a fantasy land, I nearly fell off my unicorn.**
+**Float like a butterfly, sting like a bee. The hands can't hit what the eyes can't see.**
 
-Anonymous
+Muhammad Ali
