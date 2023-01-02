@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Choose kindness and laugh often.**
+**Every accomplishment begins with the decision to try.**
 
 Anonymous
