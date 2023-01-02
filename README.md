@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To handle yourself, use your head; to handle others, use your heart.**
+**When someone told me I lived in a fantasy land, I nearly fell off my unicorn.**
 
-Eleanor Roosevelt
+Anonymous
