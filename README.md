@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything that is done in this world is done by hope.**
+**Losers quit when they're tired. Winners quit when they've won.**
 
-Martin Luther
+Anonymous
