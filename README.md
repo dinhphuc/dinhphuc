@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you want to talk about who made me, you talk to me. Who made me is ME.**
+**To handle yourself, use your head; to handle others, use your heart.**
 
-Muhammad Ali
+Eleanor Roosevelt
