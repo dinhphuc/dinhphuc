@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Losers quit when they're tired. Winners quit when they've won.**
+**People who make you feel better about yourself when you're sad are so important.**
 
 Anonymous
