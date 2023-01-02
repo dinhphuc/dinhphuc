@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile, and let the world wonder why.**
+**Love isn't something you find. Love is something that finds you.**
 
-Minnie Mouse
+Loretta Young
