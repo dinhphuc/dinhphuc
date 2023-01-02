@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always two there are, no more, no less. A master and an apprentice.**
+**Nobody who ever gave their best regretted it.**
 
-Yoda
+George Halas
