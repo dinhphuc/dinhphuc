@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Today is a beautiful day and I will attract good things into my life.**
+**If you want to achieve greatness, stop asking for permission.**
 
 Anonymous
