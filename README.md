@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You only live once, but if you do it right, once is enough.**
+**Choose kindness and laugh often.**
 
-Mae West
+Anonymous
