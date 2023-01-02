@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest ability as humans is not to change the world; but to change ourselves.**
+**Try to be a rainbow in someone's cloud.**
 
-Mahatma Gandhi
+Maya Angelou
