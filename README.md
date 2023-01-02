@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The purpose of our lives is to be happy.**
+**Faith is taking the first step even when you don't see the whole staircase.**
 
-Dalai Lama
+Martin Luther King
