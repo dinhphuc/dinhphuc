@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only easy day was yesterday.**
+**Look in the mirror. That's your competition.**
 
-Navy Seals
+John Assaraf
