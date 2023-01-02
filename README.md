@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Look in the mirror. That's your competition.**
+**Don't regret the past, just learn from it.**
 
-John Assaraf
+Ben Ipock
