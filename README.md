@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every accomplishment begins with the decision to try.**
+**Our greatest ability as humans is not to change the world; but to change ourselves.**
 
-Anonymous
+Mahatma Gandhi
