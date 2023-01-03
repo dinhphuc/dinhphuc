@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.**
+**Failure is simply the opportunity to begin again. Except this time more intelligently.**
 
-William Arthur Ward
+Henry Ford
