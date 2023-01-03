@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only time you fail is when you fall down and stay down.**
+**Nothing builds self-esteem and self-confidence like accomplishment.**
 
-Stephen Richards
+Thomas Carlyle
