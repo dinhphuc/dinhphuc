@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between the impossible and the possible lies in a person's determination.**
+**There are no mistakes, only lessons. Growth is a process of trial and error.**
 
-Tommy Lasorda
+Anonymous
