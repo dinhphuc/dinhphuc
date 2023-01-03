@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is too short to spend it at war with yourself.**
+**Everytime you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**
 
-Anonymous
+Mother Teresa
