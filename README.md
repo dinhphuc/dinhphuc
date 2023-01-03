@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The comeback is always stronger than the setback.**
+**A house is made of bricks and beams. A home is made of hopes and dreams.**
 
 Anonymous
