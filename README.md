@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.**
+**To know the road ahead, ask those coming back.**
 
-Napoleon Hill
+Chinese Proverb
