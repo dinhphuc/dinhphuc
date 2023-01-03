@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Make the most of yourself....for that is all there is of you.**
+**Life is trying things to see if they work.**
 
-Ralph Waldo Emerson
+Ray Bradbury
