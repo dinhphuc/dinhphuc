@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure is simply the opportunity to begin again. Except this time more intelligently.**
+**You can't use up creativity. The more you use, the more you have.**
 
-Henry Ford
+Maya Angelou
