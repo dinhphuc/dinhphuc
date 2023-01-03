@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There's no shortage of remarkable ideas, what's missing is the will to execute them.**
+**Life is too short to spend it at war with yourself.**
 
-Seth Godin
+Anonymous
