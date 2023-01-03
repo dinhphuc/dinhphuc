@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is trying things to see if they work.**
+**The only time you fail is when you fall down and stay down.**
 
-Ray Bradbury
+Stephen Richards
