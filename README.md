@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Well I am here to tell you that one of the best ways to make a difference, is by sharing a smile and radiating good positive energy.**
+**Instead of worrying about what you cannot control, shift your energy to what you can create.**
 
-Anonymous
+Roy T. Bennett
