@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how old I get, the race remains one of life's most rewarding experiences.**
+**Be aware as often as possible of the great transformation process you are going through.**
 
-George Sheehan
+Anonymous
