@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no cosmetic for beauty like happiness.**
+**It is not human nature to enjoy what we get with no effort.**
 
-Maria Mitchell
+Sri Chinmoy
