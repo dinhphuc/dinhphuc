@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It takes courage to grow up and become who you really are.**
+**Start by doing what's necessary; then do what's possible; and suddenly you are doing the impossible.**
 
-E.E. Cummings
+Francis of Assisi
