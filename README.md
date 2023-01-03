@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Laugh. It's free medicine you don't need insurance for.**
+**Make the most of yourself....for that is all there is of you.**
 
-Anonymous
+Ralph Waldo Emerson
