@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not human nature to enjoy what we get with no effort.**
+**There's no shortage of remarkable ideas, what's missing is the will to execute them.**
 
-Sri Chinmoy
+Seth Godin
