@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live life to the fullest and focus on the positive.**
+**No matter how old I get, the race remains one of life's most rewarding experiences.**
 
-Matt Cameron
+George Sheehan
