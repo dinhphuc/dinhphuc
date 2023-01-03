@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good friends are like stars. You don't always see them, but you know they're always there.**
+**Don't wait around for other people to be happy for you. Any happiness you get, you've got to make yourself.**
 
-Christy Evans
+Alice Walker
