@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Start by doing what's necessary; then do what's possible; and suddenly you are doing the impossible.**
+**Start doing things to make you happy.**
 
-Francis of Assisi
+Reyna Biddy
