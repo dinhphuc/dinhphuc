@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Start doing things to make you happy.**
+**One who moves a mountain begins by carrying away small stones.**
 
-Reyna Biddy
+Confucius
