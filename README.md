@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't use up creativity. The more you use, the more you have.**
+**Never give up. You only get one life. Go for it.**
 
-Maya Angelou
+Richard E. Grant
