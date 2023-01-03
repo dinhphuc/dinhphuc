@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Instead of worrying about what you cannot control, shift your energy to what you can create.**
+**You fail because you don't believe.**
 
-Roy T. Bennett
+Yoda
