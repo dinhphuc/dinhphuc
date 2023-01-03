@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live life to the fullest and focus on the positive.**
+**Strength grows in the moments when you think you can't go on but you keep going anyway.**
 
-Matt Cameron
+Anonymous
