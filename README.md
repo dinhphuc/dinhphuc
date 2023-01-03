@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hope never abandons you, you abandon it.**
+**Good friends are like stars. You don't always see them, but you know they're always there.**
 
-George Weinberg
+Christy Evans
