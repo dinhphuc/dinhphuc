@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be aware as often as possible of the great transformation process you are going through.**
+**The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.**
 
-Anonymous
+William Arthur Ward
