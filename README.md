@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A house is made of bricks and beams. A home is made of hopes and dreams.**
+**Hope never abandons you, you abandon it.**
 
-Anonymous
+George Weinberg
