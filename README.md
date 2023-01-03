@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To know the road ahead, ask those coming back.**
+**Laugh. It's free medicine you don't need insurance for.**
 
-Chinese Proverb
+Anonymous
