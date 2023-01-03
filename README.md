@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A positive attitude causes a chain reaction of positive thoughts, events, and outcomes. It is a catalyst, and it sparks extraordinary results.**
+**Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.**
 
-Wade Boggs
+Napoleon Hill
