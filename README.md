@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up. You only get one life. Go for it.**
+**If you're presenting yourself with confidence, you can pull off pretty much anything.**
 
-Richard E. Grant
+Katy Perry
