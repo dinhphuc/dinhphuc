@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You fail because you don't believe.**
+**Live life to the fullest and focus on the positive.**
 
-Yoda
+Matt Cameron
