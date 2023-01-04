@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are positive, you'll see opportunities instead of obstacles.**
+**Champions play to win. Failure is just feedback. There's everything to gain by trying your best.**
 
-Widad Akrawi
+Jim Afremow
