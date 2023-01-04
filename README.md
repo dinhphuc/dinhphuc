@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength does not come from physical capacity. It comes from an indomitable will.**
+**Whoever loves much, performs much, and can accomplish much, and what is done in love is done well.**
 
-Mahatma Gandhi
+Vincent van Gogh
