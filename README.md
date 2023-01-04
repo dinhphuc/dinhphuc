@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Being optimistic really has nothing to do with happiness, it's just taking whatever life chucks at you and not letting it break you down.**
+**An inch of gold can't buy an inch of time.**
 
-Anonymous
+Chinese Proverb
