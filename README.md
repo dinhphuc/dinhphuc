@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happens to every guy sometimes this does.**
+**Always believe that something wonderful is about to happen.**
 
-Yoda
+Anonymous
