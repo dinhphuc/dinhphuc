@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is never fair, and perhaps it is a good thing for most of us that it is not.**
+**If you want your dinner, don't insult the cook.**
 
-Oscar Wilde
+Chinese Proverb
