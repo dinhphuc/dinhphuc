@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We don't develop courage by being happy every day. We develop it by surviving difficult times and challenging adversity.**
+**Happens to every guy sometimes this does.**
 
-Barbara De Angelis
+Yoda
