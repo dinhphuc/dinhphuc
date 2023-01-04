@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It makes a big difference in your life when you stay positive.**
+**Only a life lived for others is a life worthwhile.**
 
-Ellen DeGeneres
+Albert Einstein
