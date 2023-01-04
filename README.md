@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm not telling you it is going to be easy, I'm telling you it's going to be worth it.**
+**Move fast and break things. If you are not breaking things, you are not moving fast enough.**
 
-Art Williams
+Mark Zuckerberg
