@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The sweat. The time. The devotion. It pays off.**
+**You walk through life much easier with a smile on your face.**
 
-Anonymous
+Sweet Paul
