@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are stronger than you think.**
+**Live for yourself and don't ever stop.**
 
-Anonymous
+John Tew
