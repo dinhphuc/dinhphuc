@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You walk through life much easier with a smile on your face.**
+**Not all those who wander are lost.**
 
-Sweet Paul
+J. R. R. Tolkien
