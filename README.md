@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Today, give a stranger one of your smiles. It might be the only sunshine they see all day.**
+**Life is never fair, and perhaps it is a good thing for most of us that it is not.**
 
-H. Jackson Brown Jr
+Oscar Wilde
