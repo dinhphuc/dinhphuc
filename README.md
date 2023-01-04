@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be happy not because everything is good, but because you can see the good side of everything.**
+**Happens to every guy sometimes this does.**
 
-Anonymous
+Yoda
