@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No one is perfect - that's why pencils have erasers.**
+**Be happy not because everything is good, but because you can see the good side of everything.**
 
-Wolfgang Riebe
+Anonymous
