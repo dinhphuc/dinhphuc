@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Not all those who wander are lost.**
+**You are so much more than what you are going through.**
 
-J. R. R. Tolkien
+John Tew
