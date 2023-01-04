@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**An inch of gold can't buy an inch of time.**
+**Strength does not come from physical capacity. It comes from an indomitable will.**
 
-Chinese Proverb
+Mahatma Gandhi
