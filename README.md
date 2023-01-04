@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Successful people have fear, successful people have doubts, and successful people have worries. They just don't let these feelings stop them.**
+**You are stronger than you think.**
 
-T. Harv Eker
+Anonymous
