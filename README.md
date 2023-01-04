@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live for yourself and don't ever stop.**
+**Today, give a stranger one of your smiles. It might be the only sunshine they see all day.**
 
-John Tew
+H. Jackson Brown Jr
