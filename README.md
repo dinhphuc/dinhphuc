@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whoever loves much, performs much, and can accomplish much, and what is done in love is done well.**
+**No one is perfect - that's why pencils have erasers.**
 
-Vincent van Gogh
+Wolfgang Riebe
