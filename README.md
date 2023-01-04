@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only a life lived for others is a life worthwhile.**
+**Being entirely honest with oneself is a good exercise.**
 
-Albert Einstein
+Sigmund Freud
