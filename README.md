@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Move fast and break things. If you are not breaking things, you are not moving fast enough.**
+**If you are positive, you'll see opportunities instead of obstacles.**
 
-Mark Zuckerberg
+Widad Akrawi
