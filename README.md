@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everytime you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**
+**Don't wait around for other people to be happy for you. Any happiness you get, you've got to make yourself.**
 
-Mother Teresa
+Alice Walker
