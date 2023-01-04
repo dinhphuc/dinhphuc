@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always believe that something wonderful is about to happen.**
+**Build your own dreams, or someone else will hire you to build theirs.**
 
-Anonymous
+Farrah Gray
