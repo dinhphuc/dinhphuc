@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm too grateful to be hateful. I am too blessed to be stressed.**
+**The greatest mistake you can make in life is to continually fear that you will make one.**
 
-El DeBarge
+Elbert Hubbard
