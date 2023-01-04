@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm too grateful to be hateful. I am too blessed to be stressed.**
+**Keep your face always toward the sunshine - and shadows will fall behind you.**
 
-El DeBarge
+Walt Whitman
