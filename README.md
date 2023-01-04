@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Champions play to win. Failure is just feedback. There's everything to gain by trying your best.**
+**It makes a big difference in your life when you stay positive.**
 
-Jim Afremow
+Ellen DeGeneres
