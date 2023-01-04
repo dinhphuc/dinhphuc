@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep your face always toward the sunshine - and shadows will fall behind you.**
+**When someone told me I lived in a fantasy land, I nearly fell off my unicorn.**
 
-Walt Whitman
+Anonymous
