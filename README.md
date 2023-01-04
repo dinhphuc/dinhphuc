@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want your dinner, don't insult the cook.**
+**It's not what you look at that matters, it's what you see.**
 
-Chinese Proverb
+Henry David Thoreau
