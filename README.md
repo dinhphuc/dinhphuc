@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be frightened by difficulties.**
+**I'm too grateful to be hateful. I am too blessed to be stressed.**
 
-Ryan Holiday
+El DeBarge
