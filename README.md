@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Build your own dreams, or someone else will hire you to build theirs.**
+**The sweat. The time. The devotion. It pays off.**
 
-Farrah Gray
+Anonymous
