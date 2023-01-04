@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are so much more than what you are going through.**
+**Don't be frightened by difficulties.**
 
-John Tew
+Ryan Holiday
