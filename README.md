@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Give up on being perfect and start working on becoming yourself.**
+**Victory is always possible for the person who refuses to stop fighting.**
 
-Anna Quindlen
+Napoleon Hill
