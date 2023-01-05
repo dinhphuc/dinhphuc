@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you feel like giving up, that's when you need to dig deep and push through your self doubt and weaknesses.**
+**If we feel inwardly strong, we will have no need or desire to speak ill of others.**
 
-Anonymous
+Sri Chinmoy
