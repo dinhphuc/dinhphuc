@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure is simply the opportunity to begin again. Except this time more intelligently.**
+**Be a voice not an echo.**
 
-Henry Ford
+Anonymous
