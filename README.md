@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is the secret to all beauty. There is no beauty without happiness.**
+**Being deeply loved by someone gives you strength, while loving someone deeply gives you courage.**
 
-Christian Dior
+Lao-Tzu
