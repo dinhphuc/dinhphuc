@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Goals may give focus, but dreams give power.**
+**Be strong when you are weak, brave when you are scared, and humble when you are victorious.**
 
-John Maxwell
+Anonymous
