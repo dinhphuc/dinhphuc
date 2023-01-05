@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be a voice not an echo.**
+**When you feel like giving up, that's when you need to dig deep and push through your self doubt and weaknesses.**
 
 Anonymous
