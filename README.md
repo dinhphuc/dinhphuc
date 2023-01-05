@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I find that the harder I work, the more luck I seem to have.**
+**Being entirely honest with oneself is a good exercise.**
 
-Thomas Jefferson
+Sigmund Freud
