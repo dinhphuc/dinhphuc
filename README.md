@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything will work out in the end. You don't need to know how. You just have to trust that it will.**
+**You will be blessed the moment you realize you already are.**
 
-Anonymous
+Bryant Mcgill
