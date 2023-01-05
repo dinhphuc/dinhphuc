@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I am not a product of my circumstances. I am a product of my decisions.**
+**Our greatest weakness lies in giving up. The most certain way to succeed is to just try one more time.**
 
-Stephen Covey
+Thomas Edison
