@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Being deeply loved by someone gives you strength, while loving someone deeply gives you courage.**
+**Failure is simply the opportunity to begin again. Except this time more intelligently.**
 
-Lao-Tzu
+Henry Ford
