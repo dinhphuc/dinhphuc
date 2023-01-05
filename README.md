@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Passion first and everything will fall into place.**
+**The things you regret most in life are the risks you didn't take.**
 
-Holly Holm
+Anonymous
