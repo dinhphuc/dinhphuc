@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest weakness lies in giving up. The most certain way to succeed is to just try one more time.**
+**If you look the right way, you can see that the whole world is a garden.**
 
-Thomas Edison
+Frances Hodgson Burnett
