@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The things you regret most in life are the risks you didn't take.**
+**Give up on being perfect and start working on becoming yourself.**
 
-Anonymous
+Anna Quindlen
