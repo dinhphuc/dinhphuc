@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The struggle you're in today is developing the strength you need tomorrow.**
+**Passion first and everything will fall into place.**
 
-Robert Tew
+Holly Holm
