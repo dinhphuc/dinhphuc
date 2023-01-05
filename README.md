@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you dare to dream, dare to follow that dream; dare to suffer through the pain, sacrifice, self-doubts and friction from the world.**
+**When you don't talk, there's a lot of stuff that ends up not getting said.**
 
-Laura Schlessinger
+Catherine Gilbert Murdock
