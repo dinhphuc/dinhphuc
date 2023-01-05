@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The absence of adversity is an indicator that my goals aren't significant enough.**
+**The beginning is the most important part of the work.**
 
-Clint Bruce
+Plato
