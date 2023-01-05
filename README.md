@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you look the right way, you can see that the whole world is a garden.**
+**When you dare to dream, dare to follow that dream; dare to suffer through the pain, sacrifice, self-doubts and friction from the world.**
 
-Frances Hodgson Burnett
+Laura Schlessinger
