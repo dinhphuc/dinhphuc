@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**'Thank you' is the best prayer that anyone could say.**
+**No matter how much it hurts, hold your head up and keep going.**
 
-Alice Walker
+Anonymous
