@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you look the right way, you can see that the whole world is a garden.**
+**Many of life's failures are people who did not realize how close they were to success when they gave up.**
 
-Frances Hodgson Burnett
+Thomas A. Edison
