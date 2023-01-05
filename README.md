@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember the entrance to the sanctuary is inside you.**
+**We can complain because rose bushes have thorns, or rejoice because thorns have roses.**
 
-Rumi
+Alphonse Karr
