@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will be blessed the moment you realize you already are.**
+**I find that the harder I work, the more luck I seem to have.**
 
-Bryant Mcgill
+Thomas Jefferson
