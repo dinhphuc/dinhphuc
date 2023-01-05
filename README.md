@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Victory is always possible for the person who refuses to stop fighting.**
+**Do what makes you happy.**
 
-Napoleon Hill
+Rachel Ann Nunes
