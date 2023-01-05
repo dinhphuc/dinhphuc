@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If we feel inwardly strong, we will have no need or desire to speak ill of others.**
+**I am not a product of my circumstances. I am a product of my decisions.**
 
-Sri Chinmoy
+Stephen Covey
