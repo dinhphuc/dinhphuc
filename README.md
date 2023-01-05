@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how much it hurts, hold your head up and keep going.**
+**Happiness is the secret to all beauty. There is no beauty without happiness.**
 
-Anonymous
+Christian Dior
