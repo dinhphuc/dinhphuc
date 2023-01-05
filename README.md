@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do what makes you happy.**
+**The absence of adversity is an indicator that my goals aren't significant enough.**
 
-Rachel Ann Nunes
+Clint Bruce
