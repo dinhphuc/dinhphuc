@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can if you think you can.**
+**The struggle you're in today is developing the strength you need tomorrow.**
 
-George Reeves
+Robert Tew
