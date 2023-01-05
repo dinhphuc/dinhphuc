@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Simple to open a shop; another thing to keep it open.**
+**If you look the right way, you can see that the whole world is a garden.**
 
-Chinese Proverb
+Frances Hodgson Burnett
