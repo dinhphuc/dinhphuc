@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not what you look at that matters, it's what you see.**
+**You can if you think you can.**
 
-Henry David Thoreau
+George Reeves
