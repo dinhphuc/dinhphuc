@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you don't talk, there's a lot of stuff that ends up not getting said.**
+**Do all things with love.**
 
-Catherine Gilbert Murdock
+Og Mandino
