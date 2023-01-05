@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We can complain because rose bushes have thorns, or rejoice because thorns have roses.**
+**Everything will work out in the end. You don't need to know how. You just have to trust that it will.**
 
-Alphonse Karr
+Anonymous
