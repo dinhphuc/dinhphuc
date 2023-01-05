@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The beginning is the most important part of the work.**
+**Remember the entrance to the sanctuary is inside you.**
 
-Plato
+Rumi
