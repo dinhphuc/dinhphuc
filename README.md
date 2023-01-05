@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be strong when you are weak, brave when you are scared, and humble when you are victorious.**
+**'Thank you' is the best prayer that anyone could say.**
 
-Anonymous
+Alice Walker
