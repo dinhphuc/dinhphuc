@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When obstacles arise, you change your direction to reach your goal, you do not change your decision to get there.**
+**Positive anything is better than negative nothing.**
 
-Zig Ziglar
+Elbert Hubbard
