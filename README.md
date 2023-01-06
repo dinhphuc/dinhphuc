@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I survived because the fire inside me burned brighter than the fire around me.**
+**Happiness is letting go of what you think your life is supposed to look like and enjoying it for everything that it is.**
 
-Joshua Graham
+Mandy Hale
