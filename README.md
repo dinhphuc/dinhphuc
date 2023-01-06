@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In life, many things do not go according to plan. If you fall, get back up.**
+**Think well of all, be patient with all, and try to find the good in all.**
 
-Anonymous
+Muhammad Ali
