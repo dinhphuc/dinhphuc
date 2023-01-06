@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Attitude will always define who we are in life.**
+**Winning is fun, but those moments that you can touch someone's life in a very positive way are better.**
 
-Mark A. Brennan
+Tim Howard
