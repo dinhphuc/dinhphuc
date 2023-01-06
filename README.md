@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Measure a thousand times and cut once.**
+**I have learned over the years that when one's mind is made up, this diminishes fear.**
 
-Turkish Proverb
+Rosa Parks
