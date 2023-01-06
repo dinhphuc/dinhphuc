@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is letting go of what you think your life is supposed to look like and enjoying it for everything that it is.**
+**If you want to achieve greatness, stop asking for permission.**
 
-Mandy Hale
+Anonymous
