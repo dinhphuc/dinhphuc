@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I was angry that I had no shoes. Then I met a man who had no feet.**
+**Life becomes easier and more beautiful when we can see the good in other people.**
 
-Chinese Proverb
+Roy T. Bennett
