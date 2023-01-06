@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no hope at all.**
+**Kill them with success and bury them with a smile.**
 
-Dale Carnegie
+Usain Bolt
