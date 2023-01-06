@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The first duty of love is to listen.**
+**I don't count my sit-ups; I only start counting when it starts hurting because they're the only ones that count.**
 
-Paul Tillich
+Muhammad Ali
