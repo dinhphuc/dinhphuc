@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of change is to focus all of your energy, not on fighting the old, but on building the new.**
+**We are what we repeatedly do. Excellence, then, is not an act, but a habit.**
 
-Socrates
+Aristotle
