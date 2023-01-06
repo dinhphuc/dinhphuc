@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Positive anything is better than negative nothing.**
+**Whatever happens, just keep smiling and lose yourself in love.**
 
-Elbert Hubbard
+Rumi
