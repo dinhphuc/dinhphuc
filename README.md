@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You may encounter many defeats, but you must not be defeated.**
+**If you want it, you'll find a way. If you don't, you'll find an excuse.**
 
-Maya Angelou
+Anonymous
