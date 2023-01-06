@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you want to succeed as bad as you want to breathe, you will be successful.**
+**I survived because the fire inside me burned brighter than the fire around me.**
 
-Eric Thomas
+Joshua Graham
