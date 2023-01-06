@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We are what we repeatedly do. Excellence, then, is not an act, but a habit.**
+**You may encounter many defeats, but you must not be defeated.**
 
-Aristotle
+Maya Angelou
