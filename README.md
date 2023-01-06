@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life becomes easier and more beautiful when we can see the good in other people.**
+**The secret of change is to focus all of your energy, not on fighting the old, but on building the new.**
 
-Roy T. Bennett
+Socrates
