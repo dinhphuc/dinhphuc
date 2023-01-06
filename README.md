@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always believe that something wonderful is about to happen.**
+**When something is important enough, you do it even if the odds are not in your favor.**
 
-Anonymous
+Elon Musk
