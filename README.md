@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Winning is fun, but those moments that you can touch someone's life in a very positive way are better.**
+**In life, many things do not go according to plan. If you fall, get back up.**
 
-Tim Howard
+Anonymous
