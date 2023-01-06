@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Kill them with success and bury them with a smile.**
+**Accept yourself, love yourself, and keep moving forward.**
 
-Usain Bolt
+Roy T. Bennett
