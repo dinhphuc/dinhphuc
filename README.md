@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever happens, just keep smiling and lose yourself in love.**
+**Sometimes your joy is the source of your smile, but sometimes your smile can be the source of your joy.**
 
-Rumi
+Thich Nhat Hanh
