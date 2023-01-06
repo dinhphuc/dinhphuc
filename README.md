@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When something is important enough, you do it even if the odds are not in your favor.**
+**For every minute you are angry you lose sixty seconds of happiness.**
 
-Elon Musk
+Ralph Waldo Emerson
