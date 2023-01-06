@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing is more beautiful than the smile that has struggled through the tears.**
+**Always believe that something wonderful is about to happen.**
 
-Demi Lovato
+Anonymous
