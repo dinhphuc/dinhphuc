@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Accept yourself, love yourself, and keep moving forward.**
+**Nothing is more beautiful than the smile that has struggled through the tears.**
 
-Roy T. Bennett
+Demi Lovato
