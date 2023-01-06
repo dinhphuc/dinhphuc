@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Think well of all, be patient with all, and try to find the good in all.**
+**Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no hope at all.**
 
-Muhammad Ali
+Dale Carnegie
