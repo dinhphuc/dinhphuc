@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Winning is fun, but those moments that you can touch someone's life in a very positive way are better.**
+**The first duty of love is to listen.**
 
-Tim Howard
+Paul Tillich
