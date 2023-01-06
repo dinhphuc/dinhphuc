@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**For every minute you are angry you lose sixty seconds of happiness.**
+**Measure a thousand times and cut once.**
 
-Ralph Waldo Emerson
+Turkish Proverb
