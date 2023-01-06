@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When it rains look for rainbows.**
+**When you want to talk about who made me, you talk to me. Who made me is ME.**
 
-Oscar Wilde
+Muhammad Ali
