@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Winning is fun, but those moments that you can touch someone's life in a very positive way are better.**
+**I was angry that I had no shoes. Then I met a man who had no feet.**
 
-Tim Howard
+Chinese Proverb
