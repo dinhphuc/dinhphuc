@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you want to talk about who made me, you talk to me. Who made me is ME.**
+**With virtue, you can't be completely poor; without it, you can't be truly rich.**
 
-Muhammad Ali
+Chinese Proverb
