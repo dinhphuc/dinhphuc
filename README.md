@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I have learned over the years that when one's mind is made up, this diminishes fear.**
+**It takes courage to grow up and become who you really are.**
 
-Rosa Parks
+E.E. Cummings
