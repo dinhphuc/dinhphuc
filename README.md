@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile in the mirror. Do that every morning and you'll start to see a big difference in your life.**
+**When you want to succeed as bad as you want to breathe, you will be successful.**
 
-Yoko Ono
+Eric Thomas
