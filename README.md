@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how tough it may get, never give up on yourself or you will look back and regret it.**
+**Measure a thousand times and cut once.**
 
-Anonymous
+Turkish Proverb
