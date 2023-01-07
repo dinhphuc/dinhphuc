@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**That is bad news... if you do not believe in yourself.**
+**Don't regret the past, just learn from it.**
 
-Master Oogway
+Ben Ipock
