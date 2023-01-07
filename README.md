@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Beauty begins the moment you decide to be yourself.**
+**If you don't like something, change it. If you can't change it, change your attitude.**
 
-Coco Chanel
+Maya Angelou
