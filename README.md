@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up. Keep going.**
+**You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously.**
 
-Anonymous
+Steve Maraboli
