@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I am not a product of my circumstances. I am a product of my decisions.**
+**Hardships often prepare ordinary people for an extraordinary destiny.**
 
-Stephen Covey
+C.S. Lewis
