@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Alone, we can do so little; together we can do so much.**
+**The secret of getting ahead is getting started.**
 
-Helen Keller
+Mark Twain
