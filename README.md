@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Replace those thoughts of worry with thoughts of hope, faith, and victory.**
+**I've never let anyone talk me into not believing in myself.**
 
-Joel Osteen
+Muhammad Ali
