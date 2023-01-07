@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Two wrongs don't make a right.**
+**What keeps me going is goals.**
 
-English Proverb
+Muhammad Ali
