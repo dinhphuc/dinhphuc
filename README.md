@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only those who dare to fail greatly can ever achieve greatly.**
+**Be tolerant with others and strict with yourself.**
 
-Robert F. Kennedy
+Marcus Aurelius
