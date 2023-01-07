@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't like something, change it. If you can't change it, change your attitude.**
+**All you need is love.**
 
-Maya Angelou
+The Beatles
