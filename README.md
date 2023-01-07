@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously.**
+**Replace those thoughts of worry with thoughts of hope, faith, and victory.**
 
-Steve Maraboli
+Joel Osteen
