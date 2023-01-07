@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once you're beat mentally, you might as well not even go to the starting line.**
+**That is bad news... if you do not believe in yourself.**
 
-Todd Williams
+Master Oogway
