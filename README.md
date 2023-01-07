@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**People are just as happy as they make up their minds to be.**
+**Once you're beat mentally, you might as well not even go to the starting line.**
 
-Abraham Lincoln
+Todd Williams
