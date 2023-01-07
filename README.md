@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Winners make a habit of manufacturing their own positive expectations in advance of the event.**
+**There are no secrets to success. It is the result of preparation, hard work, and learning from failure.**
 
-Brian Tracy
+Colin Powell
