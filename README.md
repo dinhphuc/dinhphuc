@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not what you look at that matters, it's what you see.**
+**If you can't stop thinking about it, don't stop working for it.**
 
-Henry David Thoreau
+Anonymous
