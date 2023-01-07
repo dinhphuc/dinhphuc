@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Another day another blessing.**
+**No one controls how I feel about myself, but me.**
 
 Anonymous
