@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hardships often prepare ordinary people for an extraordinary destiny.**
+**Winners make a habit of manufacturing their own positive expectations in advance of the event.**
 
-C.S. Lewis
+Brian Tracy
