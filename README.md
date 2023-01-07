@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All you need is love.**
+**It's not what you look at that matters, it's what you see.**
 
-The Beatles
+Henry David Thoreau
