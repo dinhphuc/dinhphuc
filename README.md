@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The will to win means nothing without the will to prepare.**
+**And if you want to have a day filled with joy, love, and excitement, it is vital that you fill yourself with positivity so you can radiate good energy.**
 
-Juma Ikangaa
+Anonymous
