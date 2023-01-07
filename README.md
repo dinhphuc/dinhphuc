@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A champion is someone who gets up when they can't.**
+**Victory is always possible for the person who refuses to stop fighting.**
 
-Jack Dempsey
+Napoleon Hill
