@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile at strangers and you just might change a life.**
+**Just one smile, immensely increases the beauty, of the universe.**
 
-Steve Maraboli
+Sri Chinmoy
