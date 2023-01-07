@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Make today so awesome yesterday gets jealous.**
+**Smile at strangers and you just might change a life.**
 
-Anonymous
+Steve Maraboli
