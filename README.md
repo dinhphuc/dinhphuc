@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your task is not to seek for love, but merely to seek and find all the barriers within yourself that you have built against it.**
+**You don't have to be great to start. But you do have to start to be great.**
 
-Rumi
+Zig Ziglar
