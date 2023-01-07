@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not so much that I began to run, but that I continued.**
+**Staying positive does not mean that things will turn out okay. Rather it is knowing that you will be okay no matter how things turn out.**
 
-Hal Higdon
+Anonymous
