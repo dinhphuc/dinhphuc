@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A person who never made a mistake never tried anything new.**
+**Make today so awesome yesterday gets jealous.**
 
-Albert Einstein
+Anonymous
