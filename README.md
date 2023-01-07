@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A good life is doing what you love as much as you can and doing what you must as much as you should.**
+**It's not so much that I began to run, but that I continued.**
 
-Savania China
+Hal Higdon
