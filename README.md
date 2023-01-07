@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Just one smile, immensely increases the beauty, of the universe.**
+**A champion is someone who gets up when they can't.**
 
-Sri Chinmoy
+Jack Dempsey
