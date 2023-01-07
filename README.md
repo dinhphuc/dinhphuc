@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What keeps me going is goals.**
+**The will to win means nothing without the will to prepare.**
 
-Muhammad Ali
+Juma Ikangaa
