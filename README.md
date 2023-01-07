@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be tolerant with others and strict with yourself.**
+**People are just as happy as they make up their minds to be.**
 
-Marcus Aurelius
+Abraham Lincoln
