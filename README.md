@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No one controls how I feel about myself, but me.**
+**Beauty begins the moment you decide to be yourself.**
 
-Anonymous
+Coco Chanel
