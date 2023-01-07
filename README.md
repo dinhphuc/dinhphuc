@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When it's pouring rain and you're bowling along through the wet, there's satisfaction in knowing you're out there and the others aren't.**
+**Only those who dare to fail greatly can ever achieve greatly.**
 
-Peter Snell
+Robert F. Kennedy
