@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest.**
+**Two wrongs don't make a right.**
 
-Sri Chinmoy
+English Proverb
