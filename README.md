@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Make today so awesome yesterday gets jealous.**
+**I ask not for a lighter burden, but for broader shoulders.**
 
-Anonymous
+Jewish Proverb
