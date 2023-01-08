@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You have a choice. You can throw in the towel, or you can use it to wipe the sweat off of your face.**
+**If you want light to come into your life, you need to stand where it is shining.**
 
-Gatorade
+Guy Finley
