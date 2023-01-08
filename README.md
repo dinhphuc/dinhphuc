@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The absence of adversity is an indicator that my goals aren't significant enough.**
+**Happy are those who take life day by day, complain very little, and are thankful for the little things in life.**
 
-Clint Bruce
+Anonymous
