@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest victory in life is to rise above the material things that we once valued most.**
+**A truly happy person is one who can enjoy the scenery when they have made a wrong turn.**
 
-Muhammad Ali
+Anonymous
