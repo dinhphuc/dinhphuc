@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't fall, how are you going to know what getting up feels like?**
+**It always seems impossible until it's done.**
 
-Stephen Curry
+Nelson Mandela
