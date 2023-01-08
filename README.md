@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want light to come into your life, you need to stand where it is shining.**
+**Someone who is busier than you is running right now.**
 
-Guy Finley
+Nike
