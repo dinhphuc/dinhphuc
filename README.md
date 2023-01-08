@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are loved.**
+**When we point to obstacles we inhibit progress. When we offer solutions we advance.**
 
-Anonymous
+Simon Sinek
