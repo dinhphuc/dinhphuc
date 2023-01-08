@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Gratitude is the sweetest thing in a seeker's life- in all human life. If there is gratitude in your heart, then there will be tremendous sweetness in your eyes.**
+**The more you praise and celebrate your life, the more there is in life to celebrate.**
 
-Sri Chinmoy
+Oprah Winfrey
