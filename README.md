@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every strike brings me closer to the next home run.**
+**I would rather die of passion than of boredom.**
 
-Babe Ruth
+Vincent van Gogh
