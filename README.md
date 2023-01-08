@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are not willing to risk the usual, you will have to settle for the ordinary.**
+**Count your age by friends, not years. Count your life by smiles, not tears.**
 
-Jim Rohn
+John Lennon
