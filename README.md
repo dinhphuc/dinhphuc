@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The positive thinker sees the invisible, feels the intangible, and achieves the impossible.**
+**The greatest victory in life is to rise above the material things that we once valued most.**
 
-Winston Churchill
+Muhammad Ali
