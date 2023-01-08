@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It always seems impossible until it's done.**
+**I would rather die of passion than of boredom.**
 
-Nelson Mandela
+Vincent van Gogh
