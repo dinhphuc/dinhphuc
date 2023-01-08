@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I would rather die of passion than of boredom.**
+**Difficulty is what wakes up the genius.**
 
-Vincent van Gogh
+Nassim Nicholas Taleb
