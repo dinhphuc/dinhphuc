@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Count your age by friends, not years. Count your life by smiles, not tears.**
+**You're going to go through tough times - that's life. But I say, 'Nothing happens to you, it happens for you.' See the positive in negative events.**
 
-John Lennon
+Joel Osteen
