@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything you need to accomplish your goals is already in you.**
+**If you are not willing to risk the usual, you will have to settle for the ordinary.**
 
-Anonymous
+Jim Rohn
