@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Move fast and break things. If you are not breaking things, you are not moving fast enough.**
+**Being deeply loved by someone gives you strength, while loving someone deeply gives you courage.**
 
-Mark Zuckerberg
+Lao-Tzu
