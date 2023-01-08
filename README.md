@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I would rather die of passion than of boredom.**
+**Certain things catch your eye, but pursue only those that capture the heart.**
 
-Vincent van Gogh
+Ancient Indian Proverb
