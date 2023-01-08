@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You're going to go through tough times - that's life. But I say, 'Nothing happens to you, it happens for you.' See the positive in negative events.**
+**When things are bad, remember: it won't always be this way. Take one day at a time.**
 
-Joel Osteen
+Anonymous
