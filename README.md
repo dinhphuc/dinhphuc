@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not about perfect. It's about effort.**
+**The absence of adversity is an indicator that my goals aren't significant enough.**
 
-Jillian Michaels
+Clint Bruce
