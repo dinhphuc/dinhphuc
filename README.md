@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Being deeply loved by someone gives you strength, while loving someone deeply gives you courage.**
+**There are two days in the year that we can not do anything, yesterday and tomorrow.**
 
-Lao-Tzu
+Mahatma Gandhi
