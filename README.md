@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I think that the good and the great are only separated by the willingness to sacrifice.**
+**You have purpose.**
 
-Kareem Abdul-Jabbar
+Anonymous
