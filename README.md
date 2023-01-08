@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The more you praise and celebrate your life, the more there is in life to celebrate.**
+**It's not about perfect. It's about effort.**
 
-Oprah Winfrey
+Jillian Michaels
