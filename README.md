@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A truly happy person is one who can enjoy the scenery when they have made a wrong turn.**
+**Champions keep playing until they get it right.**
 
-Anonymous
+Billie Jean King
