@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is either a daring adventure or nothing at all.**
+**Move fast and break things. If you are not breaking things, you are not moving fast enough.**
 
-Helen Keller
+Mark Zuckerberg
