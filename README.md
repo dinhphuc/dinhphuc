@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Difficulty is what wakes up the genius.**
+**I don't aspire to be like other driver. I aspire to be unique.**
 
-Nassim Nicholas Taleb
+Lewis Hamilton
