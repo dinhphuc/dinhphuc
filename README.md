@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When we point to obstacles we inhibit progress. When we offer solutions we advance.**
+**Everything you need to accomplish your goals is already in you.**
 
-Simon Sinek
+Anonymous
