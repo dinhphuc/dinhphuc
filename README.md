@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of getting ahead is getting started.**
+**Life is either a daring adventure or nothing at all.**
 
-Mark Twain
+Helen Keller
