@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Someone who is busier than you is running right now.**
+**Every strike brings me closer to the next home run.**
 
-Nike
+Babe Ruth
