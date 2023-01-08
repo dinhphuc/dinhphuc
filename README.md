@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No act of kindness, no matter how small, is ever wasted.**
+**You are loved.**
 
-Aesop
+Anonymous
