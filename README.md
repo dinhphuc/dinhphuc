@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A challenge lifelong it is, not to bend fear into anger.**
+**There is no charm equal to tenderness of heart.**
 
-Yoda
+Jane Austen
