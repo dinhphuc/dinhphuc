@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A challenge lifelong it is, not to bend fear into anger.**
+**I think that the good and the great are only separated by the willingness to sacrifice.**
 
-Yoda
+Kareem Abdul-Jabbar
