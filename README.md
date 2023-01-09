@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Attitude is everything. New day, new strength, new thoughts.**
+**The best preparation for tomorrow is doing your best today.**
 
-Anonymous
+H. Jackson Brown, Jr
