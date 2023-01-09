@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When someone told me I lived in a fantasy land, I nearly fell off my unicorn.**
+**Happiness is a journey ... not a destination.**
 
-Anonymous
+Ben Sweetland
