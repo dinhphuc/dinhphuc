@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Practice 'gratitude' each day and your relationship will last forever.**
+**Life is either a daring adventure or nothing at all.**
 
-Anonymous
+Helen Keller
