@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's your place in the world; it's your life. Go on and do all you can with it, and make it the life you want to live.**
+**It's lack of faith that makes people afraid of meeting challenges, and I believed in myself.**
 
-Mae Jemison
+Muhammad Ali
