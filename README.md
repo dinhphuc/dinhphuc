@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**People are just as happy as they make up their minds to be.**
+**Confidence comes not from always being right but from not fearing to be wrong.**
 
-Abraham Lincoln
+Peter T. Mcintyre
