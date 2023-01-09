@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No man can paddle two canoes at the same time.**
+**It is not human nature to enjoy what we get with no effort.**
 
-Bantu Proverb
+Sri Chinmoy
