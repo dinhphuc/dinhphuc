@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you feel like giving up, that's when you need to dig deep and push through your self doubt and weaknesses.**
+**When someone told me I lived in a fantasy land, I nearly fell off my unicorn.**
 
 Anonymous
