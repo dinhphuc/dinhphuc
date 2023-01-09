@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You alone are enough. You have nothing to prove to anybody.**
+**I'm too grateful to be hateful. I am too blessed to be stressed.**
 
-Maya Angelou
+El DeBarge
