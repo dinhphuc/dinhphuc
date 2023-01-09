@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's lack of faith that makes people afraid of meeting challenges, and I believed in myself.**
+**Live life to the fullest and focus on the positive.**
 
-Muhammad Ali
+Matt Cameron
