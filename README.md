@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Start doing things to make you happy.**
+**We can't be brave without fear.**
 
-Reyna Biddy
+Muhammad Ali
