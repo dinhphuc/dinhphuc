@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be crazy. Be stupid. Be silly. Be weird. Be whatever. Because life is too short to be anything but happy.**
+**People are just as happy as they make up their minds to be.**
 
-Anonymous
+Abraham Lincoln
