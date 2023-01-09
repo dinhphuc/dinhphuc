@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm too grateful to be hateful. I am too blessed to be stressed.**
+**Failure will never overtake me if my determination to succeed is strong enough.**
 
-El DeBarge
+Og Mandino
