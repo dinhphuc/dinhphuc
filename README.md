@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If no mistake have you made, yet losing you are... a different game you should play.**
+**When you feel like giving up, that's when you need to dig deep and push through your self doubt and weaknesses.**
 
-Yoda
+Anonymous
