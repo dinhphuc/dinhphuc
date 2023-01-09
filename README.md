@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**He who lives in harmony with himself lives in harmony with the universe.**
+**The difference between stumbling blocks and stepping stones is how you use them.**
 
-Marcus Aurelius
+Anonymous
