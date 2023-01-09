@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**How you do anything is how you do everything.**
+**To be a great champion you must believe you are the best. If you're not, pretend you are.**
 
-T. Harv Eker
+Muhammad Ali
