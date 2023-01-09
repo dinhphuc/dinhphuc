@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We can't be brave without fear.**
+**No man can paddle two canoes at the same time.**
 
-Muhammad Ali
+Bantu Proverb
