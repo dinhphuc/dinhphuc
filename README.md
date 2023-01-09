@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not human nature to enjoy what we get with no effort.**
+**All souls are lost until they are found.**
 
-Sri Chinmoy
+Kate McGahan
