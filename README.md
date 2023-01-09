@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Try to be a rainbow in someone's cloud.**
+**Practice 'gratitude' each day and your relationship will last forever.**
 
-Maya Angelou
+Anonymous
