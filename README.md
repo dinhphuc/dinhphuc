@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is a journey ... not a destination.**
+**Try to be a rainbow in someone's cloud.**
 
-Ben Sweetland
+Maya Angelou
