@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All souls are lost until they are found.**
+**Happiness resides not in possessions, and not in gold, happiness dwells in the soul.**
 
-Kate McGahan
+Democritus
