@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure will never overtake me if my determination to succeed is strong enough.**
+**Start doing things to make you happy.**
 
-Og Mandino
+Reyna Biddy
