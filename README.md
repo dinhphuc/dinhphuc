@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The best preparation for tomorrow is doing your best today.**
+**He who lives in harmony with himself lives in harmony with the universe.**
 
-H. Jackson Brown, Jr
+Marcus Aurelius
