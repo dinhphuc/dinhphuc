@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live life to the fullest and focus on the positive.**
+**You alone are enough. You have nothing to prove to anybody.**
 
-Matt Cameron
+Maya Angelou
