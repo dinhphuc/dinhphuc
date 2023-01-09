@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Goals may give focus, but dreams give power.**
+**There are two things a person should never be angry at: what they can help, and what they cannot.**
 
-John Maxwell
+Plato
