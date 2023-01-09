@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To be a great champion you must believe you are the best. If you're not, pretend you are.**
+**When I hear somebody sigh, 'Life is hard,' I am always tempted to ask, 'Compared to what?'**
 
-Muhammad Ali
+Sydney Harris
