@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The reputation of a thousand years may be determined by the conduct of one hour.**
+**I learned that courage was not the absence of fear, but the triumph over it.**
 
-Japanese Proverb
+Nelson Mandela
