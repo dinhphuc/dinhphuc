@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence comes not from always being right but from not fearing to be wrong.**
+**Life is a succession of lessons which must be lived to be understood.**
 
-Peter T. Mcintyre
+Ralph Waldo Emerson
