@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't let the past steal your present.**
+**The reputation of a thousand years may be determined by the conduct of one hour.**
 
-Terri Guillemets
+Japanese Proverb
