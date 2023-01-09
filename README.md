@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence is the ability to feel beautiful, without needing someone to tell you.**
+**Good, better, best. Never let it rest. Until your good is better and your better is best.**
 
-Anonymous
+Tim Duncan
