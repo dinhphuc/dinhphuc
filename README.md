@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good, better, best. Never let it rest. Until your good is better and your better is best.**
+**If no mistake have you made, yet losing you are... a different game you should play.**
 
-Tim Duncan
+Yoda
