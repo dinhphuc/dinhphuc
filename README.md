@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is either a daring adventure or nothing at all.**
+**Goals may give focus, but dreams give power.**
 
-Helen Keller
+John Maxwell
