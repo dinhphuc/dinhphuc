@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When I hear somebody sigh, 'Life is hard,' I am always tempted to ask, 'Compared to what?'**
+**Choosing to be positive and having a grateful attitude is going to determine how you're going to live your life.**
 
-Sydney Harris
+Joel Osteen
