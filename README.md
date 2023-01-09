@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I learned that courage was not the absence of fear, but the triumph over it.**
+**It's your place in the world; it's your life. Go on and do all you can with it, and make it the life you want to live.**
 
-Nelson Mandela
+Mae Jemison
