@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is not out there, it's in you.**
+**How you do anything is how you do everything.**
 
-Anonymous
+T. Harv Eker
