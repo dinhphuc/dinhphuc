@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is a succession of lessons which must be lived to be understood.**
+**When the sun rises, it rises for everyone.**
 
-Ralph Waldo Emerson
+Cuban Proverb
