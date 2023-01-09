@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When the sun rises, it rises for everyone.**
+**Confidence is the ability to feel beautiful, without needing someone to tell you.**
 
-Cuban Proverb
+Anonymous
