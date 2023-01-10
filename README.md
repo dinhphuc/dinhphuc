@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nurture your mind with great thoughts, for you will never go any higher than you think.**
+**Mind what you have learned. Save you it can.**
 
-Benjamin Disraeli
+Yoda
