@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you think of yourself is much more important than what people think of you.**
+**Take it all one day at a time and enjoy the journey.**
 
-Anonymous
+Kristi Bartlett
