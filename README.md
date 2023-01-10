@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only journey is the one within.**
+**Don't worry about failure; you only have to be right once.**
 
-Rainer Maria Rilke
+Drew Houston
