@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never stop trying. Never stop believing. Never give up. Your day will come.**
+**I attribute my success to this: I never gave or took any excuse.**
 
-Anonymous
+Florence Nightingale
