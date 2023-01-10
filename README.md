@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We all make mistakes, but the winner knows that success comes from perseverance: trying, failing, learning, and doing it again until he succeeds.**
+**I'm stronger because I had to be, I'm smarter because of my mistakes, happier because of the sadness I've known, and now wiser because I learned.**
 
-Judy Ford
+Anonymous
