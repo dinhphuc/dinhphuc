@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Mind what you have learned. Save you it can.**
+**Remember that guy that gave up? Neither does anyone else.**
 
-Yoda
+Anonymous
