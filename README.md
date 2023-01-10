@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I think that the good and the great are only separated by the willingness to sacrifice.**
+**Success usually comes to those who are too busy to be looking for it.**
 
-Kareem Abdul-Jabbar
+Henry David Thoreau
