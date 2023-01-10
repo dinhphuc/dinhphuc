@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can either spend your time or invest your time.**
+**There is no charm equal to tenderness of heart.**
 
-Chip Kelly
+Jane Austen
