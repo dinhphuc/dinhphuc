@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't get what you wish for. You get what you work for.**
+**What you think of yourself is much more important than what people think of you.**
 
 Anonymous
