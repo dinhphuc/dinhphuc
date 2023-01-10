@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember that guy that gave up? Neither does anyone else.**
+**When life puts you in tough situations, don't say "why me?" say "try me".**
 
 Anonymous
