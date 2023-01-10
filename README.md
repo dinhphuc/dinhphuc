@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life without love is like a tree without blossoms or fruit.**
+**Never stop trying. Never stop believing. Never give up. Your day will come.**
 
-Khalil Gibran
+Anonymous
