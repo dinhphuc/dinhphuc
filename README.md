@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between stumbling blocks and stepping stones is how you use them.**
+**One who moves a mountain begins by carrying away small stones.**
 
-Anonymous
+Confucius
