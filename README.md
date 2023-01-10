@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success usually comes to those who are too busy to be looking for it.**
+**The only journey is the one within.**
 
-Henry David Thoreau
+Rainer Maria Rilke
