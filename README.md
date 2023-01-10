@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no charm equal to tenderness of heart.**
+**Life isn't about finding yourself. Life is about creating yourself.**
 
-Jane Austen
+George Bernard Shaw
