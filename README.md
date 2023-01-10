@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Limitations live only in our minds. But if we use our imaginations, our possibilities become limitless.**
+**I have found that if you love life, life will love you back.**
 
-Jamie Paolinetti
+Arthur Rubinstein
