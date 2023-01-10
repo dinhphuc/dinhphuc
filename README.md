@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I have found that if you love life, life will love you back.**
+**You will be exactly as happy as you decide to be.**
 
-Arthur Rubinstein
+Anonymous
