@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One who moves a mountain begins by carrying away small stones.**
+**Are your excuses more important than your dreams?**
 
-Confucius
+Anonymous
