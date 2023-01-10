@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A beautiful thing is never perfect.**
+**You don't get what you wish for. You get what you work for.**
 
-Egyptian Proverb
+Anonymous
