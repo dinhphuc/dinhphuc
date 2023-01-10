@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will be exactly as happy as you decide to be.**
+**I think that the good and the great are only separated by the willingness to sacrifice.**
 
-Anonymous
+Kareem Abdul-Jabbar
