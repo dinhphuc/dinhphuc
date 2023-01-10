@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life isn't about finding yourself. Life is about creating yourself.**
+**So certain were you. Go back and closer you must look.**
 
-George Bernard Shaw
+Yoda
