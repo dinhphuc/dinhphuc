@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You walk through life much easier with a smile on your face.**
+**Happiness can be found, even in the darkest of times, if one only remembers to turn on the light.**
 
-Sweet Paul
+Anonymous
