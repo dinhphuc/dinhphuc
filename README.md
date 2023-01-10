@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Take it all one day at a time and enjoy the journey.**
+**Kindness is free. Sprinkle that stuff everywhere.**
 
-Kristi Bartlett
+Anonymous
