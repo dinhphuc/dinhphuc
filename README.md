@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**He who always thinks it is too soon is sure to come too late.**
+**You walk through life much easier with a smile on your face.**
 
-German Proverb
+Sweet Paul
