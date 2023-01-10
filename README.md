@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In order to carry a positive action we must develop here a positive vision.**
+**Limitations live only in our minds. But if we use our imaginations, our possibilities become limitless.**
 
-Dalai Lama
+Jamie Paolinetti
