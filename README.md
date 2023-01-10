@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Kindness is free. Sprinkle that stuff everywhere.**
+**Make each day your masterpiece.**
 
-Anonymous
+John Wooden
