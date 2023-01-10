@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When life puts you in tough situations, don't say "why me?" say "try me".**
+**You can either spend your time or invest your time.**
 
-Anonymous
+Chip Kelly
