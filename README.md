@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't worry about failure; you only have to be right once.**
+**Nurture your mind with great thoughts, for you will never go any higher than you think.**
 
-Drew Houston
+Benjamin Disraeli
