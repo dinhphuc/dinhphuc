@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not how much we have, but how much we enjoy, that makes happiness.**
+**In order to carry a positive action we must develop here a positive vision.**
 
-Charles Spurgeon
+Dalai Lama
