@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Not all those who wander are lost.**
+**You are your only limit.**
 
-J. R. R. Tolkien
+Anonymous
