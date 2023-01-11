@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I attribute my success to this: I never gave or took any excuse.**
+**Not all those who wander are lost.**
 
-Florence Nightingale
+J. R. R. Tolkien
