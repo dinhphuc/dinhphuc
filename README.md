@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Think well of all, be patient with all, and try to find the good in all.**
+**The harder the struggle, the more glorious the triumph.**
 
-Muhammad Ali
+Anonymous
