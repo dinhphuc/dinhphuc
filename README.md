@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I compete only with myself, and I try to become a better human being. This is my goal.**
+**Live for yourself and don't ever stop.**
 
-Sri Chinmoy
+John Tew
