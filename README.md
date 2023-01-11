@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Peace begins When expectation ends.**
+**Champions play to win. Failure is just feedback. There's everything to gain by trying your best.**
 
-Sri Chinmoy
+Jim Afremow
