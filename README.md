@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want your dinner, don't insult the cook.**
+**I attribute my success to this: I never gave or took any excuse.**
 
-Chinese Proverb
+Florence Nightingale
