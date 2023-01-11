@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Relationships are based on four principles: respect, understanding, acceptance and appreciation.**
+**Peace begins When expectation ends.**
 
-Mahatma Gandhi
+Sri Chinmoy
