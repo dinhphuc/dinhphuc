@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If no mistake have you made, yet losing you are... a different game you should play.**
+**Give up on being perfect and start working on becoming yourself.**
 
-Yoda
+Anna Quindlen
