@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hard work beats talent when talent doesn't work hard.**
+**If no mistake have you made, yet losing you are... a different game you should play.**
 
-Tim Notke
+Yoda
