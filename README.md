@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happens to every guy sometimes this does.**
+**The greatest victory in life is to rise above the material things that we once valued most.**
 
-Yoda
+Muhammad Ali
