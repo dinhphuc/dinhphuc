@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You may encounter many defeats, but you must not be defeated.**
+**Everything you've ever wanted is on the other side of fear.**
 
-Maya Angelou
+George Addair
