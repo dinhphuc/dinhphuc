@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live as if you were to die tomorrow. Learn as if you were to live forever.**
+**Remember, most of your stress comes from the way you respond, not the way life is.**
 
-Mahatma Gandhi
+Anonymous
