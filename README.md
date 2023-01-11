@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are never too old to set another goal or dream a new dream.**
+**You are the only one who can limit your greatness.**
 
-Les Brown
+Anonymous
