@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.**
+**Hustle until your haters ask if you are hiring.**
 
-William Arthur Ward
+Anonymous
