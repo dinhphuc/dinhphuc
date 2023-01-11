@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pass on what you have learned.**
+**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
 
-Yoda
+Wayne Dyer
