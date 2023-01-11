@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing is impossible, the word itself says "I'm possible"!**
+**Your path you must decide.**
 
-Audrey Hepburn
+Yoda
