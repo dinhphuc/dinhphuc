@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The harder the struggle, the more glorious the triumph.**
+**When the 'why' is clear, the 'how' is easy.**
 
 Anonymous
