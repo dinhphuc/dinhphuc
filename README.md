@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your path you must decide.**
+**You're braver than you believe, and stronger than you seem, and smarter than you think.**
 
-Yoda
+A.A. Mine
