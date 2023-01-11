@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Alone, we can do so little; together we can do so much.**
+**I compete only with myself, and I try to become a better human being. This is my goal.**
 
-Helen Keller
+Sri Chinmoy
