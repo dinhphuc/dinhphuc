@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are the only one who can limit your greatness.**
+**You may encounter many defeats, but you must not be defeated.**
 
-Anonymous
+Maya Angelou
