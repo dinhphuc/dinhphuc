@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live for yourself and don't ever stop.**
+**One often meets his destiny on the road he takes to avoid it.**
 
-John Tew
+Master Oogway
