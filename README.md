@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest victory in life is to rise above the material things that we once valued most.**
+**Think well of all, be patient with all, and try to find the good in all.**
 
 Muhammad Ali
