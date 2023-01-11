@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When the 'why' is clear, the 'how' is easy.**
+**Nothing is impossible, the word itself says "I'm possible"!**
 
-Anonymous
+Audrey Hepburn
