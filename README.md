@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
+**I'm not telling you it is going to be easy, I'm telling you it's going to be worth it.**
 
-Wayne Dyer
+Art Williams
