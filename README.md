@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not in the stars to hold our destiny but in ourselves.**
+**Live as if you were to die tomorrow. Learn as if you were to live forever.**
 
-William Shakespeare
+Mahatma Gandhi
