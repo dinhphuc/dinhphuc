@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are your only limit.**
+**Relationships are based on four principles: respect, understanding, acceptance and appreciation.**
 
-Anonymous
+Mahatma Gandhi
