@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I attribute my success to this: I never gave or took any excuse.**
+**You can't use up creativity. The more you use, the more you have.**
 
-Florence Nightingale
+Maya Angelou
