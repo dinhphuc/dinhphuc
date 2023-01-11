@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything you've ever wanted is on the other side of fear.**
+**Hard work beats talent when talent doesn't work hard.**
 
-George Addair
+Tim Notke
