@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One often meets his destiny on the road he takes to avoid it.**
+**Happens to every guy sometimes this does.**
 
-Master Oogway
+Yoda
