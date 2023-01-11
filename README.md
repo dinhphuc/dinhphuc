@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember, most of your stress comes from the way you respond, not the way life is.**
+**Good, better, best. Never let it rest. Until your good is better and your better is best.**
 
-Anonymous
+Tim Duncan
