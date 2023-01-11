@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You're braver than you believe, and stronger than you seem, and smarter than you think.**
+**The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.**
 
-A.A. Mine
+William Arthur Ward
