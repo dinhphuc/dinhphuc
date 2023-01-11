@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't use up creativity. The more you use, the more you have.**
+**You are never too old to set another goal or dream a new dream.**
 
-Maya Angelou
+Les Brown
