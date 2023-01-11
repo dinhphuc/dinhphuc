@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Give up on being perfect and start working on becoming yourself.**
+**All our dreams can come true, if we have the courage to pursue them.**
 
-Anna Quindlen
+Walt Disney
