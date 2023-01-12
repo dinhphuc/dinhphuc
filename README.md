@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Words may inspire but only action creates change.**
+**With confidence you have won before you have started.**
 
-Simon Sinek
+Marcus Garvey
