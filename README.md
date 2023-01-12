@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**People are just as happy as they make up their minds to be.**
+**There is no cosmetic for beauty like happiness.**
 
-Abraham Lincoln
+Maria Mitchell
