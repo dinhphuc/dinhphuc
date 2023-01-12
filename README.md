@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot change the direction of the wind - only alter the angle of your sails.**
+**It's gonna get harder before it gets easier. But it will get better, you just gotta make it through the hard stuff first.**
 
 Anonymous
