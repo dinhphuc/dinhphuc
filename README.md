@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The miracle isn't that I finished. The miracle is that I had the courage to start.**
+**You cannot change the direction of the wind - only alter the angle of your sails.**
 
-John Bingham
+Anonymous
