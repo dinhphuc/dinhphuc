@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The will to win means nothing without the will to prepare.**
+**The miracle isn't that I finished. The miracle is that I had the courage to start.**
 
-Juma Ikangaa
+John Bingham
