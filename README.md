@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The one who falls and gets up is so much stronger than the one who never fell.**
+**Opportunities to find deeper powers within ourselves come when life seems most challenging.**
 
-Anonymous
+Joseph Campbell
