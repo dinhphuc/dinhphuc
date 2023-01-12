@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When it gets difficult is often right before you succeed.**
+**A beautiful thing is never perfect.**
 
-Jeffrey Walker
+Egyptian Proverb
