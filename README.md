@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's lack of faith that makes people afraid of meeting challenges, and I believed in myself.**
+**And in the end, the love you take, is equal to the love you make.**
 
-Muhammad Ali
+The Beatles
