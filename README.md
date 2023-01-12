@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Spend more of your time on what gives you energy and less of your time on what takes it away.**
+**When it gets difficult is often right before you succeed.**
 
-Anonymous
+Jeffrey Walker
