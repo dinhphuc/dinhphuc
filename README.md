@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Running is therapy anyone can afford.**
+**Examine what is said, not who speaks.**
 
-Toni Sorenson
+Arab Proverb
