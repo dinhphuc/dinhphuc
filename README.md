@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Opportunities to find deeper powers within ourselves come when life seems most challenging.**
+**If you're presenting yourself with confidence, you can pull off pretty much anything.**
 
-Joseph Campbell
+Katy Perry
