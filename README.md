@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once you replace negative thoughts with positive ones, you'll start having positive results.**
+**The will to win means nothing without the will to prepare.**
 
-Willie Nelson
+Juma Ikangaa
