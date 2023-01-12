@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The miracle isn't that I finished. The miracle is that I had the courage to start.**
+**You cannot shake hands with a clenched fist.**
 
-John Bingham
+Indira Gandhi
