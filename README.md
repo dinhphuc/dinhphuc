@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no cosmetic for beauty like happiness.**
+**Words may inspire but only action creates change.**
 
-Maria Mitchell
+Simon Sinek
