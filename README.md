@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life only comes around once, so do whatever makes you happy, and be with whoever makes you smile.**
+**Spend more of your time on what gives you energy and less of your time on what takes it away.**
 
 Anonymous
