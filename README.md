@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once you replace negative thoughts with positive ones, you'll start having positive results.**
+**People are just as happy as they make up their minds to be.**
 
-Willie Nelson
+Abraham Lincoln
