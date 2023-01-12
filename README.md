@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are no secrets to success. It is the result of preparation, hard work, and learning from failure.**
+**Don't wait around for other people to be happy for you. Any happiness you get, you've got to make yourself.**
 
-Colin Powell
+Alice Walker
