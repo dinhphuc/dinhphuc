@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are your only limit.**
+**Never give up, stay focused, stay positive, stay strong.**
 
 Anonymous
