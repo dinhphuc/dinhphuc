@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle.**
+**You may be disappointed if you fail, but you are doomed if you don't try.**
 
-Albert Einstein
+Beverly Sills
