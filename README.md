@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's gonna get harder before it gets easier. But it will get better, you just gotta make it through the hard stuff first.**
+**There is no shame in not knowing; the shame lies in not finding out.**
 
-Anonymous
+Russian Proverb
