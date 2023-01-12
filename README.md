@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You may be disappointed if you fail, but you are doomed if you don't try.**
+**Good people are like candles; they burn themselves up to give others light.**
 
-Beverly Sills
+Anonymous
