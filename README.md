@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The will to win means nothing without the will to prepare.**
+**Life only comes around once, so do whatever makes you happy, and be with whoever makes you smile.**
 
-Juma Ikangaa
+Anonymous
