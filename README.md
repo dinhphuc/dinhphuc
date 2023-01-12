@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good people are like candles; they burn themselves up to give others light.**
+**The will to win means nothing without the will to prepare.**
 
-Anonymous
+Juma Ikangaa
