@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**With confidence you have won before you have started.**
+**Limitations live only in our minds. But if we use our imaginations, our possibilities become limitless.**
 
-Marcus Garvey
+Jamie Paolinetti
