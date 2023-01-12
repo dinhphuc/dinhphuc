@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A beautiful thing is never perfect.**
+**Fall seven times, stand up eight.**
 
-Egyptian Proverb
+Japanese Proverb
