@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing is impossible, the word itself says "I'm possible"!**
+**People are just as happy as they make up their minds to be.**
 
-Audrey Hepburn
+Abraham Lincoln
