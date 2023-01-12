@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot shake hands with a clenched fist.**
+**It is not the strongest of the species that survive, nor the most intelligent, but the one most responsive to change.**
 
-Indira Gandhi
+Charles Darwin
