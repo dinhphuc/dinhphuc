@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Positive thinking will let you do everything better than negative thinking will.**
+**I find that the harder I work, the more luck I seem to have.**
 
-Zig Ziglar
+Thomas Jefferson
