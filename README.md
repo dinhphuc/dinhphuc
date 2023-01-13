@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Continuous effort - not strength or intelligence - is the key to unlocking our potential.**
+**Successful people are not gifted; they just work hard, then succeed on purpose.**
 
-Liane Cardes
+G.K. Nielson
