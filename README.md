@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Two wrongs don't make a right.**
+**Shared joy is a double joy; shared sorrow is half a sorrow.**
 
-English Proverb
+Swedish Proverb
