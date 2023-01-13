@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Peace begins When expectation ends.**
+**We must embrace pain and burn it as fuel for our journey.**
 
-Sri Chinmoy
+Kenji Miyazawa
