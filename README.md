@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The one who falls and gets up is so much stronger than the one who never fell.**
+**Peace begins When expectation ends.**
 
-Anonymous
+Sri Chinmoy
