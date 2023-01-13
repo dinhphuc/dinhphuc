@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In life, many things do not go according to plan. If you fall, get back up.**
+**Confidence is something you create in yourself by believing in who you are.**
 
 Anonymous
