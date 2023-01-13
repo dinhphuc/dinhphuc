@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I find that the harder I work, the more luck I seem to have.**
+**The things you regret most in life are the risks you didn't take.**
 
-Thomas Jefferson
+Anonymous
