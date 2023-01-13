@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no shame in not knowing; the shame lies in not finding out.**
+**A secret to happiness is letting every situatiuon be what it is instead of what you think it should be.**
 
-Russian Proverb
+Anonymous
