@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live life to the fullest and focus on the positive.**
+**Continuous effort - not strength or intelligence - is the key to unlocking our potential.**
 
-Matt Cameron
+Liane Cardes
