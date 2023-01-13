@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The man who views the world at 50 the same as he did at 20 has wasted 30 years of his life.**
+**There is no shame in not knowing; the shame lies in not finding out.**
 
-Muhammad Ali
+Russian Proverb
