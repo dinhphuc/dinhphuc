@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Successful people are not gifted; they just work hard, then succeed on purpose.**
+**Do more of what lights you up and makes you feel alive. The world needs your spark.**
 
-G.K. Nielson
+Anonymous
