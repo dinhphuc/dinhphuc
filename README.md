@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Losers quit when they're tired. Winners quit when they've won.**
+**Positive thinking will let you do everything better than negative thinking will.**
 
-Anonymous
+Zig Ziglar
