@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once we accept our limits, we go beyond them.**
+**It matters not what someone is born, but what they grow to be.**
 
-Albert Einstein
+Master Oogway
