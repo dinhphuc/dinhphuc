@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence is something you create in yourself by believing in who you are.**
+**Happiness is letting go of what you think your life is supposed to look like and enjoying it for everything that it is.**
 
-Anonymous
+Mandy Hale
