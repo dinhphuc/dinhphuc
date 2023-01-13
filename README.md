@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Shared joy is a double joy; shared sorrow is half a sorrow.**
+**Once we accept our limits, we go beyond them.**
 
-Swedish Proverb
+Albert Einstein
