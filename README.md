@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A team is not a group of people that work together. A team is a group of people that trust each other.**
+**Positive thinking will let you do everything better than negative thinking will.**
 
-Simon Sinek
+Zig Ziglar
