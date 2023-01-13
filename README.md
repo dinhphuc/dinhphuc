@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No beauty shines brighter than that of a good heart.**
+**If no mistake have you made, yet losing you are... a different game you should play.**
 
-Anonymous
+Yoda
