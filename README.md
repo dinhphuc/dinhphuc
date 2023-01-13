@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It matters not what someone is born, but what they grow to be.**
+**The trick is to enjoy life. Don't wish away your days, waiting for better ones ahead.**
 
-Master Oogway
+Marjorie Pay Hinckley
