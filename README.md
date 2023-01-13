@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The things you regret most in life are the risks you didn't take.**
+**The one who falls and gets up is so much stronger than the one who never fell.**
 
 Anonymous
