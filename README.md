@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot prevent the birds of sadness from passing over your head, but you can prevent their making a nest in your hair.**
+**No beauty shines brighter than that of a good heart.**
 
-Chinese Proverb
+Anonymous
