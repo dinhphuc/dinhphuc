@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
+**In life, many things do not go according to plan. If you fall, get back up.**
 
-Wayne Dyer
+Anonymous
