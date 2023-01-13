@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're offered a seat on a rocket ship, don't ask what seat! Just get on.**
+**Live life to the fullest and focus on the positive.**
 
-Sheryl Sandberg
+Matt Cameron
