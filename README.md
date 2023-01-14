@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up, stay focused, stay positive, stay strong.**
+**Life's a journey not a race.**
 
-Anonymous
+Meir Ezra
