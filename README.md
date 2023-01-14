@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do more of what lights you up and makes you feel alive. The world needs your spark.**
+**It always seems impossible until it's done.**
 
-Anonymous
+Nelson Mandela
