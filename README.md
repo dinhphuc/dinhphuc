@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The sweat. The time. The devotion. It pays off.**
+**Dream without fear. Love without limits.**
 
-Anonymous
+Dilip Bathija
