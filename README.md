@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do not blame the world. Find a solution.**
+**Pass on what you have learned.**
 
-Sri Chinmoy
+Yoda
