@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is ours to be spent, not to be saved.**
+**I know I have unlimited potential to create the life of my dreams.**
 
-D. H. Lawrence
+Anonymous
