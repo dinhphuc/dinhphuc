@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is not something you postpone for the future; it is something you design for the present.**
+**There are only two mistakes one can make along the road to truth; not going all the way, and not starting.**
 
-Jim Rohn
+Buddha
