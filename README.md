@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Through challenge and difficulty, we learn to see life differently than before.**
+**Instead of feeding myself excuses why I can't, I give myself reasons why I can.**
 
-Auliq-Ice
+Anonymous
