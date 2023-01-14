@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are willing to do more than you are paid to do, eventually you will be paid to do more than you do.**
+**We can be who we are without the pleasures but we could not be who we are not without the hardships.**
 
 Anonymous
