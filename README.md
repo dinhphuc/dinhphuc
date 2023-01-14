@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Stop doubting yourself. Work hard and make it happen.**
+**Life is a succession of lessons which must be lived to be understood.**
 
-Anonymous
+Ralph Waldo Emerson
