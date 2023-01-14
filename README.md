@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is when what you think, what you say, and what you do are in harmony.**
+**More smiling, less worrying. More compassion, less judgment. More blessed, less stressed. More love, less hate.**
 
-Mahatma Gandhi
+Roy T. Bennett
