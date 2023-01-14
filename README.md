@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I know I have unlimited potential to create the life of my dreams.**
+**I've got nothing to do today but smile.**
 
-Anonymous
+Paul Simon
