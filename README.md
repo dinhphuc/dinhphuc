@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is a succession of lessons which must be lived to be understood.**
+**Do not blame the world. Find a solution.**
 
-Ralph Waldo Emerson
+Sri Chinmoy
