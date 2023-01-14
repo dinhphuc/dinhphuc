@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life's a journey not a race.**
+**If you're going through hell, keep going.**
 
-Meir Ezra
+Winston Churchill
