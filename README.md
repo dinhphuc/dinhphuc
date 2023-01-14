@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only thing worse than starting something and failing... is not starting something.**
+**You miss 100% of the shots you don't take.**
 
-Seth Godin
+Wayne Gretzky
