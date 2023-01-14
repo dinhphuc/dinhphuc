@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe in yourself. You are braver than you think, more talented than you know, and capable of more than you imagine.**
+**Don't think about what might go wrong. Think about what might go right.**
 
-Roy T. Bennett
+Anonymous
