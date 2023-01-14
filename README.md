@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only those who dare to fail greatly can ever achieve greatly.**
+**Like the morning sun, you too shall rise and continue to shine.**
 
-Robert F. Kennedy
+Anonymous
