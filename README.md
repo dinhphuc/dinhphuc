@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't judge each day by the harvest you reap but by the seeds that you plant.**
+**Life is ours to be spent, not to be saved.**
 
-Robert Louis Stevenson
+D. H. Lawrence
