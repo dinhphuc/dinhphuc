@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You miss 100% of the shots you don't take.**
+**Your body is made to move so move it.**
 
-Wayne Gretzky
+Toni Sorenson
