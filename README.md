@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're going through hell, keep going.**
+**No one controls how I feel about myself, but me.**
 
-Winston Churchill
+Anonymous
