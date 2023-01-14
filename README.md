@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile, and let the world wonder why.**
+**Don't judge each day by the harvest you reap but by the seeds that you plant.**
 
-Minnie Mouse
+Robert Louis Stevenson
