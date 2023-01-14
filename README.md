@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No one controls how I feel about myself, but me.**
+**Find a place inside where there's joy, and the joy will burn out the pain.**
 
-Anonymous
+Joseph Campbell
