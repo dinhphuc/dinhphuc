@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Dream without fear. Love without limits.**
+**Only those who dare to fail greatly can ever achieve greatly.**
 
-Dilip Bathija
+Robert F. Kennedy
