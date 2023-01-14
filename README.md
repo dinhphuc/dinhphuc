@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Find a place inside where there's joy, and the joy will burn out the pain.**
+**Stop doubting yourself. Work hard and make it happen.**
 
-Joseph Campbell
+Anonymous
