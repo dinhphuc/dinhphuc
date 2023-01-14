@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't think about what might go wrong. Think about what might go right.**
+**Smile, and let the world wonder why.**
 
-Anonymous
+Minnie Mouse
