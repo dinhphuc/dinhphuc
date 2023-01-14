@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
+**Never give up, stay focused, stay positive, stay strong.**
 
-Wayne Dyer
+Anonymous
