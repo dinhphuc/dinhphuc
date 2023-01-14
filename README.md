@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pass on what you have learned.**
+**Happiness is when what you think, what you say, and what you do are in harmony.**
 
-Yoda
+Mahatma Gandhi
