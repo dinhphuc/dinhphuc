@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We know what we are, but know not what we may be.**
+**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
 
-William Shakespeare
+Wayne Dyer
