@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Like the morning sun, you too shall rise and continue to shine.**
+**Once we accept our limits, we go beyond them.**
 
-Anonymous
+Albert Einstein
