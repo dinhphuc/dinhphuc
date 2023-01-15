@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good friends are all that matter.**
+**Don't let the past steal your present.**
 
-Anonymous
+Terri Guillemets
