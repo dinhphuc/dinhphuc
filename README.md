@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest glory is not in never falling, but in rising every time we fall.**
+**Don't let the silly little things steal your happiness.**
 
-Confucius
+Anonymous
