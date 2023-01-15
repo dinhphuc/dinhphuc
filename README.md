@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The harder the struggle, the more glorious the triumph.**
+**Attitude is everything. New day, new strength, new thoughts.**
 
 Anonymous
