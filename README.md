@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your body is made to move so move it.**
+**Do more of what lights you up and makes you feel alive. The world needs your spark.**
 
-Toni Sorenson
+Anonymous
