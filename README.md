@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is far better to be alone, than to be in bad company.**
+**Be patient, good things are coming your way.**
 
-George Washington
+Anonymous
