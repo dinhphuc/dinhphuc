@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Think gold and never settle for silver.**
+**Dream big. Start small. But most of all, start.**
 
-Jim Afremow
+Simon Sinek
