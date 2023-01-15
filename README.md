@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When it's pouring rain and you're bowling along through the wet, there's satisfaction in knowing you're out there and the others aren't.**
+**How you do anything is how you do everything.**
 
-Peter Snell
+T. Harv Eker
