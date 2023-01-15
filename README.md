@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All souls are lost until they are found.**
+**Hard times don't create heroes. It is during the hard times when the 'hero' within us is revealed.**
 
-Kate McGahan
+Bob Riley
