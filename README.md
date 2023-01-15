@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**He who lives in harmony with himself lives in harmony with the universe.**
+**Never let the fear of striking out keep you from playing the game.**
 
-Marcus Aurelius
+Babe Ruth
