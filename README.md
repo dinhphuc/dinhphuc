@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The harder the struggle, the more glorious the triumph.**
+**Good friends are all that matter.**
 
 Anonymous
