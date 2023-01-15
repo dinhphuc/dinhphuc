@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Make today so awesome yesterday gets jealous.**
+**A successful man is one who can lay a firm foundation with the bricks others have thrown at him.**
 
-Anonymous
+David Brinkley
