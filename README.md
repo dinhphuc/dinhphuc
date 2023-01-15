@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A successful man is one who can lay a firm foundation with the bricks others have thrown at him.**
+**It is far better to be alone, than to be in bad company.**
 
-David Brinkley
+George Washington
