@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I think that the good and the great are only separated by the willingness to sacrifice.**
+**Don't give up on yourself. You're worth it.**
 
-Kareem Abdul-Jabbar
+Anonymous
