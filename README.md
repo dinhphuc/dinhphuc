@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Dream big. Start small. But most of all, start.**
+**Smile in the mirror. Do that every morning and you'll start to see a big difference in your life.**
 
-Simon Sinek
+Yoko Ono
