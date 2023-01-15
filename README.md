@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't let the silly little things steal your happiness.**
+**Happiness resides not in possessions, and not in gold, happiness dwells in the soul.**
 
-Anonymous
+Democritus
