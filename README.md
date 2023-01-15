@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only in the darkness can you see the stars.**
+**He who lives in harmony with himself lives in harmony with the universe.**
 
-Martin Luther King, Jr.
+Marcus Aurelius
