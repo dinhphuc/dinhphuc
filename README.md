@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Use your smile to change the world; don't let the world change your smile.**
+**It only takes one person to make you happy and change your life: YOU.**
 
-Chinese proverb
+Charles Orlando
