@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be frightened by difficulties.**
+**Think gold and never settle for silver.**
 
-Ryan Holiday
+Jim Afremow
