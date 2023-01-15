@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Patience you must have, my young padawan.**
+**Kill them with success and bury them with a smile.**
 
-Yoda
+Usain Bolt
