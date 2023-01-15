@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Spend your life with people who make you smile, laugh, and feel loved.**
+**The sweat. The time. The devotion. It pays off.**
 
-Roy T. Bennett
+Anonymous
