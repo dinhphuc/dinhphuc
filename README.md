@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You may say I'm a dreamer but I'm not the only one.**
+**The harder the struggle, the more glorious the triumph.**
 
-John Lennon
+Anonymous
