@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is ours to be spent, not to be saved.**
+**You may say I'm a dreamer but I'm not the only one.**
 
-D. H. Lawrence
+John Lennon
