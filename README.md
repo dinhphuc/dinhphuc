@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be patient, good things are coming your way.**
+**Push yourself because no one else is going to do it for you.**
 
 Anonymous
