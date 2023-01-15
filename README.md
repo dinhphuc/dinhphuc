@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In a battle between elephants, the ants get squashed.**
+**Make today so awesome yesterday gets jealous.**
 
-Thai Proverb
+Anonymous
