@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hard times don't create heroes. It is during the hard times when the 'hero' within us is revealed.**
+**Spend your life with people who make you smile, laugh, and feel loved.**
 
-Bob Riley
+Roy T. Bennett
