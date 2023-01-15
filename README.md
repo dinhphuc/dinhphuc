@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never let the fear of striking out keep you from playing the game.**
+**I think that the good and the great are only separated by the willingness to sacrifice.**
 
-Babe Ruth
+Kareem Abdul-Jabbar
