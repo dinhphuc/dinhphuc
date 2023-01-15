@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your hardest times often lead to the greatest moments of your life. Keep going. Tough situations build strong people in the end.**
+**Don't be frightened by difficulties.**
 
-Roy T. Bennett
+Ryan Holiday
