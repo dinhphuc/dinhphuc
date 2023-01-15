@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**How you do anything is how you do everything.**
+**Only in the darkness can you see the stars.**
 
-T. Harv Eker
+Martin Luther King, Jr.
