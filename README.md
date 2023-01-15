@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It only takes one person to make you happy and change your life: YOU.**
+**A champion is someone who gets up when they can't.**
 
-Charles Orlando
+Jack Dempsey
