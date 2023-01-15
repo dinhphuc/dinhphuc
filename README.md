@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't let the past steal your present.**
+**In a battle between elephants, the ants get squashed.**
 
-Terri Guillemets
+Thai Proverb
