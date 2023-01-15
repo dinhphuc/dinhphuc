@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do more of what lights you up and makes you feel alive. The world needs your spark.**
+**All souls are lost until they are found.**
 
-Anonymous
+Kate McGahan
