@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Move fast and break things. If you are not breaking things, you are not moving fast enough.**
+**Life is ours to be spent, not to be saved.**
 
-Mark Zuckerberg
+D. H. Lawrence
