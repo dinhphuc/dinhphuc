@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The sweat. The time. The devotion. It pays off.**
+**Patience you must have, my young padawan.**
 
-Anonymous
+Yoda
