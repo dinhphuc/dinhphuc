@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness resides not in possessions, and not in gold, happiness dwells in the soul.**
+**Move fast and break things. If you are not breaking things, you are not moving fast enough.**
 
-Democritus
+Mark Zuckerberg
