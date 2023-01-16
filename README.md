@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything has beauty, but not everyone can see.**
+**Whether you think you can or can't, you're right.**
 
-Confucius
+Henry Ford
