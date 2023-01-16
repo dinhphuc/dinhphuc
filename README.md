@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In order to carry a positive action we must develop here a positive vision.**
+**You may say I'm a dreamer but I'm not the only one.**
 
-Dalai Lama
+John Lennon
