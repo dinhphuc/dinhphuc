@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not the mountain we conquer, but ourselves.**
+**What you choose to focus on expands and grows.**
 
-Sir Edmund Hillary
+Anonymous
