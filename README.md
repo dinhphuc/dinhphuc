@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Gratitude turns what we have into enough.**
+**Love has no age, no limit; and no death.**
 
-Anonymous
+John Galsworthy
