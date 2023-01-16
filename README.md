@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To know the road ahead, ask those coming back.**
+**Rock bottom became the solid foundation on which I rebuilt my life.**
 
-Chinese Proverb
+J.K. Rowling
