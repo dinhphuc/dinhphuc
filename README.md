@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The people who make you smile from just seeing them, those are my favorite people.**
+**Believe in yourself and you can be anything.**
 
-Koi Fresco
+Katy Perry
