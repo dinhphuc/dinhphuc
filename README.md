@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Easy choices, hard life. Hard choices, easy life.**
+**Gratitude turns what we have into enough.**
 
-Jerzy Gregorek
+Anonymous
