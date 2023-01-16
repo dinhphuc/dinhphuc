@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe in yourself and you can be anything.**
+**Success is the ability to go from one failure to another with no loss of enthusiasm.**
 
-Katy Perry
+Winston Churchill
