@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Go confidently in the direction of your dreams! Live the life you've imagined.**
+**It is not the mountain we conquer, but ourselves.**
 
-Henry David Thoreau
+Sir Edmund Hillary
