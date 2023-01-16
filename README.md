@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To be a great champion you must believe you are the best. If you're not, pretend you are.**
+**Go confidently in the direction of your dreams! Live the life you've imagined.**
 
-Muhammad Ali
+Henry David Thoreau
