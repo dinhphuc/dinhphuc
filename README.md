@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success trains. Failure complains.**
+**A little progress each day adds up to big results.**
 
-Anonymous
+Satya Nani
