@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There's no shortage of remarkable ideas, what's missing is the will to execute them.**
+**Life is what happens when you're busy making other plans.**
 
-Seth Godin
+John Lennon
