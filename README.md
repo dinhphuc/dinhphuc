@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is the ability to go from one failure to another with no loss of enthusiasm.**
+**You will never always be motivated. You have to learn to be disciplined.**
 
-Winston Churchill
+Anonymous
