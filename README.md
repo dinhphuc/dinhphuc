@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is what happens when you're busy making other plans.**
+**Nothing is impossible, the word itself says "I'm possible"!**
 
-John Lennon
+Audrey Hepburn
