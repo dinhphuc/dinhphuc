@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Build your own dreams, or someone else will hire you to build theirs.**
+**Be so happy that when others look at you they become happy too.**
 
-Farrah Gray
+Anonymous
