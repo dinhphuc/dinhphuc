@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Instead of feeding myself excuses why I can't, I give myself reasons why I can.**
+**If you want your dinner, don't insult the cook.**
 
-Anonymous
+Chinese Proverb
