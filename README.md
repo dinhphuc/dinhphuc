@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A champion is someone who gets up when they can't.**
+**To be a great champion you must believe you are the best. If you're not, pretend you are.**
 
-Jack Dempsey
+Muhammad Ali
