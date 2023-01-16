@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be patient, good things are coming your way.**
+**Everything has beauty, but not everyone can see.**
 
-Anonymous
+Confucius
