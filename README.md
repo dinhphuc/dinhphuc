@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A truly happy person is one who can enjoy the scenery when they have made a wrong turn.**
+**Whatever you do, do with all your might.**
 
-Anonymous
+Marcus Tullius Cicero
