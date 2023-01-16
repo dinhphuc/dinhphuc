@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every champion was once a contender that refused to give up.**
+**Speed is irrelevant if you are going in the wrong direction.**
 
-Rocky Balboa
+Mahatma Gandhi
