@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is better to fail in originality than to succeed in imitation.**
+**In order to carry a positive action we must develop here a positive vision.**
 
-Herman Melville
+Dalai Lama
