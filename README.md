@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whether you think you can or can't, you're right.**
+**It is better to fail in originality than to succeed in imitation.**
 
-Henry Ford
+Herman Melville
