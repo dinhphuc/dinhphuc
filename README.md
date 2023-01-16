@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The first and greatest victory is to conquer self.**
+**You matter.**
 
-Plato
+Anonymous
