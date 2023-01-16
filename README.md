@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want your dinner, don't insult the cook.**
+**Easy choices, hard life. Hard choices, easy life.**
 
-Chinese Proverb
+Jerzy Gregorek
