@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Speed is irrelevant if you are going in the wrong direction.**
+**The people who make you smile from just seeing them, those are my favorite people.**
 
-Mahatma Gandhi
+Koi Fresco
