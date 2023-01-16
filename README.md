@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love has no age, no limit; and no death.**
+**The first and greatest victory is to conquer self.**
 
-John Galsworthy
+Plato
