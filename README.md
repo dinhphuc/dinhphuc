@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing is impossible, the word itself says "I'm possible"!**
+**A truly happy person is one who can enjoy the scenery when they have made a wrong turn.**
 
-Audrey Hepburn
+Anonymous
