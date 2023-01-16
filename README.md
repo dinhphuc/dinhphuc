@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your true success in life begins only when you make the commitment to become excellent at what you do.**
+**Good judgment comes from experience, and a lot of that comes from bad judgment.**
 
-Brian Tracy
+Will Rogers
