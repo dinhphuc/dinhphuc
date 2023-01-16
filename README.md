@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The starting point of all achievement is desire.**
+**Instead of feeding myself excuses why I can't, I give myself reasons why I can.**
 
-Napoleon Hill
+Anonymous
