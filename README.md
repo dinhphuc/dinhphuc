@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't sail out farther than you can row back.**
+**Almost every successful person begins their journey with two core beliefs: the future can be better than the present, and I have the power to make it so.**
 
-Danish Proverb
+Anonymous
