@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We can't help everyone, but everyone can help someone.**
+**Champions keep playing until they get it right.**
 
-Ronald Reagan
+Billie Jean King
