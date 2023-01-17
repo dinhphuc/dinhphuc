@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only person you are destined to become is the person you decide to be.**
+**The greatest teacher, failure is.**
 
-Ralph Waldo Emerson
+Yoda
