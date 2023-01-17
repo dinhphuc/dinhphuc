@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Learning never exhausts the mind.**
+**Build your own dreams, or someone else will hire you to build theirs.**
 
-Leonardo da Vinci
+Farrah Gray
