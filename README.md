@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A winner never stops trying.**
+**Don't sail out farther than you can row back.**
 
-Tom Landry
+Danish Proverb
