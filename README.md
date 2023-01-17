@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life only comes around once, so do whatever makes you happy, and be with whoever makes you smile.**
+**A dream does not become reality through magic; it takes sweat, determination and hard work.**
 
-Anonymous
+Colin Powell
