@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm not here to be average, I'm here to be awesome.**
+**Don't be afraid to start over. It's a brand new opportunity to rebuild what you truly want.**
 
 Anonymous
