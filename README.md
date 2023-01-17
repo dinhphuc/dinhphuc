@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't have to be great to start. But you do have to start to be great.**
+**A gentle word, a kind look, a good-natured smile can work wonders and accomplish miracles.**
 
-Zig Ziglar
+William Hazlitt
