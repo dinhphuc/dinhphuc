@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Motivation is what gets you started. Habit is what keeps you going.**
+**Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence.**
 
-Jim Rohn
+Helen Keller
