@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A dream does not become reality through magic; it takes sweat, determination and hard work.**
+**Champions keep playing until they get it right.**
 
-Colin Powell
+Billie Jean King
