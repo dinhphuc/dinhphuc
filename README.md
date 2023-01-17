@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Change your thoughts and you change your world.**
+**Choose kindness and laugh often.**
 
-Norman Vincent Peale
+Anonymous
