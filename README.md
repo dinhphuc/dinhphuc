@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Choose kindness and laugh often.**
+**Happiness is the secret to all beauty. There is no beauty without happiness.**
 
-Anonymous
+Christian Dior
