@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A little progress each day adds up to big results.**
+**Find a place inside where there's joy, and the joy will burn out the pain.**
 
-Satya Nani
+Joseph Campbell
