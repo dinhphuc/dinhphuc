@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Find a place inside where there's joy, and the joy will burn out the pain.**
+**Motivation is what gets you started. Habit is what keeps you going.**
 
-Joseph Campbell
+Jim Rohn
