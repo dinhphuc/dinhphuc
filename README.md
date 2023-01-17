@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't sail out farther than you can row back.**
+**Learning never exhausts the mind.**
 
-Danish Proverb
+Leonardo da Vinci
