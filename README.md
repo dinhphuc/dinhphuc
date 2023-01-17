@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence.**
+**Change your thoughts and you change your world.**
 
-Helen Keller
+Norman Vincent Peale
