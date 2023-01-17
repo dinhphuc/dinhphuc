@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Build your own dreams, or someone else will hire you to build theirs.**
+**Don't dream of winning, train for it!**
 
-Farrah Gray
+Mo Farah
