@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If it is not right, do not do it, if it is not true, do not say it.**
+**You don't have to be great to start. But you do have to start to be great.**
 
-Marcus Aurelius
+Zig Ziglar
