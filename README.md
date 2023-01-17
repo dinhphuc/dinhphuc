@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**As I look back on my life, I realize that every time I thought I was being rejected from something good, I was actually being re-directed to something better.**
+**No matter how old I get, the race remains one of life's most rewarding experiences.**
 
-Anonymous
+George Sheehan
