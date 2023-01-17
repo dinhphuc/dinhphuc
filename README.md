@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A gentle word, a kind look, a good-natured smile can work wonders and accomplish miracles.**
+**Keep your eyes on the stars, and your feet on the ground.**
 
-William Hazlitt
+Theodore Roosevelt
