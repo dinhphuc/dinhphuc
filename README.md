@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I've got nothing to do today but smile.**
+**Life only comes around once, so do whatever makes you happy, and be with whoever makes you smile.**
 
-Paul Simon
+Anonymous
