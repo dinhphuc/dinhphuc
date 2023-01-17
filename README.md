@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Champions keep playing until they get it right.**
+**You are your only limit.**
 
-Billie Jean King
+Anonymous
