@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep your eyes on the stars, and your feet on the ground.**
+**Good friends are all that matter.**
 
-Theodore Roosevelt
+Anonymous
