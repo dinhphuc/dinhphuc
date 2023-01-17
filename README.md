@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be humble in your confidence yet courageous in your character.**
+**Work hard and be nice to people.**
 
-Melanie Koulouris
+Anonymous
