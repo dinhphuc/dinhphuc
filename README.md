@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It does not matter how slowly you go as long as you do not stop.**
+**I'm not here to be average, I'm here to be awesome.**
 
-Confucius
+Anonymous
