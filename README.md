@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is the secret to all beauty. There is no beauty without happiness.**
+**Be humble in your confidence yet courageous in your character.**
 
-Christian Dior
+Melanie Koulouris
