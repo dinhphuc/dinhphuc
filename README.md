@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Starting today, I need to forget what's gone. Appreciate what still remains and look forward to what's coming next.**
+**The only person you are destined to become is the person you decide to be.**
 
-Anonymous
+Ralph Waldo Emerson
