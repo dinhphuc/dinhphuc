@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We can complain because rose bushes have thorns, or rejoice because thorns have roses.**
+**Don't let the past steal your present.**
 
-Alphonse Karr
+Terri Guillemets
