@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Working hard for something we don't care about is called stress; working hard for somthing we love is called passion.**
+**Be so happy that when others look at you they become happy too.**
 
-Simon Sinek
+Anonymous
