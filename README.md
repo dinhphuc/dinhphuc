@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A positive attitude causes a chain reaction of positive thoughts, events, and outcomes. It is a catalyst, and it sparks extraordinary results.**
+**The reputation of a thousand years may be determined by the conduct of one hour.**
 
-Wade Boggs
+Japanese Proverb
