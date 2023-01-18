@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You matter.**
+**Don't wish it were easier. Wish you were better.**
 
-Anonymous
+Jim Rohn
