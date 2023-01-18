@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do or do not. There is no try.**
+**Are your excuses more important than your dreams?**
 
-Yoda
+Anonymous
