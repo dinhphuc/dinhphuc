@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Some people ask me 'How to be happy' and my answer is always the same: just be happy!**
+**We can complain because rose bushes have thorns, or rejoice because thorns have roses.**
 
-Anonymous
+Alphonse Karr
