@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Impossible is nothing.**
+**I attribute my success to this: I never gave or took any excuse.**
 
-Muhammad Ali
+Florence Nightingale
