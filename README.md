@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is not something ready made. It comes from your own actions.**
+**When it gets difficult is often right before you succeed.**
 
-Dalai Lama
+Jeffrey Walker
