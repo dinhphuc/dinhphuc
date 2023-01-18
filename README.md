@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The marathon can humble you.**
+**Continuous effort - not strength or intelligence - is the key to unlocking our potential.**
 
-Bill Rodgers
+Liane Cardes
