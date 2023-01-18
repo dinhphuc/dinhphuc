@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only a life lived for others is a life worthwhile.**
+**Doubt kills more dreams than failure ever will.**
 
-Albert Einstein
+Suzy Kassem
