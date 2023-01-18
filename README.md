@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are only two options regarding commitment. You're either IN or you're OUT. There is no such thing as life in-between.**
+**Continuous effort - not strength or intelligence - is the key to unlocking our potential.**
 
-Pat Riley
+Liane Cardes
