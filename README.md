@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To handle yourself, use your head; to handle others, use your heart.**
+**Whenever you see a successful person, you only see the public glories, never the private sacrifices to reach them.**
 
-Eleanor Roosevelt
+Vaibhav Shah
