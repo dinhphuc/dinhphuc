@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't wish it were easier. Wish you were better.**
+**Impossible is nothing.**
 
-Jim Rohn
+Muhammad Ali
