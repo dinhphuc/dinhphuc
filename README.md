@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Decide what matters most to you and do it.**
+**Strive not to be a success, but rather to be of value.**
 
-Anonymous
+Albert Einstein
