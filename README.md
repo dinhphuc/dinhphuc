@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strive not to be a success, but rather to be of value.**
+**To be the best, you must be able to handle the worst.**
 
-Albert Einstein
+Wilson Kanadi
