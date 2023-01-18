@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only thing necessary for the triumph of evil is for good men to do nothing.**
+**Find a place inside where there's joy, and the joy will burn out the pain.**
 
-Edmund Burke
+Joseph Campbell
