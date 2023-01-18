@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life chips away at us all. Some play the victim. Some choose to be a survivor. And then there are those who choose to conquer.**
+**Decide what matters most to you and do it.**
 
 Anonymous
