@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Doubt kills more dreams than failure ever will.**
+**Every champion was once a contender that refused to give up.**
 
-Suzy Kassem
+Rocky Balboa
