@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Are your excuses more important than your dreams?**
+**A positive attitude causes a chain reaction of positive thoughts, events, and outcomes. It is a catalyst, and it sparks extraordinary results.**
 
-Anonymous
+Wade Boggs
