@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Continuous effort - not strength or intelligence - is the key to unlocking our potential.**
+**Mind what you have learned. Save you it can.**
 
-Liane Cardes
+Yoda
