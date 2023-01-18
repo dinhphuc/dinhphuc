@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you don't talk, there's a lot of stuff that ends up not getting said.**
+**The marathon can humble you.**
 
-Catherine Gilbert Murdock
+Bill Rodgers
