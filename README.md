@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I've never let anyone talk me into not believing in myself.**
+**Some people ask me 'How to be happy' and my answer is always the same: just be happy!**
 
-Muhammad Ali
+Anonymous
