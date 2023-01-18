@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To be the best, you must be able to handle the worst.**
+**When you don't talk, there's a lot of stuff that ends up not getting said.**
 
-Wilson Kanadi
+Catherine Gilbert Murdock
