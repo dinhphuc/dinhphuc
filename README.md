@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Mind what you have learned. Save you it can.**
+**Do or do not. There is no try.**
 
 Yoda
