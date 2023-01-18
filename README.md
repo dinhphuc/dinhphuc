@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Find a place inside where there's joy, and the joy will burn out the pain.**
+**The vision of a champion is someone who is bent over, drenched in sweat, at the point of exhaustion when no one else is watching.**
 
-Joseph Campbell
+Jim Afremow
