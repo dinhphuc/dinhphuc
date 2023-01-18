@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The reputation of a thousand years may be determined by the conduct of one hour.**
+**I've never let anyone talk me into not believing in myself.**
 
-Japanese Proverb
+Muhammad Ali
