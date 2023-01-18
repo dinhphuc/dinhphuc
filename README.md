@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every champion was once a contender that refused to give up.**
+**The only thing necessary for the triumph of evil is for good men to do nothing.**
 
-Rocky Balboa
+Edmund Burke
