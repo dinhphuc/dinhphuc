@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't let the past steal your present.**
+**Working hard for something we don't care about is called stress; working hard for somthing we love is called passion.**
 
-Terri Guillemets
+Simon Sinek
