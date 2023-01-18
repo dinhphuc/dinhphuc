@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We love life, not because we are used to living but because we are used to loving.**
+**Only a life lived for others is a life worthwhile.**
 
-Friedrich Nietzsche
+Albert Einstein
