@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whoever is happy will make others happy too.**
+**Failure is not the opposite of success. Its part of success.**
 
 Anonymous
