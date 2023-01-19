@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you dare to dream, dare to follow that dream; dare to suffer through the pain, sacrifice, self-doubts and friction from the world.**
+**Whatever you hold in your mind on a consistent basis is exactly what you will experience in your life.**
 
-Laura Schlessinger
+Tony Robbins
