@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Just think how happy you would be if you lost everything you have right now, and then got it back again.**
+**Being entirely honest with oneself is a good exercise.**
 
-Frances Rodman
+Sigmund Freud
