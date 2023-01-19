@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Many of life's failures are people who did not realize how close they were to success when they gave up.**
+**It is not human nature to enjoy what we get with no effort.**
 
-Thomas A. Edison
+Sri Chinmoy
