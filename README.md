@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The first duty of love is to listen.**
+**We are what we repeatedly do. Excellence, then, is not an act, but a habit.**
 
-Paul Tillich
+Aristotle
