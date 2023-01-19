@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Make each day your masterpiece.**
+**All souls are lost until they are found.**
 
-John Wooden
+Kate McGahan
