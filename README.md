@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The starting point of all achievement is desire.**
+**Once you replace negative thoughts with positive ones, you'll start having positive results.**
 
-Napoleon Hill
+Willie Nelson
