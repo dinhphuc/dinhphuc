@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Change yourself and fortune will change.**
+**At the end of the day, you can either focus on what's tearing you apart, or you can focus on what's keeping you together.**
 
-Portuguese Proverb
+Anonymous
