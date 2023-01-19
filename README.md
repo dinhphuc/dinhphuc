@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once you choose hope, anything's possible.**
+**It always seems impossible until it's done.**
 
-Christopher Reeve
+Nelson Mandela
