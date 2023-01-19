@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Set a goal so big that you can't achieve it until you grow into the person who can.**
+**The good life is a process, not a state of being. It is a direction, not a destination.**
 
-Anonymous
+Carl Rogers
