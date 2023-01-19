@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Positive thinking will let you do everything better than negative thinking will.**
+**If you want to go fast, go alone. If you want to go far, go together.**
 
-Zig Ziglar
+African Proverb
