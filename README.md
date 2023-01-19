@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Great minds discuss ideas; average minds discuss events; small minds discuss people.**
+**Nothing will work unless you do.**
 
-Eleanor Roosevelt
+Maya Angelou
