@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Choosing to be positive and having a grateful attitude is going to determine how you're going to live your life.**
+**Positive thinking will let you do everything better than negative thinking will.**
 
-Joel Osteen
+Zig Ziglar
