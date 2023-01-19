@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure is not the opposite of success. Its part of success.**
+**Choosing to be positive and having a grateful attitude is going to determine how you're going to live your life.**
 
-Anonymous
+Joel Osteen
