@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our problems don't stem from our ignorance so much as our disobedience of that which we know to be right.**
+**Great minds discuss ideas; average minds discuss events; small minds discuss people.**
 
-Stephen Covey
+Eleanor Roosevelt
