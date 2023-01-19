@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Virtually nothing is impossible in this world if you just put your mind to it and maintain a positive attitude.**
+**Keep your eyes on the stars, and your feet on the ground.**
 
-Lou Holtz
+Theodore Roosevelt
