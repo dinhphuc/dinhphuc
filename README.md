@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I have learned over the years that when one's mind is made up, this diminishes fear.**
+**Set a goal so big that you can't achieve it until you grow into the person who can.**
 
-Rosa Parks
+Anonymous
