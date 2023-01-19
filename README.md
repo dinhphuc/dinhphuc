@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I have not failed. I've just found 10,000 ways that won't work.**
+**Work hard in silence. Let success make the noise.**
 
-Thomas Edison
+Anonymous
