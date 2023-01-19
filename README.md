@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**More smiling, less worrying. More compassion, less judgment. More blessed, less stressed. More love, less hate.**
+**Whoever is happy will make others happy too.**
 
-Roy T. Bennett
+Anonymous
