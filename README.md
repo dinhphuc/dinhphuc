@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It always seems impossible until it's done.**
+**Change yourself and fortune will change.**
 
-Nelson Mandela
+Portuguese Proverb
