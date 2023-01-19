@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Work hard in silence. Let success make the noise.**
+**I have learned over the years that when one's mind is made up, this diminishes fear.**
 
-Anonymous
+Rosa Parks
