@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once you replace negative thoughts with positive ones, you'll start having positive results.**
+**When life puts you in tough situations, don't say "why me?" say "try me".**
 
-Willie Nelson
+Anonymous
