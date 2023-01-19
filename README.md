@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**As I look back on my life, I realize that every time I thought I was being rejected from something good, I was actually being re-directed to something better.**
+**Just think how happy you would be if you lost everything you have right now, and then got it back again.**
 
-Anonymous
+Frances Rodman
