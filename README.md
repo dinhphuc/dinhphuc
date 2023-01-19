@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once you choose hope, anything's possible.**
+**The trophy is earned in the hours that no one is watching.**
 
-Christopher Reeve
+Anonymous
