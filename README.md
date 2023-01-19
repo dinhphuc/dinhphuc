@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We are what we repeatedly do. Excellence, then, is not an act, but a habit.**
+**Our problems don't stem from our ignorance so much as our disobedience of that which we know to be right.**
 
-Aristotle
+Stephen Covey
