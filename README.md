@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**At the end of the day, you can either focus on what's tearing you apart, or you can focus on what's keeping you together.**
+**When you dare to dream, dare to follow that dream; dare to suffer through the pain, sacrifice, self-doubts and friction from the world.**
 
-Anonymous
+Laura Schlessinger
