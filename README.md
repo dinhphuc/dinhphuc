@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to go fast, go alone. If you want to go far, go together.**
+**Enjoy the little things, for one day you may look back and realize they were the big things.**
 
-African Proverb
+Robert Brault
