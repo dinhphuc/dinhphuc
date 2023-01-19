@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Being entirely honest with oneself is a good exercise.**
+**Many of life's failures are people who did not realize how close they were to success when they gave up.**
 
-Sigmund Freud
+Thomas A. Edison
