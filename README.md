@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good judgment comes from experience, and a lot of that comes from bad judgment.**
+**Surround yourself with only people who are going to lift you higher.**
 
-Will Rogers
+Oprah
