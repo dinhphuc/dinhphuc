@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We become what we think about.**
+**Attitude will always define who we are in life.**
 
-Earl Nightingale
+Mark A. Brennan
