@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Someone who is busier than you is running right now.**
+**Good judgment comes from experience, and a lot of that comes from bad judgment.**
 
-Nike
+Will Rogers
