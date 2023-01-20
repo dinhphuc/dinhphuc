@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to achieve greatness, stop asking for permission.**
+**When it's pouring rain and you're bowling along through the wet, there's satisfaction in knowing you're out there and the others aren't.**
 
-Anonymous
+Peter Snell
