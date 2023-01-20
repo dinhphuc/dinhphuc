@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If your dreams don't scare you, they aren't big enough.**
+**I think that the good and the great are only separated by the willingness to sacrifice.**
 
-Muhammad Ali
+Kareem Abdul-Jabbar
