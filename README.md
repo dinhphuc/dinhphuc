@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be aware as often as possible of the great transformation process you are going through.**
+**Great minds discuss ideas; average minds discuss events; small minds discuss people.**
 
-Anonymous
+Eleanor Roosevelt
