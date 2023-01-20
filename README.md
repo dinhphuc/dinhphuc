@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can't find the opportunities you're looking for...create them.**
+**My attitude is if you push me towards a weakness, I will turn that weakness into a strength.**
 
-Anonymous
+Michael Jordan
