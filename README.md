@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Attitude will always define who we are in life.**
+**Be aware as often as possible of the great transformation process you are going through.**
 
-Mark A. Brennan
+Anonymous
