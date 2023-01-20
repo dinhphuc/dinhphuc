@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I think that the good and the great are only separated by the willingness to sacrifice.**
+**If you only do what you can do, you will never be more than you are now.**
 
-Kareem Abdul-Jabbar
+Master Oogway
