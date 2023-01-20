@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Trust the process of life.**
+**Blessed are they who see beautiful things in humble places where other people see nothing.**
 
-Anonymous
+Camille Pissaro
