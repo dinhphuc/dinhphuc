@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't go up to the top, you grow up to the top.**
+**Fall seven times, stand up eight.**
 
-John C. Maxwell
+Japanese Proverb
