@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**As long as we have hope, we have direction, the energy to move, and the map to move by.**
+**We become what we think about.**
 
-Lao Tzu
+Earl Nightingale
