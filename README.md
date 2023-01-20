@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Great minds discuss ideas; average minds discuss events; small minds discuss people.**
+**Don't sail out farther than you can row back.**
 
-Eleanor Roosevelt
+Danish Proverb
