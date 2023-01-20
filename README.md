@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good, better, best. Never let it rest. Until your good is better and your better is best.**
+**If your dreams don't scare you, they aren't big enough.**
 
-Tim Duncan
+Muhammad Ali
