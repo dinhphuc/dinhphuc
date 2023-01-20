@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Blessed are they who see beautiful things in humble places where other people see nothing.**
+**Someone who is busier than you is running right now.**
 
-Camille Pissaro
+Nike
