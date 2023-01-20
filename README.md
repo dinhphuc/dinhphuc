@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All souls are lost until they are found.**
+**Good, better, best. Never let it rest. Until your good is better and your better is best.**
 
-Kate McGahan
+Tim Duncan
