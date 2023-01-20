@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be who you are and say what you feel because those who mind don't matter and those who matter don't mind.**
+**If you want to achieve greatness, stop asking for permission.**
 
-Dr. Seuss
+Anonymous
