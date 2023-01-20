@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Fall seven times, stand up eight.**
+**Trust the process of life.**
 
-Japanese Proverb
+Anonymous
