@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you feel like giving up, that's when you need to dig deep and push through your self doubt and weaknesses.**
+**We love life, not because we are used to living but because we are used to loving.**
 
-Anonymous
+Friedrich Nietzsche
