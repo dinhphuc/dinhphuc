@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're presenting yourself with confidence, you can pull off pretty much anything.**
+**Be who you are and say what you feel because those who mind don't matter and those who matter don't mind.**
 
-Katy Perry
+Dr. Seuss
