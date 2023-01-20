@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We love life, not because we are used to living but because we are used to loving.**
+**Spend more of your time on what gives you energy and less of your time on what takes it away.**
 
-Friedrich Nietzsche
+Anonymous
