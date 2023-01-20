@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Spend more of your time on what gives you energy and less of your time on what takes it away.**
+**You don't go up to the top, you grow up to the top.**
 
-Anonymous
+John C. Maxwell
