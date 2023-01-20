@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Climb the mountains to see lowlands.**
+**If you're presenting yourself with confidence, you can pull off pretty much anything.**
 
-Chinese Proverb
+Katy Perry
