@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't sail out farther than you can row back.**
+**Where there is love there is life.**
 
-Danish Proverb
+Mahatma Gandhi
