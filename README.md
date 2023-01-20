@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Where there is love there is life.**
+**Run when you can, walk if you have to, crawl if you must; just never give up.**
 
-Mahatma Gandhi
+Dean Karnazes
