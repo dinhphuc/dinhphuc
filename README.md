@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**More smiling, less worrying. More compassion, less judgment. More blessed, less stressed. More love, less hate.**
+**If you can't find the opportunities you're looking for...create them.**
 
-Roy T. Bennett
+Anonymous
