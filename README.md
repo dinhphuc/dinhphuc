@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can either spend your time or invest your time.**
+**You're off to great places, today is your day. Your mountain is waiting, so get on your way.**
 
-Chip Kelly
+Dr. Seuss
