@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only thing necessary for the triumph of evil is for good men to do nothing.**
+**We love life, not because we are used to living but because we are used to loving.**
 
-Edmund Burke
+Friedrich Nietzsche
