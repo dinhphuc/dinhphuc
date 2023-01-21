@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Certain things catch your eye, but pursue only those that capture the heart.**
+**The first and greatest victory is to conquer self.**
 
-Ancient Indian Proverb
+Plato
