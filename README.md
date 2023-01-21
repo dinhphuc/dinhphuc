@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**And in the end, the love you take, is equal to the love you make.**
+**Kindness is free. Sprinkle that stuff everywhere.**
 
-The Beatles
+Anonymous
