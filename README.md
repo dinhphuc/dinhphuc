@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't wait around for other people to be happy for you. Any happiness you get, you've got to make yourself.**
+**And in the end, the love you take, is equal to the love you make.**
 
-Alice Walker
+The Beatles
