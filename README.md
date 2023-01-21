@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't waste a minute not being happy. If one door closes, run to the next window - or break down a door.**
+**Nothing is impossible, the word itself says "I'm possible"!**
 
-Brooke Shields
+Audrey Hepburn
