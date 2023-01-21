@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.**
+**Being happy is the greatest form of success.**
 
-Samuel Beckett
+Anonymous
