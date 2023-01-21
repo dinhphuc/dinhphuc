@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Not all those who wander are lost.**
+**A fault confessed is half redressed.**
 
-J. R. R. Tolkien
+Zulu Proverb
