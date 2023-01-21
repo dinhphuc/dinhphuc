@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I failed my way to success.**
+**Think well of all, be patient with all, and try to find the good in all.**
 
-Thomas Edison
+Muhammad Ali
