@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**With confidence you have won before you have started.**
+**You can either spend your time or invest your time.**
 
-Marcus Garvey
+Chip Kelly
