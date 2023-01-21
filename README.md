@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't go up to the top, you grow up to the top.**
+**It is far better to be alone, than to be in bad company.**
 
-John C. Maxwell
+George Washington
