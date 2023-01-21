@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A truly rich man is one whose children run into his arms when his hands are empty.**
+**Happiness resides not in possessions, and not in gold, happiness dwells in the soul.**
 
-Unknown
+Democritus
