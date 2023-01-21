@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is far better to be alone, than to be in bad company.**
+**In this life we cannot do great things. We can only do small things with great love.**
 
-George Washington
+Mother Teresa
