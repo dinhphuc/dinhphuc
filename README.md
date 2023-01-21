@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness resides not in possessions, and not in gold, happiness dwells in the soul.**
+**With confidence you have won before you have started.**
 
-Democritus
+Marcus Garvey
