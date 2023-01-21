@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You're off to great places, today is your day. Your mountain is waiting, so get on your way.**
+**Leadership is not about being in charge. Leadership is about taking care of those in your charge.**
 
-Dr. Seuss
+Simon Sinek
