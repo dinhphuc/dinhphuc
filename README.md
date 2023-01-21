@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**People will see you the way you see yourself.**
+**Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.**
 
-Sergio Diaz
+Samuel Beckett
