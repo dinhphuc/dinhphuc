@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You walk through life much easier with a smile on your face.**
+**You are somebody's reason to smile.**
 
-Sweet Paul
+Anonymous
