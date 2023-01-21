@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are somebody's reason to smile.**
+**Keep smiling, because life is a beautiful thing and there's so much to smile about.**
 
-Anonymous
+Marilyn Monroe
