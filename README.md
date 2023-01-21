@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Cheerfulness is the very flower of health.**
+**The only thing necessary for the triumph of evil is for good men to do nothing.**
 
-Anonymous
+Edmund Burke
