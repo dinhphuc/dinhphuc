@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness resides not in possessions, and not in gold, happiness dwells in the soul.**
+**You walk through life much easier with a smile on your face.**
 
-Democritus
+Sweet Paul
