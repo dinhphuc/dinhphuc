@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Leadership is not about being in charge. Leadership is about taking care of those in your charge.**
+**Today you are you! That is truer than true! There is no one alive who is you-er than you!**
 
-Simon Sinek
+Dr. Seuss
