@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Control, control, you must learn control!**
+**Not all those who wander are lost.**
 
-Yoda
+J. R. R. Tolkien
