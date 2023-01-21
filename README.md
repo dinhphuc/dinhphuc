@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everyone wants happiness. No one wants pain. But you can't have a rainbow, without a little rain.**
+**Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence.**
 
-Anonymous
+Helen Keller
