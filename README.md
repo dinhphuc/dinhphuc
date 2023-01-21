@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Doing what you like is freedom. Liking what you do is happiness.**
+**Cheerfulness is the very flower of health.**
 
 Anonymous
