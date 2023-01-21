@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Today you are you! That is truer than true! There is no one alive who is you-er than you!**
+**Don't waste a minute not being happy. If one door closes, run to the next window - or break down a door.**
 
-Dr. Seuss
+Brooke Shields
