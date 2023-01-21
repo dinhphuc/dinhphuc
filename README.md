@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A fault confessed is half redressed.**
+**You don't go up to the top, you grow up to the top.**
 
-Zulu Proverb
+John C. Maxwell
