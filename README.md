@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are somebody's reason to smile.**
+**Certain things catch your eye, but pursue only those that capture the heart.**
 
-Anonymous
+Ancient Indian Proverb
