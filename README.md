@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be strong when you are weak, brave when you are scared, and humble when you are victorious.**
+**Happiness resides not in possessions, and not in gold, happiness dwells in the soul.**
 
-Anonymous
+Democritus
