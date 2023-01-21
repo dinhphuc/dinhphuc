@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing is impossible, the word itself says "I'm possible"!**
+**Be strong when you are weak, brave when you are scared, and humble when you are victorious.**
 
-Audrey Hepburn
+Anonymous
