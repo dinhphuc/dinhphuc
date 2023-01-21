@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We love life, not because we are used to living but because we are used to loving.**
+**You are somebody's reason to smile.**
 
-Friedrich Nietzsche
+Anonymous
