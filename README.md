@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The first and greatest victory is to conquer self.**
+**I failed my way to success.**
 
-Plato
+Thomas Edison
