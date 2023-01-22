@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You yourself, as much as anybody in the entire universe, deserve your love and affection.**
+**Don't let the silly little things steal your happiness.**
 
-Buddha
+Anonymous
