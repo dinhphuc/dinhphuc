@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nurture your mind with great thoughts, for you will never go any higher than you think.**
+**Happiness is a habit - cultivate it.**
 
-Benjamin Disraeli
+Elbert Hubbard
