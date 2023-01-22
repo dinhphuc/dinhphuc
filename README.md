@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Blessings sometimes show up in unrecognizable disguises.**
+**Set a goal that makes you want to jump out of bed in the morning.**
 
-Janette Oke
+Anonymous
