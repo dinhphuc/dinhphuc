@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I am happy because I'm grateful. I choose to be grateful. That gratitude allows me to be happy.**
+**You don't want to look back and know you could have done better.**
 
-Will Arnett
+Anonymous
