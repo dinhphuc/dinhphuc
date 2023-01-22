@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't want to look back and know you could have done better.**
+**Action is the foundational key to all success.**
 
-Anonymous
+Pablo Picasso
