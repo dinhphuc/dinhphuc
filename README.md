@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pain has taught me to appreciate the things that don't hurt.**
+**Doing what you like is freedom. Liking what you do is happiness.**
 
-Melissa Tripp
+Anonymous
