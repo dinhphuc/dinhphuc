@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success usually comes to those who are too busy to be looking for it.**
+**Self-confidence is the most attractive quality a person can have. How can anyone see how great you are if you can't see it yourself?**
 
-Henry David Thoreau
+Anonymous
