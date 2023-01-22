@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only those who dare to fail greatly can ever achieve greatly.**
+**When you love what you have, you have everything you need.**
 
-Robert F. Kennedy
+Anonymous
