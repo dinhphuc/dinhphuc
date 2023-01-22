@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence comes from discipline and training.**
+**It's better to light a candle than curse the darkness.**
 
-Robert Kiyosaki
+Chinese Proverb
