@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A champion is someone who gets up when they can't.**
+**We know what we are, but know not what we may be.**
 
-Jack Dempsey
+William Shakespeare
