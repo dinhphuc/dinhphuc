@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I am an ordinary man who worked hard to develop the talent I was given. I believed in myself, and I believe in the goodness of others.**
+**A champion is someone who gets up when they can't.**
 
-Muhammad Ali
+Jack Dempsey
