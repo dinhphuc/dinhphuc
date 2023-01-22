@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest weakness lies in giving up. The most certain way to succeed is to just try one more time.**
+**If you want to go fast, go alone. If you want to go far, go together.**
 
-Thomas Edison
+African Proverb
