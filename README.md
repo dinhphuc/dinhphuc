@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot change the direction of the wind - only alter the angle of your sails.**
+**Accept yourself, love yourself, and keep moving forward.**
 
-Anonymous
+Roy T. Bennett
