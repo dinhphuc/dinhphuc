@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**And if you want to have a day filled with joy, love, and excitement, it is vital that you fill yourself with positivity so you can radiate good energy.**
+**It always seems impossible until it's done.**
 
-Anonymous
+Nelson Mandela
