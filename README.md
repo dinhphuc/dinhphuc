@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Being happy is the greatest form of success.**
+**Dream without fear. Love without limits.**
 
-Anonymous
+Dilip Bathija
