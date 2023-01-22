@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile at strangers and you just might change a life.**
+**I'm alone, but I'm not lonely. I like who I am. I like who I'm becoming.**
 
-Steve Maraboli
+Deena Kastor
