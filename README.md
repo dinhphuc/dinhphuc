@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you stumble, make it part of the dance.**
+**Only those who dare to fail greatly can ever achieve greatly.**
 
-Anonymous
+Robert F. Kennedy
