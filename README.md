@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is a habit - cultivate it.**
+**Make each day your masterpiece.**
 
-Elbert Hubbard
+John Wooden
