@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Doing what you like is freedom. Liking what you do is happiness.**
+**Success usually comes to those who are too busy to be looking for it.**
 
-Anonymous
+Henry David Thoreau
