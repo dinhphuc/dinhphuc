@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Goals may give focus, but dreams give power.**
+**I am happy because I'm grateful. I choose to be grateful. That gratitude allows me to be happy.**
 
-John Maxwell
+Will Arnett
