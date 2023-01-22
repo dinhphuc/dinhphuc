@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Set a goal that makes you want to jump out of bed in the morning.**
+**Confidence comes from discipline and training.**
 
-Anonymous
+Robert Kiyosaki
