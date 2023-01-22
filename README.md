@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's better to light a candle than curse the darkness.**
+**Happy are those who take life day by day, complain very little, and are thankful for the little things in life.**
 
-Chinese Proverb
+Anonymous
