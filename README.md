@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It always seems impossible until it's done.**
+**Winning is fun, but those moments that you can touch someone's life in a very positive way are better.**
 
-Nelson Mandela
+Tim Howard
