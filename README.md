@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I can and I will. Watch me.**
+**Blessings sometimes show up in unrecognizable disguises.**
 
-Carrie Green
+Janette Oke
