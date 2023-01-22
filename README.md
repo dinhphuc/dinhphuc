@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Accept yourself, love yourself, and keep moving forward.**
+**Nobody can bring you peace but yourself.**
 
-Roy T. Bennett
+Ralph Waldo Emerson
