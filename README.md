@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The biggest adventure you can take is to live the life of your dreams.**
+**Nobody can make you to feel inferior without your consent.**
 
-Oprah Winfrey
+Eleanor Roosevelt
