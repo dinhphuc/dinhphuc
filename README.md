@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody can make you to feel inferior without your consent.**
+**You cannot change the direction of the wind - only alter the angle of your sails.**
 
-Eleanor Roosevelt
+Anonymous
