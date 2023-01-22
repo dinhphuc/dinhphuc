@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We know what we are, but know not what we may be.**
+**Nurture your mind with great thoughts, for you will never go any higher than you think.**
 
-William Shakespeare
+Benjamin Disraeli
