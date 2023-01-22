@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Action is the foundational key to all success.**
+**Pain has taught me to appreciate the things that don't hurt.**
 
-Pablo Picasso
+Melissa Tripp
