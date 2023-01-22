@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Dream without fear. Love without limits.**
+**Feel the force!**
 
-Dilip Bathija
+Yoda
