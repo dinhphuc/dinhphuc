@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happy are those who take life day by day, complain very little, and are thankful for the little things in life.**
+**The best way to make your dreams come true is to wake up.**
 
-Anonymous
+Paul Valery
