@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Winning is fun, but those moments that you can touch someone's life in a very positive way are better.**
+**Be strong when you are weak, brave when you are scared, and humble when you are victorious.**
 
-Tim Howard
+Anonymous
