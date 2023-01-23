@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Look for something positive in each day, even if some days you have to look a little harder.**
+**There may be people that have more talent than you, but theres no excuse for anyone to work harder than you.**
 
-Anonymous
+Derek Jeter
