@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Honesty is the first chapter in the book of wisdom.**
+**I was angry that I had no shoes. Then I met a man who had no feet.**
 
-Thomas Jefferson
+Chinese Proverb
