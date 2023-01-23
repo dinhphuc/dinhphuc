@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Even the smallest shift in perspective can bring about the greatest healing.**
+**Smaller in number are we, but larger in mind.**
 
-Joshua Kai
+Yoda
