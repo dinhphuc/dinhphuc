@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our own self-esteem is something we can actually twist in whatever way we want.**
+**Never give up, stay focused, stay positive, stay strong.**
 
-Stephen Richards
+Anonymous
