@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Successful people build each other up. They inspire, motivate, and push each other. Unsuccessful people just hate, blame, and complain.**
+**It is during our darkest moments that we must focus to see the light.**
 
-Anonymous
+Aristotle Onassis
