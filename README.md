@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Are your excuses more important than your dreams?**
+**Great works are performed, not by strength, but by perseverance.**
 
-Anonymous
+Samuel Johnson
