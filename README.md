@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I was angry that I had no shoes. Then I met a man who had no feet.**
+**A secret to happiness is letting every situatiuon be what it is instead of what you think it should be.**
 
-Chinese Proverb
+Anonymous
