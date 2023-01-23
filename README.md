@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you love what you have, you have everything you need.**
+**No matter how much it hurts, hold your head up and keep going.**
 
 Anonymous
