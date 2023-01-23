@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how much it hurts, hold your head up and keep going.**
+**Honesty is the first chapter in the book of wisdom.**
 
-Anonymous
+Thomas Jefferson
