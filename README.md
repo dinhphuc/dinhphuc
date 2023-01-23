@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Until you're broken, you don't know what you're made of.**
+**Think well of all, be patient with all, and try to find the good in all.**
 
-Anonymous
+Muhammad Ali
