@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The pessimist sees difficulty in every opportunity. The optimist sees opportunity in every difficulty.**
+**Confidence comes not from always being right but from not fearing to be wrong.**
 
-Winston Churchill
+Peter T. Mcintyre
