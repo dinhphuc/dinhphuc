@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is during our darkest moments that we must focus to see the light.**
+**Confidence is not 'They will like me'. Confidence is 'I'll be fine if they don't'.**
 
-Aristotle Onassis
+Anonymous
