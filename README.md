@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up, stay focused, stay positive, stay strong.**
+**Smaller in number are we, but larger in mind.**
 
-Anonymous
+Yoda
