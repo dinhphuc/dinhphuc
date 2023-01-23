@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your body is made to move so move it.**
+**There are two things a person should never be angry at: what they can help, and what they cannot.**
 
-Toni Sorenson
+Plato
