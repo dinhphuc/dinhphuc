@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Think well of all, be patient with all, and try to find the good in all.**
+**Your body is made to move so move it.**
 
-Muhammad Ali
+Toni Sorenson
