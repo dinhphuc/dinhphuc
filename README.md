@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Go after the things you want.**
+**The pessimist sees difficulty in every opportunity. The optimist sees opportunity in every difficulty.**
 
-Simon Sinek
+Winston Churchill
