@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Great works are performed, not by strength, but by perseverance.**
+**I failed my way to success.**
 
-Samuel Johnson
+Thomas Edison
