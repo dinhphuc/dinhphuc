@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To give anything less than your best is to sacrifice the gift.**
+**Look for something positive in each day, even if some days you have to look a little harder.**
 
-Steve Prefontaine
+Anonymous
