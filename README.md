@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence comes not from always being right but from not fearing to be wrong.**
+**Hope never abandons you, you abandon it.**
 
-Peter T. Mcintyre
+George Weinberg
