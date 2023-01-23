@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can if you think you can.**
+**Before you score, you first must have a goal.**
 
-George Reeves
+Greek Proverb
