@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always dream and shoot higher than you know you can do. Do not bother just to be better than your contemporaries or predecessors. Try to be better than yourself.**
+**Successful people build each other up. They inspire, motivate, and push each other. Unsuccessful people just hate, blame, and complain.**
 
-William Faulkner
+Anonymous
