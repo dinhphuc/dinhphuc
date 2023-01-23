@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The purpose of our lives is to be happy.**
+**Go after the things you want.**
 
-Dalai Lama
+Simon Sinek
