@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hope never abandons you, you abandon it.**
+**There are so many beautiful reasons to be happy.**
 
-George Weinberg
+Anonymous
