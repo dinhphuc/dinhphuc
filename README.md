@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smaller in number are we, but larger in mind.**
+**Success doesn't just come and find you, you have to go out and get it.**
 
-Yoda
+Anonymous
