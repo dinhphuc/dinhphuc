@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are two things a person should never be angry at: what they can help, and what they cannot.**
+**You fail because you don't believe.**
 
-Plato
+Yoda
