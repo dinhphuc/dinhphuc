@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are a masterpiece.**
+**Always find opportunities to make someone smile, and to offer random acts of kindness in everyday life.**
 
-Anonymous
+Roy T. Bennett
