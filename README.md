@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you feel like giving up, that's when you need to dig deep and push through your self doubt and weaknesses.**
+**If you want to lift yourself up, lift up someone else.**
 
-Anonymous
+Booker T. Washington
