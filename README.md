@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A gentle word, a kind look, a good-natured smile can work wonders and accomplish miracles.**
+**Replace those thoughts of worry with thoughts of hope, faith, and victory.**
 
-William Hazlitt
+Joel Osteen
