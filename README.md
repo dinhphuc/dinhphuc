@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not the mountain we conquer, but ourselves.**
+**It is not how much we have, but how much we enjoy, that makes happiness.**
 
-Sir Edmund Hillary
+Charles Spurgeon
