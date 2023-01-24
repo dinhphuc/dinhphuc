@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Motivation is what gets you started. Habit is what keeps you going.**
+**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
 
-Jim Rohn
+Wayne Dyer
