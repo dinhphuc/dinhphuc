@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Difficult to see. Always in motion is the future.**
+**Choose kindness and laugh often.**
 
-Yoda
+Anonymous
