@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success consists of getting up just one more time than you fall.**
+**A runner must run with dreams in his heart.**
 
-Oliver Goldsmith
+Emil Zatopek
