@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happy are those who take life day by day, complain very little, and are thankful for the little things in life.**
+**Friends show their love in times of trouble, not in happiness.**
 
-Anonymous
+Euripides
