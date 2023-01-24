@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Before you score, you first must have a goal.**
+**Never give up. Great things take time. Be patient.**
 
-Greek Proverb
+Anonymous
