@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Go fast enough to get there, but slow enough to see.**
+**To give anything less than your best is to sacrifice the gift.**
 
-Jimmy Buffett
+Steve Prefontaine
