@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every next level of your life will demand a different version of you.**
+**Success consists of getting up just one more time than you fall.**
 
-Anonymous
+Oliver Goldsmith
