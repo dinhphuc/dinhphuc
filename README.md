@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is the ability to go from one failure to another with no loss of enthusiasm.**
+**Go fast enough to get there, but slow enough to see.**
 
-Winston Churchill
+Jimmy Buffett
