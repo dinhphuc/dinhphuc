@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is a magical ride. Enjoy every moment.**
+**Happiness is not something you postpone for the future; it is something you design for the present.**
 
-Anonymous
+Jim Rohn
