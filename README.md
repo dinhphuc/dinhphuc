@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When something is important enough, you do it even if the odds are not in your favor.**
+**A gentle word, a kind look, a good-natured smile can work wonders and accomplish miracles.**
 
-Elon Musk
+William Hazlitt
