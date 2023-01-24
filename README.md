@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The more you praise and celebrate your life, the more there is in life to celebrate.**
+**Peace begins When expectation ends.**
 
-Oprah Winfrey
+Sri Chinmoy
