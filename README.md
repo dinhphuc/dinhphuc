@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Teachers open the door; you enter by yourself.**
+**Life is a succession of lessons which must be lived to be understood.**
 
-Chinese Proverb
+Ralph Waldo Emerson
