@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only a life lived for others is a life worthwhile.**
+**Life is a magical ride. Enjoy every moment.**
 
-Albert Einstein
+Anonymous
