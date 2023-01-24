@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is not something you postpone for the future; it is something you design for the present.**
+**Are your excuses more important than your dreams?**
 
-Jim Rohn
+Anonymous
