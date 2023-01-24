@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to lift yourself up, lift up someone else.**
+**Confidence comes not from always being right but from not fearing to be wrong.**
 
-Booker T. Washington
+Peter T. Mcintyre
