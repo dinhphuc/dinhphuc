@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Peace begins When expectation ends.**
+**It is not the mountain we conquer, but ourselves.**
 
-Sri Chinmoy
+Sir Edmund Hillary
