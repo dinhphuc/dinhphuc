@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Choose kindness and laugh often.**
+**Every next level of your life will demand a different version of you.**
 
 Anonymous
