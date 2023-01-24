@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Replace those thoughts of worry with thoughts of hope, faith, and victory.**
+**A fault confessed is half redressed.**
 
-Joel Osteen
+Zulu Proverb
