@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Patience you must have, my young padawan.**
+**I have found that if you love life, life will love you back.**
 
-Yoda
+Arthur Rubinstein
