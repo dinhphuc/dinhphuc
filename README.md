@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
+**Only a life lived for others is a life worthwhile.**
 
-Wayne Dyer
+Albert Einstein
