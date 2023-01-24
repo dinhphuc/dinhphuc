@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A runner must run with dreams in his heart.**
+**Motivation is what gets you started. Habit is what keeps you going.**
 
-Emil Zatopek
+Jim Rohn
