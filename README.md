@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not how much we have, but how much we enjoy, that makes happiness.**
+**Just think how happy you would be if you lost everything you have right now, and then got it back again.**
 
-Charles Spurgeon
+Frances Rodman
