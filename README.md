@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A fault confessed is half redressed.**
+**The trick is to enjoy life. Don't wish away your days, waiting for better ones ahead.**
 
-Zulu Proverb
+Marjorie Pay Hinckley
