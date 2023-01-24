@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I have found that if you love life, life will love you back.**
+**You are what you do, not what you say you'll do.**
 
-Arthur Rubinstein
+Anonymous
