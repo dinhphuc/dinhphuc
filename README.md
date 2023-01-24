@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What we achieve inwardly will change outer reality.**
+**When it comes to success, there are no shortcuts.**
 
-Plutarch
+Bo Bennett
