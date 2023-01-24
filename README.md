@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Are your excuses more important than your dreams?**
+**When something is important enough, you do it even if the odds are not in your favor.**
 
-Anonymous
+Elon Musk
