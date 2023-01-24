@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Just think how happy you would be if you lost everything you have right now, and then got it back again.**
+**Patience you must have, my young padawan.**
 
-Frances Rodman
+Yoda
