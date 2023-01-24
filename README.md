@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When it comes to success, there are no shortcuts.**
+**Teachers open the door; you enter by yourself.**
 
-Bo Bennett
+Chinese Proverb
