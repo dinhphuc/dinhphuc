@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot propel yourself forward by patting yourself on the back.**
+**The more you praise and celebrate your life, the more there is in life to celebrate.**
 
-Steve Prefontaine
+Oprah Winfrey
