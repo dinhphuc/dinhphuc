@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is a succession of lessons which must be lived to be understood.**
+**Don't try to be perfect. Just try to be better than you were yesterday.**
 
-Ralph Waldo Emerson
+Anonymous
