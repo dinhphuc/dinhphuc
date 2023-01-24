@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence comes not from always being right but from not fearing to be wrong.**
+**You cannot propel yourself forward by patting yourself on the back.**
 
-Peter T. Mcintyre
+Steve Prefontaine
