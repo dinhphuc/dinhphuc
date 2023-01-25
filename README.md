@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The real opportunity for success lies within the person and not in the job.**
+**Live your life for you.**
 
-Zig Ziglar
+Anonymous
