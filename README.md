@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Luck is what happens when preparation meets opportunity.**
+**Don't try to be perfect. Just try to be better than you were yesterday.**
 
-Seneca
+Anonymous
