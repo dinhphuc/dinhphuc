@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pain is temporary. Quitting lasts forever.**
+**Believe in yourself. You are braver than you think, more talented than you know, and capable of more than you imagine.**
 
-Lance Armstrong
+Roy T. Bennett
