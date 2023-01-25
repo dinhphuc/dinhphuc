@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's going to be hard. But hard is not impossible.**
+**When something is important enough, you do it even if the odds are not in your favor.**
 
-Anonymous
+Elon Musk
