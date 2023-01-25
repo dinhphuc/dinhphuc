@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Appreciate the people who make you smile.**
+**When you don't talk, there's a lot of stuff that ends up not getting said.**
 
-Anonymous
+Catherine Gilbert Murdock
