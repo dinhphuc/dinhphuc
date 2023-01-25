@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life works for my benefit.**
+**Remember that not getting what you want is sometimes a wonderful stroke of luck.**
 
-Anonymous
+Dalai Lama
