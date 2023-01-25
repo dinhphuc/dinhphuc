@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Try to be a rainbow in someone's cloud.**
+**You have to be at your strongest when you're feeling at your weakest.**
 
-Maya Angelou
+Anonymous
