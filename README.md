@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No one who can rise before dawn three hundred sixty days a year fails to make his family rich.**
+**Appreciate the people who make you smile.**
 
-Malcolm Gladwell
+Anonymous
