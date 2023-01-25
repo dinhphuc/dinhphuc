@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A warm smile is the universal language of kindness.**
+**It takes courage to grow up and become who you really are.**
 
-William Arthur Ward
+E.E. Cummings
