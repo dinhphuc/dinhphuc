@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The critics only made me work harder.**
+**A warm smile is the universal language of kindness.**
 
-Muhammad Ali
+William Arthur Ward
