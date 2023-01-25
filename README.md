@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't try to be perfect. Just try to be better than you were yesterday.**
+**Life works for my benefit.**
 
 Anonymous
