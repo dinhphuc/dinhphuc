@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you look at what you have in life, you'll always have more. If you look at what you don't have in life, you'll never have enough.**
+**What you're thinking is what you're becoming.**
 
-Oprah Winfrey
+Muhammad Ali
