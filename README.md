@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One of the best ways of being happy with life is to make someone happy.**
+**You are what you do, not what you say you'll do.**
 
 Anonymous
