@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no cosmetic for beauty like happiness.**
+**Try to be a rainbow in someone's cloud.**
 
-Maria Mitchell
+Maya Angelou
