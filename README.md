@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live your life for you.**
+**Love has no age, no limit; and no death.**
 
-Anonymous
+John Galsworthy
