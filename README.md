@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When something is important enough, you do it even if the odds are not in your favor.**
+**There is no cosmetic for beauty like happiness.**
 
-Elon Musk
+Maria Mitchell
