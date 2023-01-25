@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember that not getting what you want is sometimes a wonderful stroke of luck.**
+**No one who can rise before dawn three hundred sixty days a year fails to make his family rich.**
 
-Dalai Lama
+Malcolm Gladwell
