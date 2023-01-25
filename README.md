@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you don't talk, there's a lot of stuff that ends up not getting said.**
+**One of the best ways of being happy with life is to make someone happy.**
 
-Catherine Gilbert Murdock
+Anonymous
