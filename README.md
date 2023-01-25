@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In life, many things don't go according to plan. If you fall, get back up. If you stumble, regain your balance. Never give up.**
+**If no mistake have you made, yet losing you are... a different game you should play.**
 
-Anonymous
+Yoda
