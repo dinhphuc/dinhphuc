@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be afraid of your fears. They're not there to scare you. They're there to let you know that something is worth it.**
+**The critics only made me work harder.**
 
-C. JoyBell C
+Muhammad Ali
