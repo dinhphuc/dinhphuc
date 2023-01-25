@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Inhale confidence. Exhale doubt.**
+**Don't be afraid of your fears. They're not there to scare you. They're there to let you know that something is worth it.**
 
-Anonymous
+C. JoyBell C
