@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You walk through life much easier with a smile on your face.**
+**I attribute my success to this: I never gave or took any excuse.**
 
-Sweet Paul
+Florence Nightingale
