@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not the mountain we conquer, but ourselves.**
+**You walk through life much easier with a smile on your face.**
 
-Sir Edmund Hillary
+Sweet Paul
