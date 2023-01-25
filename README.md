@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If no mistake have you made, yet losing you are... a different game you should play.**
+**Set a goal so big that you can't achieve it until you grow into the person who can.**
 
-Yoda
+Anonymous
