@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I attribute my success to this: I never gave or took any excuse.**
+**Luck is what happens when preparation meets opportunity.**
 
-Florence Nightingale
+Seneca
