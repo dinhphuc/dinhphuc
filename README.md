@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love has no age, no limit; and no death.**
+**Success isn't just about what you accomplish in life. It's about what you inspire others to do.**
 
-John Galsworthy
+Anonymous
