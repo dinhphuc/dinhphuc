@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't get what you wish for. You get what you work for.**
+**It is not the mountain we conquer, but ourselves.**
 
-Anonymous
+Sir Edmund Hillary
