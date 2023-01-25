@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It takes courage to grow up and become who you really are.**
+**Appreciate the people who make you smile.**
 
-E.E. Cummings
+Anonymous
