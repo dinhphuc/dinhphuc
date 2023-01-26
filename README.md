@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I don't aspire to be like other driver. I aspire to be unique.**
+**Hard times don't create heroes. It is during the hard times when the 'hero' within us is revealed.**
 
-Lewis Hamilton
+Bob Riley
