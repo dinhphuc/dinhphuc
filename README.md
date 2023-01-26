@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One small positive thought in the morning can change your whole day.**
+**I don't care how long it takes me, but I'm going somewhere beautiful.**
 
 Anonymous
