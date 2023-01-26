@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If one dream should fall and break into a thousand pieces, never be afraid to pick one of those pieces up and begin again.**
+**Success is what happens after you have survived all of your disappointments.**
 
-Flavia Weedn
+Anonymous
