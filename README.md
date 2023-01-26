@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The will to win means nothing without the will to prepare.**
+**Someone who is busier than you is running right now.**
 
-Juma Ikangaa
+Nike
