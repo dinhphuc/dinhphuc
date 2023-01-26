@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be who you are and say what you feel because those who mind don't matter and those who matter don't mind.**
+**Setting goals is the first step into turning the invisible into the visible.**
 
-Dr. Seuss
+Tony Robbins
