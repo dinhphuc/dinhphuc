@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pain has taught me to appreciate the things that don't hurt.**
+**Very little is needed to make a happy life; it is all within yourself, in your way of thinking.**
 
-Melissa Tripp
+Marcus Aurelius
