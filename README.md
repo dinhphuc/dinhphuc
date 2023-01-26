@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Very little is needed to make a happy life; it is all within yourself, in your way of thinking.**
+**You will be blessed the moment you realize you already are.**
 
-Marcus Aurelius
+Bryant Mcgill
