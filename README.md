@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You must do the thing you think you cannot do.**
+**Be aware as often as possible of the great transformation process you are going through.**
 
-Eleanor Roosevelt
+Anonymous
