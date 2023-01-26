@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe in yourself. You are braver than you think, more talented than you know, and capable of more than you imagine.**
+**You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously.**
 
-Roy T. Bennett
+Steve Maraboli
