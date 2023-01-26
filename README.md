@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be aware as often as possible of the great transformation process you are going through.**
+**One small positive thought in the morning can change your whole day.**
 
 Anonymous
