@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength does not come from physical capacity. It comes from an indomitable will.**
+**I don't make excuses. I make results.**
 
-Mahatma Gandhi
+Anonymous
