@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When the 'why' is clear, the 'how' is easy.**
+**You can't always control what goes on outside, but you can always control what goes on inside.**
 
-Anonymous
+Wayne Dyer
