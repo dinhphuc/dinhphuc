@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously.**
+**Courage doesn't always roar, sometimes it's the quiet voice at the end of the day whispering 'I will try again tomorrow'.**
 
-Steve Maraboli
+Mary Anne Radmacher
