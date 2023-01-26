@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I don't care how long it takes me, but I'm going somewhere beautiful.**
+**Every strike brings me closer to the next home run.**
 
-Anonymous
+Babe Ruth
