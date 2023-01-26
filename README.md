@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't always control what goes on outside, but you can always control what goes on inside.**
+**The absence of adversity is an indicator that my goals aren't significant enough.**
 
-Wayne Dyer
+Clint Bruce
