@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Motivation is what gets you started. Habit is what keeps you going.**
+**The only thing necessary for the triumph of evil is for good men to do nothing.**
 
-Jim Rohn
+Edmund Burke
