@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything you need to accomplish your goals is already in you.**
+**I don't aspire to be like other driver. I aspire to be unique.**
 
-Anonymous
+Lewis Hamilton
