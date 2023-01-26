@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hardships often prepare ordinary people for an extraordinary destiny.**
+**Motivation is what gets you started. Habit is what keeps you going.**
 
-C.S. Lewis
+Jim Rohn
