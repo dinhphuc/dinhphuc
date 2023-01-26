@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't use up creativity. The more you use, the more you have.**
+**Strength does not come from physical capacity. It comes from an indomitable will.**
 
-Maya Angelou
+Mahatma Gandhi
