@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Setting goals is the first step into turning the invisible into the visible.**
+**Everything you need to accomplish your goals is already in you.**
 
-Tony Robbins
+Anonymous
