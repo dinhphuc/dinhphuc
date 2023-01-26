@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Courage doesn't always roar, sometimes it's the quiet voice at the end of the day whispering 'I will try again tomorrow'.**
+**You may encounter many defeats, but you must not be defeated.**
 
-Mary Anne Radmacher
+Maya Angelou
