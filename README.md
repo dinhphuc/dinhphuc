@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You may encounter many defeats, but you must not be defeated.**
+**Hardships often prepare ordinary people for an extraordinary destiny.**
 
-Maya Angelou
+C.S. Lewis
