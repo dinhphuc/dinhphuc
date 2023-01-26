@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hard times don't create heroes. It is during the hard times when the 'hero' within us is revealed.**
+**Life is either a daring adventure or nothing at all.**
 
-Bob Riley
+Helen Keller
