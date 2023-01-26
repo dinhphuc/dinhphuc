@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only thing necessary for the triumph of evil is for good men to do nothing.**
+**A positive attitude causes a chain reaction of positive thoughts, events, and outcomes. It is a catalyst, and it sparks extraordinary results.**
 
-Edmund Burke
+Wade Boggs
