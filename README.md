@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure is not the falling down but the staying down.**
+**When you love what you have, you have everything you need.**
 
 Anonymous
