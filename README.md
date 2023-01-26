@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will be blessed the moment you realize you already are.**
+**You can't use up creativity. The more you use, the more you have.**
 
-Bryant Mcgill
+Maya Angelou
