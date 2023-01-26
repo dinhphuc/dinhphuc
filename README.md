@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If one dream should fall and break into a thousand pieces, never be afraid to pick one of those pieces up and begin again.**
+**Failure is simply the opportunity to begin again. Except this time more intelligently.**
 
-Flavia Weedn
+Henry Ford
