@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Someone who is busier than you is running right now.**
+**When the 'why' is clear, the 'how' is easy.**
 
-Nike
+Anonymous
