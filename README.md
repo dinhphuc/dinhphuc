@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is either a daring adventure or nothing at all.**
+**You must do the thing you think you cannot do.**
 
-Helen Keller
+Eleanor Roosevelt
