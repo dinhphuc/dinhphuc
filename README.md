@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you love what you have, you have everything you need.**
+**Be who you are and say what you feel because those who mind don't matter and those who matter don't mind.**
 
-Anonymous
+Dr. Seuss
