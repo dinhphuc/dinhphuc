@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Sometimes the bravest thing you can do is to keep going when you really feel like giving up.**
+**Time is an illusion, there is only the now.**
 
-Anonymous
+Master Shifu
