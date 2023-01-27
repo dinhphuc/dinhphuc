@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Starting today, I need to forget what's gone. Appreciate what still remains and look forward to what's coming next.**
+**Attitude is everything. New day, new strength, new thoughts.**
 
 Anonymous
