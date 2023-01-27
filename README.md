@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We are made to persist. That's how we find out who we are.**
+**Sometimes the bravest thing you can do is to keep going when you really feel like giving up.**
 
-Tobias Wolff
+Anonymous
