@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The best way to predict your future is to create it.**
+**The only easy day was yesterday.**
 
-Peter F. Drucker
+Navy Seals
