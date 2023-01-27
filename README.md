@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Stay strong. You never know who you are inspiring.**
+**Find a place inside where there's joy, and the joy will burn out the pain.**
 
-Anonymous
+Joseph Campbell
