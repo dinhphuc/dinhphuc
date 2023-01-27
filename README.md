@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When it comes to success, there are no shortcuts.**
+**Starting today, I need to forget what's gone. Appreciate what still remains and look forward to what's coming next.**
 
-Bo Bennett
+Anonymous
