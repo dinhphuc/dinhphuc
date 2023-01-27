@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Victory is always possible for the person who refuses to stop fighting.**
+**The absence of adversity is an indicator that my goals aren't significant enough.**
 
-Napoleon Hill
+Clint Bruce
