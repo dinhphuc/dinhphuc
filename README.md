@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good, better, best. Never let it rest. Until your good is better and your better is best.**
+**It's going to be hard. But hard is not impossible.**
 
-Tim Duncan
+Anonymous
