@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Perseverance is the hard work you do after you get tired of doing the hard work you already did.**
+**Happiness can be found, even in the darkest of times, if one only remembers to turn on the light.**
 
-Newt Gingrich
+Anonymous
