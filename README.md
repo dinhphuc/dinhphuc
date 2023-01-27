@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The question isn't who is going to let me; it's who is going to stop me.**
+**The best way to predict your future is to create it.**
 
-Ayn Rand
+Peter F. Drucker
