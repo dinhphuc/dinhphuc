@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be afraid of your fears. They're not there to scare you. They're there to let you know that something is worth it.**
+**We are made to persist. That's how we find out who we are.**
 
-C. JoyBell C
+Tobias Wolff
