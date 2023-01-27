@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you believe it, the mind can achieve it.**
+**Honesty is the first chapter in the book of wisdom.**
 
-Ronnie Lott
+Thomas Jefferson
