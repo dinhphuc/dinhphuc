@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Find a place inside where there's joy, and the joy will burn out the pain.**
+**Inhale confidence. Exhale doubt.**
 
-Joseph Campbell
+Anonymous
