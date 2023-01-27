@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The absence of adversity is an indicator that my goals aren't significant enough.**
+**When it comes to success, there are no shortcuts.**
 
-Clint Bruce
+Bo Bennett
