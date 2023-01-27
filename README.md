@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you find an idea that you just can't stop thinking about, that's probably a good one to pursue.**
+**Positive anything is better than negative nothing.**
 
-Josh James
+Elbert Hubbard
