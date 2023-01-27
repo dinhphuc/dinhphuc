@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not how much we have, but how much we enjoy, that makes happiness.**
+**If you believe it, the mind can achieve it.**
 
-Charles Spurgeon
+Ronnie Lott
