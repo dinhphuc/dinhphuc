@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Time is an illusion, there is only the now.**
+**It is not how much we have, but how much we enjoy, that makes happiness.**
 
-Master Shifu
+Charles Spurgeon
