@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good, better, best. Never let it rest. Until your good is better and your better is best.**
+**The question isn't who is going to let me; it's who is going to stop me.**
 
-Tim Duncan
+Ayn Rand
