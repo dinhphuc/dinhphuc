@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You yourself, as much as anybody in the entire universe, deserve your love and affection.**
+**It is during our darkest moments that we must focus to see the light.**
 
-Buddha
+Aristotle Onassis
