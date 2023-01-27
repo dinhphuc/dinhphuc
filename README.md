@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Perseverance is the hard work you do after you get tired of doing the hard work you already did.**
+**To handle yourself, use your head; to handle others, use your heart.**
 
-Newt Gingrich
+Eleanor Roosevelt
