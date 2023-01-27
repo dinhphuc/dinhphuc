@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The absence of adversity is an indicator that my goals aren't significant enough.**
+**When you find an idea that you just can't stop thinking about, that's probably a good one to pursue.**
 
-Clint Bruce
+Josh James
