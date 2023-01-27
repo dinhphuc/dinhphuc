@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To handle yourself, use your head; to handle others, use your heart.**
+**Remember the entrance to the sanctuary is inside you.**
 
-Eleanor Roosevelt
+Rumi
