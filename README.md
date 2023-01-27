@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**At the end of the day, you can either focus on what's tearing you apart, or you can focus on what's keeping you together.**
+**Start where you are. Use what you have. Do what you can.**
 
-Anonymous
+Arthur Ashe
