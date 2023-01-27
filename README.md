@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Honesty is the first chapter in the book of wisdom.**
+**Happiness is not out there, it's in you.**
 
-Thomas Jefferson
+Anonymous
