@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A difficult time can be more readily endured if we retain the conviction that our existence holds a purpose - a cause to pursue, a person to love, a goal to achieve.**
+**Courage doesn't always roar, sometimes it's the quiet voice at the end of the day whispering 'I will try again tomorrow'.**
 
-John Maxwell
+Mary Anne Radmacher
