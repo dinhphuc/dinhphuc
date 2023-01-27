@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**People are just as happy as they make up their minds to be.**
+**Perseverance is the hard work you do after you get tired of doing the hard work you already did.**
 
-Abraham Lincoln
+Newt Gingrich
