@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Attitude is everything. New day, new strength, new thoughts.**
+**Almost every successful person begins their journey with two core beliefs: the future can be better than the present, and I have the power to make it so.**
 
 Anonymous
