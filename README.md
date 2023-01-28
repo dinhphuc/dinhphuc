@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember that not getting what you want is sometimes a wonderful stroke of luck.**
+**I've never let anyone talk me into not believing in myself.**
 
-Dalai Lama
+Muhammad Ali
