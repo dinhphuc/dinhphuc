@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every accomplishment begins with the decision to try.**
+**I don't care how long it takes me, but I'm going somewhere beautiful.**
 
 Anonymous
