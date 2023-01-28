@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I've never let anyone talk me into not believing in myself.**
+**Always two there are, no more, no less. A master and an apprentice.**
 
-Muhammad Ali
+Yoda
