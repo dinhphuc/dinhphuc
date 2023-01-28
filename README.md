@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When the 'why' is clear, the 'how' is easy.**
+**It is not the mountain we conquer, but ourselves.**
 
-Anonymous
+Sir Edmund Hillary
