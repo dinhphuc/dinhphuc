@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything has beauty, but not everyone can see.**
+**When we are no longer able to change a situation - we are challenged to change ourselves.**
 
-Confucius
+Viktor E. Frankl
