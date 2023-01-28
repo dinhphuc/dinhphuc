@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is during our darkest moments that we must focus to see the light.**
+**A person who never made a mistake never tried anything new.**
 
-Aristotle Onassis
+Albert Einstein
