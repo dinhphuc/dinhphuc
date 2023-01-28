@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm too grateful to be hateful. I am too blessed to be stressed.**
+**Every accomplishment begins with the decision to try.**
 
-El DeBarge
+Anonymous
