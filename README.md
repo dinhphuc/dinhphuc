@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between ordinary and extraordinary is that little extra.**
+**The journey of a thousand miles begins with one step.**
 
-Jimmy Johnson
+Lao Tzu
