@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe in yourself and you can be anything.**
+**At first they'll ask you why you're doing it. Later they'll ask how you did it.**
 
-Katy Perry
+Anonymous
