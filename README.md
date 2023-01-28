@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's going to be hard. But hard is not impossible.**
+**Remember that not getting what you want is sometimes a wonderful stroke of luck.**
 
-Anonymous
+Dalai Lama
