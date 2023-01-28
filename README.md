@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Beat the drum inside the house to spare the neighbors.**
+**Happiness is a habit - cultivate it.**
 
-Chinese Proverb
+Elbert Hubbard
