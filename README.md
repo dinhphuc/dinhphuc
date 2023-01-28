@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you stumble, make it part of the dance.**
+**Keep your eyes on the stars, and your feet on the ground.**
 
-Anonymous
+Theodore Roosevelt
