@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live as if you were to die tomorrow. Learn as if you were to live forever.**
+**When we help ourselves, we find moments of happiness. When we help others, we find lasting fulfillment.**
 
-Mahatma Gandhi
+Simon Sinek
