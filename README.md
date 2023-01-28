@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live your life for you.**
+**It's going to be hard. But hard is not impossible.**
 
 Anonymous
