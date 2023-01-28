@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep your eyes on the stars, and your feet on the ground.**
+**It is not how much we have, but how much we enjoy, that makes happiness.**
 
-Theodore Roosevelt
+Charles Spurgeon
