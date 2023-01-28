@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you only do what you can do, you will never be more than you are now.**
+**What you see in yourself is what you see in the world.**
 
-Master Oogway
+Afghan Proverb
