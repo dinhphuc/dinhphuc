@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When life puts you in tough situations, don't say "why me?" say "try me".**
+**It is not how much we have, but how much we enjoy, that makes happiness.**
 
-Anonymous
+Charles Spurgeon
