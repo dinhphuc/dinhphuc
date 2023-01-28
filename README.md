@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Motivation is what gets you started. Habit is what keeps you going.**
+**Live as if you were to die tomorrow. Learn as if you were to live forever.**
 
-Jim Rohn
+Mahatma Gandhi
