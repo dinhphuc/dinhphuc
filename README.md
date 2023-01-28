@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you want to talk about who made me, you talk to me. Who made me is ME.**
+**Believe in yourself and you can be anything.**
 
-Muhammad Ali
+Katy Perry
