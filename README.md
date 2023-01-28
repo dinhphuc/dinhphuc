@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always two there are, no more, no less. A master and an apprentice.**
+**Motivation is what gets you started. Habit is what keeps you going.**
 
-Yoda
+Jim Rohn
