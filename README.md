@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you see in yourself is what you see in the world.**
+**Be so happy that when others look at you they become happy too.**
 
-Afghan Proverb
+Anonymous
