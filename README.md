@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**At first they'll ask you why you're doing it. Later they'll ask how you did it.**
+**Happiness is when what you think, what you say, and what you do are in harmony.**
 
-Anonymous
+Mahatma Gandhi
