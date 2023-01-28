@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success isn't just about what you accomplish in life. It's about what you inspire others to do.**
+**An inch of gold can't buy an inch of time.**
 
-Anonymous
+Chinese Proverb
