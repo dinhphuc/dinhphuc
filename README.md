@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When we are no longer able to change a situation - we are challenged to change ourselves.**
+**When life puts you in tough situations, don't say "why me?" say "try me".**
 
-Viktor E. Frankl
+Anonymous
