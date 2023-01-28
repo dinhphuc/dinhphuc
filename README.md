@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**An inch of gold can't buy an inch of time.**
+**Beat the drum inside the house to spare the neighbors.**
 
 Chinese Proverb
