@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not the mountain we conquer, but ourselves.**
+**I'm too grateful to be hateful. I am too blessed to be stressed.**
 
-Sir Edmund Hillary
+El DeBarge
