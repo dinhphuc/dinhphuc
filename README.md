@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is when what you think, what you say, and what you do are in harmony.**
+**Everything has beauty, but not everyone can see.**
 
-Mahatma Gandhi
+Confucius
