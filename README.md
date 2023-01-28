@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success trains. Failure complains.**
+**Success isn't just about what you accomplish in life. It's about what you inspire others to do.**
 
 Anonymous
