@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When we help ourselves, we find moments of happiness. When we help others, we find lasting fulfillment.**
+**The difference between ordinary and extraordinary is that little extra.**
 
-Simon Sinek
+Jimmy Johnson
