@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hustle until your haters ask if you are hiring.**
+**Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest.**
 
-Anonymous
+Sri Chinmoy
