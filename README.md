@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not how much we have, but how much we enjoy, that makes happiness.**
+**If you only do what you can do, you will never be more than you are now.**
 
-Charles Spurgeon
+Master Oogway
