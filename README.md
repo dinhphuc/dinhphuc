@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The journey of a thousand miles begins with one step.**
+**If you stumble, make it part of the dance.**
 
-Lao Tzu
+Anonymous
