@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not how much we have, but how much we enjoy, that makes happiness.**
+**The real opportunity for success lies within the person and not in the job.**
 
-Charles Spurgeon
+Zig Ziglar
