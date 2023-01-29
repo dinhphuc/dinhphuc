@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Difficult roads always lead to beautiful destinations.**
+**The only journey is the one within.**
 
-Zig Ziglar
+Rainer Maria Rilke
