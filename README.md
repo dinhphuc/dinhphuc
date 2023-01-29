@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Where there is love there is life.**
+**Learning never exhausts the mind.**
 
-Mahatma Gandhi
+Leonardo da Vinci
