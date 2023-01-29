@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Well I am here to tell you that one of the best ways to make a difference, is by sharing a smile and radiating good positive energy.**
+**Our greatest weakness lies in giving up. The most certain way to succeed is to just try one more time.**
 
-Anonymous
+Thomas Edison
