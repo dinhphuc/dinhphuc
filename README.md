@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is not out there, it's in you.**
+**Life is what happens when you're busy making other plans.**
 
-Anonymous
+John Lennon
