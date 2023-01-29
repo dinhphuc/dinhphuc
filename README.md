@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you are, be a good one.**
+**Nothing is impossible, the word itself says "I'm possible"!**
 
-Abraham Lincoln
+Audrey Hepburn
