@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The first duty of love is to listen.**
+**Today is a beautiful day and I will attract good things into my life.**
 
-Paul Tillich
+Anonymous
