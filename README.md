@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A warm smile is the universal language of kindness.**
+**Success is the sum of small efforts repeated day-in and day-out.**
 
-William Arthur Ward
+Robert Collier
