@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To know the road ahead, ask those coming back.**
+**A warm smile is the universal language of kindness.**
 
-Chinese Proverb
+William Arthur Ward
