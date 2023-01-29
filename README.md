@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Surround yourself with only people who are going to lift you higher.**
+**You yourself, as much as anybody in the entire universe, deserve your love and affection.**
 
-Oprah
+Buddha
