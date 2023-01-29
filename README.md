@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only journey is the one within.**
+**Anyone who has grown mentally, physically or spiritually knows that growth is not found in comfort.**
 
-Rainer Maria Rilke
+Anonymous
