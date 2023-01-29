@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest.**
+**The first duty of love is to listen.**
 
-Sri Chinmoy
+Paul Tillich
