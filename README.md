@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good friends are all that matter.**
+**Be helpful. When you see a person without a smile, give them yours.**
 
-Anonymous
+Zig Ziglar
