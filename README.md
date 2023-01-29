@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Not all those who wander are lost.**
+**Surround yourself with only people who are going to lift you higher.**
 
-J. R. R. Tolkien
+Oprah
