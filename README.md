@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest weakness lies in giving up. The most certain way to succeed is to just try one more time.**
+**Where there is love there is life.**
 
-Thomas Edison
+Mahatma Gandhi
