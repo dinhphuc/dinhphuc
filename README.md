@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not what you look at that matters, it's what you see.**
+**Happiness is not out there, it's in you.**
 
-Henry David Thoreau
+Anonymous
