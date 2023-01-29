@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be helpful. When you see a person without a smile, give them yours.**
+**Happy people don't have the best of everything they make the best of everything.**
 
-Zig Ziglar
+Anonymous
