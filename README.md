@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Anyone who has grown mentally, physically or spiritually knows that growth is not found in comfort.**
+**To handle yourself, use your head; to handle others, use your heart.**
 
-Anonymous
+Eleanor Roosevelt
