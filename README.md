@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is the sum of small efforts repeated day-in and day-out.**
+**Not all those who wander are lost.**
 
-Robert Collier
+J. R. R. Tolkien
