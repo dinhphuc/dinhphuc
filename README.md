@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't just glov, dazzle.**
+**Whatever you are, be a good one.**
 
-Anonymous
+Abraham Lincoln
