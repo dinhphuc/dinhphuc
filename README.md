@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing is impossible, the word itself says "I'm possible"!**
+**Shine like the whole universe is yours.**
 
-Audrey Hepburn
+Rumi
