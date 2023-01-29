@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Today is a beautiful day and I will attract good things into my life.**
+**To know the road ahead, ask those coming back.**
 
-Anonymous
+Chinese Proverb
