@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you look at what you have in life, you'll always have more. If you look at what you don't have in life, you'll never have enough.**
+**Winning is fun, but those moments that you can touch someone's life in a very positive way are better.**
 
-Oprah Winfrey
+Tim Howard
