@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Shine like the whole universe is yours.**
+**Throw kindness around like confetti.**
 
-Rumi
+Anonymous
