@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Learning never exhausts the mind.**
+**Live as if you were to die tomorrow. Learn as if you were to live forever.**
 
-Leonardo da Vinci
+Mahatma Gandhi
