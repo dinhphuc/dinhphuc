@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You're off to great places, today is your day. Your mountain is waiting, so get on your way.**
+**I alone cannot change the world, but I can cast a stone across the water to create many ripples.**
 
-Dr. Seuss
+Mother Teresa
