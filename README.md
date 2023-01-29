@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Work hard and be nice to people.**
+**There are no secrets to success. It is the result of preparation, hard work, and learning from failure.**
 
-Anonymous
+Colin Powell
