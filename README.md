@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I alone cannot change the world, but I can cast a stone across the water to create many ripples.**
+**In life, many things do not go according to plan. If you fall, get back up.**
 
-Mother Teresa
+Anonymous
