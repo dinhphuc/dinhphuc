@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live as if you were to die tomorrow. Learn as if you were to live forever.**
+**You're off to great places, today is your day. Your mountain is waiting, so get on your way.**
 
-Mahatma Gandhi
+Dr. Seuss
