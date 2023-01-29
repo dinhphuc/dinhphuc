@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To handle yourself, use your head; to handle others, use your heart.**
+**It's not what you look at that matters, it's what you see.**
 
-Eleanor Roosevelt
+Henry David Thoreau
