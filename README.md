@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe in yourself and you can be anything.**
+**You are your only limit.**
 
-Katy Perry
+Anonymous
