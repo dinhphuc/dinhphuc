@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are your only limit.**
+**The positive thinker sees the invisible, feels the intangible, and achieves the impossible.**
 
-Anonymous
+Winston Churchill
