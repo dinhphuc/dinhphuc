@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pain is inevitable. Suffering is optional.**
+**Tough times don't last. Tough people do.**
 
-Anonymous
+Robert H. Schuller
