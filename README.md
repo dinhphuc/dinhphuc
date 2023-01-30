@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**He who always thinks it is too soon is sure to come too late.**
+**Push yourself because no one else is going to do it for you.**
 
-German Proverb
+Anonymous
