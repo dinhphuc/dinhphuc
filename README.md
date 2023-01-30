@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is the sum of small efforts repeated day-in and day-out.**
+**Runners just do it - they run for the finish line even if someone else has reached it first.**
 
-Robert Collier
+Unknown
