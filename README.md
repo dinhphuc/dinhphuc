@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
+**He who always thinks it is too soon is sure to come too late.**
 
-Anonymous
+German Proverb
