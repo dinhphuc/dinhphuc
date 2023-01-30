@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Get going ... walk if you have to, but finish the damned race.**
+**Patience you must have, my young padawan.**
 
-Ron Hill
+Yoda
