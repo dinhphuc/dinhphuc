@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I've failed over and over and over again in my life and that is why I succeed.**
+**The only person who can pull me down is myself, and I'm not going to let myself pull me down anymore.**
 
-Michael Jordan
+C. JoyBell C
