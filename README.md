@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Opportunities to find deeper powers within ourselves come when life seems most challenging.**
+**Never give up. Keep going.**
 
-Joseph Campbell
+Anonymous
