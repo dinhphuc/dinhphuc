@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Patience you must have, my young padawan.**
+**The secret of success is to do the common thing uncommonly well.**
 
-Yoda
+John D. Rockefeller Jr
