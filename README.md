@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The positive thinker sees the invisible, feels the intangible, and achieves the impossible.**
+**You're braver than you believe, and stronger than you seem, and smarter than you think.**
 
-Winston Churchill
+A.A. Mine
