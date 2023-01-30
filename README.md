@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Push yourself because no one else is going to do it for you.**
+**Spread love everywhere you go. Let no one ever come to you without leaving happier.**
 
-Anonymous
+Mother Teresa
