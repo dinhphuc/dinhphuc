@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can't live longer, live deeper.**
+**Don't just glov, dazzle.**
 
-Italian Proverb
+Anonymous
