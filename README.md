@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't have to control your thoughts; you just have to stop letting them control you.**
+**We know what we are, but know not what we may be.**
 
-Dan Millman
+William Shakespeare
