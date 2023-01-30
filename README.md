@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will find only what you bring in.**
+**There is a difference between giving up and knowing when you've had enough.**
 
-Yoda
+Anonymous
