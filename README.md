@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Runners just do it - they run for the finish line even if someone else has reached it first.**
+**Your relationship with yourself sets the tone for every other relationship you have.**
 
-Unknown
+Anonymous
