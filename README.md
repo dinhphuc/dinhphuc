@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you do, be different. If you're different, you will stand out.**
+**You don't have to control your thoughts; you just have to stop letting them control you.**
 
-Anita Roddick
+Dan Millman
