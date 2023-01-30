@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pain is inevitable. Suffering is optional.**
+**Be so happy that when others look at you they become happy too.**
 
 Anonymous
