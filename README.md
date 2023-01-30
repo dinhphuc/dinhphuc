@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are somebody's reason to smile.**
+**Live for yourself and don't ever stop.**
 
-Anonymous
+John Tew
