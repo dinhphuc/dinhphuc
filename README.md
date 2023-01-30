@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You walk through life much easier with a smile on your face.**
+**Get going ... walk if you have to, but finish the damned race.**
 
-Sweet Paul
+Ron Hill
