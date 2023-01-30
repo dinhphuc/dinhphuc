@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live for yourself and don't ever stop.**
+**People are just as happy as they make up their minds to be.**
 
-John Tew
+Abraham Lincoln
