@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**He who lives in harmony with himself lives in harmony with the universe.**
+**You will find only what you bring in.**
 
-Marcus Aurelius
+Yoda
