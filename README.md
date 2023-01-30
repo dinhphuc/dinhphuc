@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your relationship with yourself sets the tone for every other relationship you have.**
+**If you can't live longer, live deeper.**
 
-Anonymous
+Italian Proverb
