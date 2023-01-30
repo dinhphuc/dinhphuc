@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We know what we are, but know not what we may be.**
+**Opportunities to find deeper powers within ourselves come when life seems most challenging.**
 
-William Shakespeare
+Joseph Campbell
