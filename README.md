@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is a difference between giving up and knowing when you've had enough.**
+**Working hard for something we don't care about is called stress; working hard for somthing we love is called passion.**
 
-Anonymous
+Simon Sinek
