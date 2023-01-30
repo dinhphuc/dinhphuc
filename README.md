@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When we are no longer able to change a situation - we are challenged to change ourselves.**
+**Believe in yourself and you can be anything.**
 
-Viktor E. Frankl
+Katy Perry
