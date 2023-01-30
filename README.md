@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Working hard for something we don't care about is called stress; working hard for somthing we love is called passion.**
+**I've failed over and over and over again in my life and that is why I succeed.**
 
-Simon Sinek
+Michael Jordan
