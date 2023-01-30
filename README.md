@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up. Keep going.**
+**You walk through life much easier with a smile on your face.**
 
-Anonymous
+Sweet Paul
