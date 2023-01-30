@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**People are just as happy as they make up their minds to be.**
+**Happiness can be found, even in the darkest of times, if one only remembers to turn on the light.**
 
-Abraham Lincoln
+Anonymous
