@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of success is to do the common thing uncommonly well.**
+**No matter who you are, no matter what you did, no matter where you've come from, you can always change, and become a better version of yourself.**
 
-John D. Rockefeller Jr
+Madonna
