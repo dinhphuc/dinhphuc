@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't just glov, dazzle.**
+**You are somebody's reason to smile.**
 
 Anonymous
