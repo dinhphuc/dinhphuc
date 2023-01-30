@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody who ever gave their best regretted it.**
+**When we are no longer able to change a situation - we are challenged to change ourselves.**
 
-George Halas
+Viktor E. Frankl
