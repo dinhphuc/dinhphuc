@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You're braver than you believe, and stronger than you seem, and smarter than you think.**
+**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
 
-A.A. Mine
+Anonymous
