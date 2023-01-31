@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success usually comes to those who are too busy to be looking for it.**
+**You only live once, but if you do it right, once is enough.**
 
-Henry David Thoreau
+Mae West
