@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No marathon gets easier later. The halfway point only marks the end of the beginning.**
+**You can either spend your time or invest your time.**
 
-Joe Henderson
+Chip Kelly
