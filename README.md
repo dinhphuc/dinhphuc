@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Who begins too much accomplishes little.**
+**Confidence comes from discipline and training.**
 
-German Proverb
+Robert Kiyosaki
