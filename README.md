@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you decide to do, make sure it makes you happy.**
+**Do not dwell in the past, do not dream of the future, concentrate the mind on the present moment.**
 
-Anonymous
+Buddha
