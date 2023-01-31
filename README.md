@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is during our darkest moments that we must focus to see the light.**
+**May the Force be with you.**
 
-Aristotle Onassis
+Yoda
