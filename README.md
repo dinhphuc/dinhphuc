@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**And in the end, the love you take, is equal to the love you make.**
+**Wanting to be someone else is a waste of the person you are.**
 
-The Beatles
+Marilyn Monroe
