@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A gentle word, a kind look, a good-natured smile can work wonders and accomplish miracles.**
+**Life only comes around once, so do whatever makes you happy, and be with whoever makes you smile.**
 
-William Hazlitt
+Anonymous
