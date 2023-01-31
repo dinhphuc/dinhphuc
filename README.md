@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happy are those who take life day by day, complain very little, and are thankful for the little things in life.**
+**Surround yourself with only people who are going to lift you higher.**
 
-Anonymous
+Oprah
