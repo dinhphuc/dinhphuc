@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Spend your life with people who make you smile, laugh, and feel loved.**
+**Through challenge and difficulty, we learn to see life differently than before.**
 
-Roy T. Bennett
+Auliq-Ice
