@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Wanting to be someone else is a waste of the person you are.**
+**Live as if you were to die tomorrow. Learn as if you were to live forever.**
 
-Marilyn Monroe
+Mahatma Gandhi
