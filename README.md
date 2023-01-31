@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is what happens when you're busy making other plans.**
+**There is a difference between giving up and knowing when you've had enough.**
 
-John Lennon
+Anonymous
