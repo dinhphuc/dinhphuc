@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't gain anything from stressing. Remember that.**
+**Take it all one day at a time and enjoy the journey.**
 
-Anonymous
+Kristi Bartlett
