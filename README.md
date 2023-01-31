@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A person who never made a mistake never tried anything new.**
+**Spend your life with people who make you smile, laugh, and feel loved.**
 
-Albert Einstein
+Roy T. Bennett
