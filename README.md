@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**May the Force be with you.**
+**A gentle word, a kind look, a good-natured smile can work wonders and accomplish miracles.**
 
-Yoda
+William Hazlitt
