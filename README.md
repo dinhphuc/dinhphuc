@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is a difference between giving up and knowing when you've had enough.**
+**A good life is doing what you love as much as you can and doing what you must as much as you should.**
 
-Anonymous
+Savania China
