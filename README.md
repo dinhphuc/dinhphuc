@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength doesn't come from what you can do. It comes from overcoming the things you once thought you couldn't.**
+**Starting today, I need to forget what's gone. Appreciate what still remains and look forward to what's coming next.**
 
-Rikki Rogers
+Anonymous
