@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Through challenge and difficulty, we learn to see life differently than before.**
+**You don't gain anything from stressing. Remember that.**
 
-Auliq-Ice
+Anonymous
