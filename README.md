@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our problems don't stem from our ignorance so much as our disobedience of that which we know to be right.**
+**We must embrace pain and burn it as fuel for our journey.**
 
-Stephen Covey
+Kenji Miyazawa
