@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You alone are enough. You have nothing to prove to anybody.**
+**Happy are those who take life day by day, complain very little, and are thankful for the little things in life.**
 
-Maya Angelou
+Anonymous
