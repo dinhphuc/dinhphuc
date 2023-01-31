@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Go fast enough to get there, but slow enough to see.**
+**Our problems don't stem from our ignorance so much as our disobedience of that which we know to be right.**
 
-Jimmy Buffett
+Stephen Covey
