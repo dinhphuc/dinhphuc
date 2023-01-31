@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not what you look at that matters, it's what you see.**
+**You alone are enough. You have nothing to prove to anybody.**
 
-Henry David Thoreau
+Maya Angelou
