@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest glory in living lies not in never falling, but in rising every time we fall.**
+**No marathon gets easier later. The halfway point only marks the end of the beginning.**
 
-Nelson Mandela
+Joe Henderson
