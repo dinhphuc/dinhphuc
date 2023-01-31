@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We must embrace pain and burn it as fuel for our journey.**
+**It is during our darkest moments that we must focus to see the light.**
 
-Kenji Miyazawa
+Aristotle Onassis
