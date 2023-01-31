@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only person who can pull me down is myself, and I'm not going to let myself pull me down anymore.**
+**Go fast enough to get there, but slow enough to see.**
 
-C. JoyBell C
+Jimmy Buffett
