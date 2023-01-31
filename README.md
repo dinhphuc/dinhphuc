@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You only live once, but if you do it right, once is enough.**
+**There may be people that have more talent than you, but theres no excuse for anyone to work harder than you.**
 
-Mae West
+Derek Jeter
