@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Take it all one day at a time and enjoy the journey.**
+**Life is what happens when you're busy making other plans.**
 
-Kristi Bartlett
+John Lennon
