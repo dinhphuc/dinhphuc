@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence comes from discipline and training.**
+**And in the end, the love you take, is equal to the love you make.**
 
-Robert Kiyosaki
+The Beatles
