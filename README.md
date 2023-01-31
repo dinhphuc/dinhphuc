@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Starting today, I need to forget what's gone. Appreciate what still remains and look forward to what's coming next.**
+**When will you realize, the more you take, the less you have.**
 
-Anonymous
+Master Oogway
