@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When will you realize, the more you take, the less you have.**
+**It's not what you look at that matters, it's what you see.**
 
-Master Oogway
+Henry David Thoreau
