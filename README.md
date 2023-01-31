@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I was angry that I had no shoes. Then I met a man who had no feet.**
+**Whatever you decide to do, make sure it makes you happy.**
 
-Chinese Proverb
+Anonymous
