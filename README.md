@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A successful man is one who can lay a firm foundation with the bricks others have thrown at him.**
+**100% commitment is easier than 98% commitment.**
 
-David Brinkley
+Harvard Business School
