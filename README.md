@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The positive thinker sees the invisible, feels the intangible, and achieves the impossible.**
+**Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching.**
 
-Winston Churchill
+Satchel Paige
