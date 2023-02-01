@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happens to every guy sometimes this does.**
+**To know the road ahead, ask those coming back.**
 
-Yoda
+Chinese Proverb
