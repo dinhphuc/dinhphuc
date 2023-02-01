@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything you can imagine is real.**
+**Nobody who ever gave their best regretted it.**
 
-Pablo Picasso
+George Halas
