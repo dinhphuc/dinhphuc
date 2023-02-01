@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**How wonderful it is that nobody need wait a single moment before starting to improve the world.**
+**Just think how happy you would be if you lost everything you have right now, and then got it back again.**
 
-Anne Frank
+Frances Rodman
