@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hardships often prepare ordinary people for an extraordinary destiny.**
+**This a wonderful day. I've never seen this one before.**
 
-C.S. Lewis
+Maya Angelou
