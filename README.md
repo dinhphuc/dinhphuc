@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of being happy is accepting where you are in life and making the most out of everyday.**
+**A successful man is one who can lay a firm foundation with the bricks others have thrown at him.**
 
-Anonymous
+David Brinkley
