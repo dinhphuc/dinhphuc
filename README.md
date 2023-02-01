@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It always seems impossible until it's done.**
+**Control, control, you must learn control!**
 
-Nelson Mandela
+Yoda
