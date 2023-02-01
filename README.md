@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When written in Chinese the word "crisis" is composed of two characters - one represents danger and the other represents opportunity.**
+**Everything you can imagine is real.**
 
-John F. Kennedy
+Pablo Picasso
