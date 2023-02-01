@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't waste a minute not being happy. If one door closes, run to the next window - or break down a door.**
+**Happens to every guy sometimes this does.**
 
-Brooke Shields
+Yoda
