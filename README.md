@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If one dream should fall and break into a thousand pieces, never be afraid to pick one of those pieces up and begin again.**
+**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
 
-Flavia Weedn
+Wayne Dyer
