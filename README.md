@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do not blame the world. Find a solution.**
+**How wonderful it is that nobody need wait a single moment before starting to improve the world.**
 
-Sri Chinmoy
+Anne Frank
