@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Between stimulus and response, there is a space. In that space is our power to choose our response.**
+**With virtue, you can't be completely poor; without it, you can't be truly rich.**
 
-Viktor Frankl
+Chinese Proverb
