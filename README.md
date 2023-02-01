@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Throw kindness around like confetti.**
+**It always seems impossible until it's done.**
 
-Anonymous
+Nelson Mandela
