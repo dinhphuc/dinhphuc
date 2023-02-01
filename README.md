@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The sun itself is weak when it first rises, and gathers strength and courage as the day gets on.**
+**Between stimulus and response, there is a space. In that space is our power to choose our response.**
 
-Charles Dickens
+Viktor Frankl
