@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When we help ourselves, we find moments of happiness. When we help others, we find lasting fulfillment.**
+**Some people dream of success... while others wake up and work hard at it.**
 
-Simon Sinek
+Anonymous
