@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between stumbling blocks and stepping stones is how you use them.**
+**Happiness is an attitude. We either make ourselves miserable, or happy and strong. The amount of work is the same.**
 
-Anonymous
+Francesca Reigler
