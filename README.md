@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you look the right way, you can see that the whole world is a garden.**
+**The positive thinker sees the invisible, feels the intangible, and achieves the impossible.**
 
-Frances Hodgson Burnett
+Winston Churchill
