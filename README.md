@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**100% commitment is easier than 98% commitment.**
+**It matters not what someone is born, but what they grow to be.**
 
-Harvard Business School
+Master Oogway
