@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
+**Before telling secrets on the road, look in the bushes.**
 
-Wayne Dyer
+Chinese Proverb
