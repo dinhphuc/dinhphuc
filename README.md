@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Some people dream of success... while others wake up and work hard at it.**
+**The sun itself is weak when it first rises, and gathers strength and courage as the day gets on.**
 
-Anonymous
+Charles Dickens
