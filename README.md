@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody who ever gave their best regretted it.**
+**To give anything less than your best is to sacrifice the gift.**
 
-George Halas
+Steve Prefontaine
