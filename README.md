@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Winners make a habit of manufacturing their own positive expectations in advance of the event.**
+**The secret of being happy is accepting where you are in life and making the most out of everyday.**
 
-Brian Tracy
+Anonymous
