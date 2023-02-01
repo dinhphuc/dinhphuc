@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To know the road ahead, ask those coming back.**
+**Everything you can imagine is real.**
 
-Chinese Proverb
+Pablo Picasso
