@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Control, control, you must learn control!**
+**Do not blame the world. Find a solution.**
 
-Yoda
+Sri Chinmoy
