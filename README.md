@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**With virtue, you can't be completely poor; without it, you can't be truly rich.**
+**Don't waste a minute not being happy. If one door closes, run to the next window - or break down a door.**
 
-Chinese Proverb
+Brooke Shields
