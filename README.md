@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't worry about failure; you only have to be right once.**
+**When we help ourselves, we find moments of happiness. When we help others, we find lasting fulfillment.**
 
-Drew Houston
+Simon Sinek
