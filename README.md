@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To give anything less than your best is to sacrifice the gift.**
+**You are somebody's reason to smile.**
 
-Steve Prefontaine
+Anonymous
