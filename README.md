@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything you can imagine is real.**
+**Positive thinking will let you do everything better than negative thinking will.**
 
-Pablo Picasso
+Zig Ziglar
