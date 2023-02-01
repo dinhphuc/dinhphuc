@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You alone are enough. You have nothing to prove to anybody.**
+**If you look the right way, you can see that the whole world is a garden.**
 
-Maya Angelou
+Frances Hodgson Burnett
