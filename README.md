@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Positive thinking will let you do everything better than negative thinking will.**
+**Hardships often prepare ordinary people for an extraordinary destiny.**
 
-Zig Ziglar
+C.S. Lewis
