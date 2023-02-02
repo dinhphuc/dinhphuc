@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The vision of a champion is someone who is bent over, drenched in sweat, at the point of exhaustion when no one else is watching.**
+**It takes courage to grow up and become who you really are.**
 
-Jim Afremow
+E.E. Cummings
