@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You know that it's a fool who plays it cool by making his world a little colder.**
+**Once you replace negative thoughts with positive ones, you'll start having positive results.**
 
-The Beatles
+Willie Nelson
