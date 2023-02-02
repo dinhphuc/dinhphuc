@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The people who make you smile from just seeing them, those are my favorite people.**
+**Everything that is done in this world is done by hope.**
 
-Koi Fresco
+Martin Luther
