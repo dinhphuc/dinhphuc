@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Change yourself and fortune will change.**
+**Don't explain your philosophy. Embody it.**
 
-Portuguese Proverb
+Epictetus
