@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be happy. It really annoys negative people.**
+**Coming together is a beginning; keeping together is progress; working together is success.**
 
-Ricky Gervais
+Edward Everett Hale
