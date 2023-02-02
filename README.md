@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is really simple, but we insist on making it complicated.**
+**Be aware as often as possible of the great transformation process you are going through.**
 
-Confucius
+Anonymous
