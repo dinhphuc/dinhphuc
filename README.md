@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The man who views the world at 50 the same as he did at 20 has wasted 30 years of his life.**
+**The sun itself is weak when it first rises, and gathers strength and courage as the day gets on.**
 
-Muhammad Ali
+Charles Dickens
