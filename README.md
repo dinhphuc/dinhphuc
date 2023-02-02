@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be aware as often as possible of the great transformation process you are going through.**
+**Friends show their love in times of trouble, not in happiness.**
 
-Anonymous
+Euripides
