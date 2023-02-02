@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once you replace negative thoughts with positive ones, you'll start having positive results.**
+**You should never give up. No matter how hard the situation is, always believe that something beautiful is going to happen.**
 
-Willie Nelson
+Anonymous
