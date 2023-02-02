@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Coming together is a beginning; keeping together is progress; working together is success.**
+**Life without love is like a tree without blossoms or fruit.**
 
-Edward Everett Hale
+Khalil Gibran
