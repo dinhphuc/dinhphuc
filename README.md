@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The past does not equal the future.**
+**Don't stop until you're proud.**
 
-Tony Robbins
+Anonymous
