@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Where there is love there is life.**
+**You are stronger than you think.**
 
-Mahatma Gandhi
+Anonymous
