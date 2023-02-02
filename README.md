@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't give up on yourself. You're worth it.**
+**Life is really simple, but we insist on making it complicated.**
 
-Anonymous
+Confucius
