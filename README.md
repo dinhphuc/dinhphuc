@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't gain anything from stressing. Remember that.**
+**The people who make you smile from just seeing them, those are my favorite people.**
 
-Anonymous
+Koi Fresco
