@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A difficult time can be more readily endured if we retain the conviction that our existence holds a purpose - a cause to pursue, a person to love, a goal to achieve.**
+**Often it isn't the mountains ahead that wear you out, it's the little pebble in your shoe.**
 
-John Maxwell
+Muhammad Ali
