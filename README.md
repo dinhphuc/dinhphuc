@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is an attitude. We either make ourselves miserable, or happy and strong. The amount of work is the same.**
+**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
 
-Francesca Reigler
+Wayne Dyer
