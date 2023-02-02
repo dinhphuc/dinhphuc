@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile, and let the world wonder why.**
+**A teacher is better than two books.**
 
-Minnie Mouse
+German Proverb
