@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you depersonalize abrasive behavior and see it as a call for help you become a catalyst for the best kind of change.**
+**The man who views the world at 50 the same as he did at 20 has wasted 30 years of his life.**
 
-Marilyn Suttle
+Muhammad Ali
