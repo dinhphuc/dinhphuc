@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
+**Don't give up on yourself. You're worth it.**
 
-Wayne Dyer
+Anonymous
