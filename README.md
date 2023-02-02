@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Where there is love there is life.**
+**Smile, and let the world wonder why.**
 
-Mahatma Gandhi
+Minnie Mouse
