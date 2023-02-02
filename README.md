@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life without love is like a tree without blossoms or fruit.**
+**When you depersonalize abrasive behavior and see it as a call for help you become a catalyst for the best kind of change.**
 
-Khalil Gibran
+Marilyn Suttle
