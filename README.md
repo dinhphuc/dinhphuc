@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness resides not in possessions, and not in gold, happiness dwells in the soul.**
+**Where there is love there is life.**
 
-Democritus
+Mahatma Gandhi
