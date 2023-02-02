@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything that is done in this world is done by hope.**
+**I can't change the direction of the wind, but I can adjust my sails to always reach my destination.**
 
-Martin Luther
+Jimmy Dean
