@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Often it isn't the mountains ahead that wear you out, it's the little pebble in your shoe.**
+**At first they'll ask you why you're doing it. Later they'll ask how you did it.**
 
-Muhammad Ali
+Anonymous
