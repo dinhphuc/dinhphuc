@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**At first they'll ask you why you're doing it. Later they'll ask how you did it.**
+**Be happy. It really annoys negative people.**
 
-Anonymous
+Ricky Gervais
