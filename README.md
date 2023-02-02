@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There will be obstacles. There will be doubters. There will be mistakes. But with hard work, there are no limits.**
+**You know that it's a fool who plays it cool by making his world a little colder.**
 
-Anonymous
+The Beatles
