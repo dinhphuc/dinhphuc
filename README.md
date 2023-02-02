@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't stop until you're proud.**
+**Easy choices, hard life. Hard choices, easy life.**
 
-Anonymous
+Jerzy Gregorek
