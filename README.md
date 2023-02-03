@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We can be who we are without the pleasures but we could not be who we are not without the hardships.**
+**The greatest victory in life is to rise above the material things that we once valued most.**
 
-Anonymous
+Muhammad Ali
