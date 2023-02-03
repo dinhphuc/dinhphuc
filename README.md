@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Rock bottom became the solid foundation on which I rebuilt my life.**
+**At first they'll ask you why you're doing it. Later they'll ask how you did it.**
 
-J.K. Rowling
+Anonymous
