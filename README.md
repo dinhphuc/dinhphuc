@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything you've ever wanted is on the other side of fear.**
+**Don't count the days, make the days count.**
 
-George Addair
+Muhammad Ali
