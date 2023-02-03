@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Positive thinking will let you do everything better than negative thinking will.**
+**What you're thinking is what you're becoming.**
 
-Zig Ziglar
+Muhammad Ali
