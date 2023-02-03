@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest victory in life is to rise above the material things that we once valued most.**
+**All souls are lost until they are found.**
 
-Muhammad Ali
+Kate McGahan
