@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We all make mistakes, but the winner knows that success comes from perseverance: trying, failing, learning, and doing it again until he succeeds.**
+**We can be who we are without the pleasures but we could not be who we are not without the hardships.**
 
-Judy Ford
+Anonymous
