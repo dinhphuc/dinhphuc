@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is nothing permanent except change.**
+**A successful man is one who can lay a firm foundation with the bricks others have thrown at him.**
 
-Heraclitus
+David Brinkley
