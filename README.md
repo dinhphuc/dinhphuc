@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The pain you feel today will be the strength you feel tomorrow.**
+**Success is the ability to go from one failure to another with no loss of enthusiasm.**
 
-Anonymous
+Winston Churchill
