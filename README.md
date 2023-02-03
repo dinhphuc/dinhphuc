@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Look for something positive in each day, even if some days you have to look a little harder.**
+**You will never always be motivated. You have to learn to be disciplined.**
 
 Anonymous
