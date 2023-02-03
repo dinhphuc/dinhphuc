@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is the ability to go from one failure to another with no loss of enthusiasm.**
+**Don't worry about failure; you only have to be right once.**
 
-Winston Churchill
+Drew Houston
