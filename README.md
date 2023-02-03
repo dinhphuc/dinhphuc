@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A champion is someone who gets up when they can't.**
+**Fall seven times, stand up eight.**
 
-Jack Dempsey
+Japanese Proverb
