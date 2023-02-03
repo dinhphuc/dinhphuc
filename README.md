@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only time you fail is when you fall down and stay down.**
+**Attitude is everything. New day, new strength, new thoughts.**
 
-Stephen Richards
+Anonymous
