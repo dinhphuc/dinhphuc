@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Fall seven times, stand up eight.**
+**Work hard in silence. Let success make the noise.**
 
-Japanese Proverb
+Anonymous
