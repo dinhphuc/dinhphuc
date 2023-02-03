@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Work hard in silence. Let success make the noise.**
+**Everything you've ever wanted is on the other side of fear.**
 
-Anonymous
+George Addair
