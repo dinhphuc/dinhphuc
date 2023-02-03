@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Easy choices, hard life. Hard choices, easy life.**
+**Rock bottom became the solid foundation on which I rebuilt my life.**
 
-Jerzy Gregorek
+J.K. Rowling
