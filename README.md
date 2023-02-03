@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't count the days, make the days count.**
+**Positive thinking will let you do everything better than negative thinking will.**
 
-Muhammad Ali
+Zig Ziglar
