@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot fail at being yourself.**
+**If you can't live longer, live deeper.**
 
-Wayne Dyer
+Italian Proverb
