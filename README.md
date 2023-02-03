@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whether you think you can or can't, you're right.**
+**There is nothing permanent except change.**
 
-Henry Ford
+Heraclitus
