@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you're thinking is what you're becoming.**
+**You cannot fail at being yourself.**
 
-Muhammad Ali
+Wayne Dyer
