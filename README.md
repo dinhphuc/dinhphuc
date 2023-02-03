@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always two there are, no more, no less. A master and an apprentice.**
+**You don't want to look back and know you could have done better.**
 
-Yoda
+Anonymous
