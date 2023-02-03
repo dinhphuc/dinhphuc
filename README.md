@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A successful man is one who can lay a firm foundation with the bricks others have thrown at him.**
+**Whatever you do, be different. If you're different, you will stand out.**
 
-David Brinkley
+Anita Roddick
