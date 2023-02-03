@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't want to look back and know you could have done better.**
+**The only time you fail is when you fall down and stay down.**
 
-Anonymous
+Stephen Richards
