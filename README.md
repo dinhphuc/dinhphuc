@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can't live longer, live deeper.**
+**Look for something positive in each day, even if some days you have to look a little harder.**
 
-Italian Proverb
+Anonymous
