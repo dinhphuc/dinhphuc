@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All souls are lost until they are found.**
+**A champion is someone who gets up when they can't.**
 
-Kate McGahan
+Jack Dempsey
