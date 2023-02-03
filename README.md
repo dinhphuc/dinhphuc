@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only person who can pull me down is myself, and I'm not going to let myself pull me down anymore.**
+**Always two there are, no more, no less. A master and an apprentice.**
 
-C. JoyBell C
+Yoda
