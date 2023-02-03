@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**At first they'll ask you why you're doing it. Later they'll ask how you did it.**
+**Starting today, I need to forget what's gone. Appreciate what still remains and look forward to what's coming next.**
 
 Anonymous
