@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success usually comes to those who are too busy to be looking for it.**
+**When it gets difficult is often right before you succeed.**
 
-Henry David Thoreau
+Jeffrey Walker
