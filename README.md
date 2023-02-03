@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When it gets difficult is often right before you succeed.**
+**Whether you think you can or can't, you're right.**
 
-Jeffrey Walker
+Henry Ford
