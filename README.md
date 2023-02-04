@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In matters of style, swim with the current; in matters of principle, stand like a rock.**
+**I would rather die of passion than of boredom.**
 
-Thomas Jefferson
+Vincent van Gogh
