@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**100% commitment is easier than 98% commitment.**
+**It's not whether you get knocked down. It's whether you get back up.**
 
-Harvard Business School
+Vince Lombardi
