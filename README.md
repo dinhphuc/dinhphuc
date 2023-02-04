@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success usually comes to those who are too busy to be looking for it.**
+**Friends show their love in times of trouble, not in happiness.**
 
-Henry David Thoreau
+Euripides
