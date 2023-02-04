@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You have to be at your strongest when you're feeling at your weakest.**
+**A teacher is better than two books.**
 
-Anonymous
+German Proverb
