@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up. Keep going.**
+**Success usually comes to those who are too busy to be looking for it.**
 
-Anonymous
+Henry David Thoreau
