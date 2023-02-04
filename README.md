@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't sail out farther than you can row back.**
+**No act of kindness, no matter how small, is ever wasted.**
 
-Danish Proverb
+Aesop
