@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The wise listens to her mind, the foolish to the mob.**
+**There are only two mistakes one can make along the road to truth; not going all the way, and not starting.**
 
-Chinese Proverb
+Buddha
