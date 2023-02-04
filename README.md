@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Love who you are, embrace who you are. Love yourself.**
+**Never give up. Keep going.**
 
-Lilly Singh
+Anonymous
