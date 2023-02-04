@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once I realized the problem was not you but within me. I found inner peace and was able to harness the flow of the universe.**
+**Blessed are they who see beautiful things in humble places where other people see nothing.**
 
-Master Shifu
+Camille Pissaro
