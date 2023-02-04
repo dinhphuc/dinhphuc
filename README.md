@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Some people dream of success... while others wake up and work hard at it.**
+**Walk on with hope in your heart, and you'll never walk alone.**
 
-Anonymous
+Shah Rukh Khan
