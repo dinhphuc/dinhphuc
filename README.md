@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you do, be different. If you're different, you will stand out.**
+**I didn't fail the test. I just found 100 ways to do it wrong.**
 
-Anita Roddick
+Benjamin Franklin
