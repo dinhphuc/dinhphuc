@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm not here to be average, I'm here to be awesome.**
+**Well I am here to tell you that one of the best ways to make a difference, is by sharing a smile and radiating good positive energy.**
 
 Anonymous
