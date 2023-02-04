@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Friends show their love in times of trouble, not in happiness.**
+**You've got to find people who love like you do.**
 
-Euripides
+Anonymous
