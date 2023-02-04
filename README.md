@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You've got to find people who love like you do.**
+**Confidence is the ability to feel beautiful, without needing someone to tell you.**
 
 Anonymous
