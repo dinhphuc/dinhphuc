@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I didn't fail the test. I just found 100 ways to do it wrong.**
+**Winning doesn't always mean being first. Winning means you're doing better than you've done before.**
 
-Benjamin Franklin
+Bonnie Blair
