@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't like something, change it. If you can't change it, change your attitude.**
+**Once I realized the problem was not you but within me. I found inner peace and was able to harness the flow of the universe.**
 
-Maya Angelou
+Master Shifu
