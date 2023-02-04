@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The pain you feel today will be the strength you feel tomorrow.**
+**I'm not here to be average, I'm here to be awesome.**
 
 Anonymous
