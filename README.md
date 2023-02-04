@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence is the ability to feel beautiful, without needing someone to tell you.**
+**Confidence is not 'They will like me'. Confidence is 'I'll be fine if they don't'.**
 
 Anonymous
