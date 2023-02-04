@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only in the darkness can you see the stars.**
+**Good judgment comes from experience, and a lot of that comes from bad judgment.**
 
-Martin Luther King, Jr.
+Will Rogers
