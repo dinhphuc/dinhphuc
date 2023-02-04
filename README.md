@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be afraid of your fears. They're not there to scare you. They're there to let you know that something is worth it.**
+**Some people dream of success... while others wake up and work hard at it.**
 
-C. JoyBell C
+Anonymous
