@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I would rather die of passion than of boredom.**
+**The wise listens to her mind, the foolish to the mob.**
 
-Vincent van Gogh
+Chinese Proverb
