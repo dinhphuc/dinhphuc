@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Walk on with hope in your heart, and you'll never walk alone.**
+**100% commitment is easier than 98% commitment.**
 
-Shah Rukh Khan
+Harvard Business School
