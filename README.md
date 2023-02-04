@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Blessed are they who see beautiful things in humble places where other people see nothing.**
+**You have to be at your strongest when you're feeling at your weakest.**
 
-Camille Pissaro
+Anonymous
