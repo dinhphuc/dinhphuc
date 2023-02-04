@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A teacher is better than two books.**
+**The sweat. The time. The devotion. It pays off.**
 
-German Proverb
+Anonymous
