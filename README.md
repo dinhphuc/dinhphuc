@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not whether you get knocked down. It's whether you get back up.**
+**Don't sail out farther than you can row back.**
 
-Vince Lombardi
+Danish Proverb
