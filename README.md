@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good judgment comes from experience, and a lot of that comes from bad judgment.**
+**Love who you are, embrace who you are. Love yourself.**
 
-Will Rogers
+Lilly Singh
