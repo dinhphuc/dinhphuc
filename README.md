@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A truly rich man is one whose children run into his arms when his hands are empty.**
+**There may be people that have more talent than you, but theres no excuse for anyone to work harder than you.**
 
-Unknown
+Derek Jeter
