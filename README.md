@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can have everything you want in life if you just help enough people get what they want in life.**
+**A truly rich man is one whose children run into his arms when his hands are empty.**
 
-Zig Ziglar
+Unknown
