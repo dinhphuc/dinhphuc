@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One often meets his destiny on the road he takes to avoid it.**
+**An inch of gold can't buy an inch of time.**
 
-Master Oogway
+Chinese Proverb
