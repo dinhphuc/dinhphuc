@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Motivation is what gets you started. Habit is what keeps you going.**
+**You are enough, just as you are.**
 
-Jim Rohn
+Anonymous
