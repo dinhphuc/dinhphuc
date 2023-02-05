@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is the secret to all beauty. There is no beauty without happiness.**
+**When you want to talk about who made me, you talk to me. Who made me is ME.**
 
-Christian Dior
+Muhammad Ali
