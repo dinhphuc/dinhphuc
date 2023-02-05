@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you want to talk about who made me, you talk to me. Who made me is ME.**
+**Success is the sum of small efforts repeated day-in and day-out.**
 
-Muhammad Ali
+Robert Collier
