@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not so much that I began to run, but that I continued.**
+**Peace begins When expectation ends.**
 
-Hal Higdon
+Sri Chinmoy
