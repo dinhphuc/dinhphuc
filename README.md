@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Honesty is the first chapter in the book of wisdom.**
+**Do more of what lights you up and makes you feel alive. The world needs your spark.**
 
-Thomas Jefferson
+Anonymous
