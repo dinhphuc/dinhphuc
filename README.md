@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can either spend your time or invest your time.**
+**One of the simplest ways to be happy is letting go of the things that make you sad.**
 
-Chip Kelly
+Anonymous
