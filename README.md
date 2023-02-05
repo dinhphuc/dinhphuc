@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**An inch of gold can't buy an inch of time.**
+**It's not so much that I began to run, but that I continued.**
 
-Chinese Proverb
+Hal Higdon
