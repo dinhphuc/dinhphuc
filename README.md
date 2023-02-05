@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Move fast and break things. If you are not breaking things, you are not moving fast enough.**
+**You don't find will power, you create it.**
 
-Mark Zuckerberg
+Anonymous
