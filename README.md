@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't love what you do, you won't do it with much conviction or passion.**
+**I've never let anyone talk me into not believing in myself.**
 
-Mia Hamm
+Muhammad Ali
