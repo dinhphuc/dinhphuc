@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do more of what lights you up and makes you feel alive. The world needs your spark.**
+**We should never change our minds about where we are going, but always be curious about different ways to get there.**
 
-Anonymous
+Simon Sinek
