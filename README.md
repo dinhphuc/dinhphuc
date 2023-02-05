@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Peace begins When expectation ends.**
+**I know I have unlimited potential to create the life of my dreams.**
 
-Sri Chinmoy
+Anonymous
