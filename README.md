@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Easy choices, hard life. Hard choices, easy life.**
+**Motivation is what gets you started. Habit is what keeps you going.**
 
-Jerzy Gregorek
+Jim Rohn
