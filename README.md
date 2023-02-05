@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I know I have unlimited potential to create the life of my dreams.**
+**Successful people build each other up. They inspire, motivate, and push each other. Unsuccessful people just hate, blame, and complain.**
 
 Anonymous
