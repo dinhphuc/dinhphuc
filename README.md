@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't find will power, you create it.**
+**Easy choices, hard life. Hard choices, easy life.**
 
-Anonymous
+Jerzy Gregorek
