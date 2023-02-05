@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The absence of adversity is an indicator that my goals aren't significant enough.**
+**Whatever the mind can conceive and believe, it can achieve.**
 
-Clint Bruce
+Napoleon Hill
