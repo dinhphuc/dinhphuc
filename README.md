@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There may be people that have more talent than you, but theres no excuse for anyone to work harder than you.**
+**Happiness is the secret to all beauty. There is no beauty without happiness.**
 
-Derek Jeter
+Christian Dior
