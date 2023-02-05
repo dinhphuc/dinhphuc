@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Winning doesn't always mean being first. Winning means you're doing better than you've done before.**
+**The real opportunity for success lies within the person and not in the job.**
 
-Bonnie Blair
+Zig Ziglar
