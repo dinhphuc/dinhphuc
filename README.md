@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Replace those thoughts of worry with thoughts of hope, faith, and victory.**
+**Honesty is the first chapter in the book of wisdom.**
 
-Joel Osteen
+Thomas Jefferson
