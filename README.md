@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is the sum of small efforts repeated day-in and day-out.**
+**I can and I will. Watch me.**
 
-Robert Collier
+Carrie Green
