@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The real opportunity for success lies within the person and not in the job.**
+**Replace those thoughts of worry with thoughts of hope, faith, and victory.**
 
-Zig Ziglar
+Joel Osteen
