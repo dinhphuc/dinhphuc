@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you cannot do great things, do small things in a great way.**
+**You can have everything you want in life if you just help enough people get what they want in life.**
 
-Napoleon Hill
+Zig Ziglar
