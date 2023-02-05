@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I can and I will. Watch me.**
+**One often meets his destiny on the road he takes to avoid it.**
 
-Carrie Green
+Master Oogway
