@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We should never change our minds about where we are going, but always be curious about different ways to get there.**
+**If you don't love what you do, you won't do it with much conviction or passion.**
 
-Simon Sinek
+Mia Hamm
