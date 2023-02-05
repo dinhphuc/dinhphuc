@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever the mind can conceive and believe, it can achieve.**
+**It's a good day to be happy.**
 
-Napoleon Hill
+Anonymous
