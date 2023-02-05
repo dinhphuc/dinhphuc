@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Successful people build each other up. They inspire, motivate, and push each other. Unsuccessful people just hate, blame, and complain.**
+**I survived because the fire inside me burned brighter than the fire around me.**
 
-Anonymous
+Joshua Graham
