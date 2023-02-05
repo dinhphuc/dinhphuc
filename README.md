@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are enough, just as you are.**
+**Strength does not come from physical capacity. It comes from an indomitable will.**
 
-Anonymous
+Mahatma Gandhi
