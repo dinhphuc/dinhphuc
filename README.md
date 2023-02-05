@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's a good day to be happy.**
+**If you cannot do great things, do small things in a great way.**
 
-Anonymous
+Napoleon Hill
