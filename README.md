@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength does not come from physical capacity. It comes from an indomitable will.**
+**You can either spend your time or invest your time.**
 
-Mahatma Gandhi
+Chip Kelly
