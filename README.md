@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Gratitude is the sweetest thing in a seeker's life- in all human life. If there is gratitude in your heart, then there will be tremendous sweetness in your eyes.**
+**Move fast and break things. If you are not breaking things, you are not moving fast enough.**
 
-Sri Chinmoy
+Mark Zuckerberg
