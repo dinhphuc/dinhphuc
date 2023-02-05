@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I survived because the fire inside me burned brighter than the fire around me.**
+**Don't wait for opportunity. Create it.**
 
-Joshua Graham
+Anonymous
