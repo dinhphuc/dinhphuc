@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I've never let anyone talk me into not believing in myself.**
+**Smile at strangers and you just might change a life.**
 
-Muhammad Ali
+Steve Maraboli
