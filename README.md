@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can have everything you want in life if you just help enough people get what they want in life.**
+**When someone told me I lived in a fantasy land, I nearly fell off my unicorn.**
 
-Zig Ziglar
+Anonymous
