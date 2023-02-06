@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't gain anything from stressing. Remember that.**
+**It is not in the stars to hold our destiny but in ourselves.**
 
-Anonymous
+William Shakespeare
