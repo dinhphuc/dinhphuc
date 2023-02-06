@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In a dark place we find ourselves, and a little more knowledge lights our way.**
+**In order to carry a positive action we must develop here a positive vision.**
 
-Yoda
+Dalai Lama
