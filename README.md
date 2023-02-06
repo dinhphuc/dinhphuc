@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't manifest dreams without taking chances.**
+**When you find an idea that you just can't stop thinking about, that's probably a good one to pursue.**
 
-Stephen Richards
+Josh James
