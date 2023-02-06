@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Let your unique awesomeness and positive energy inspire confidence in others.**
+**Life chips away at us all. Some play the victim. Some choose to be a survivor. And then there are those who choose to conquer.**
 
 Anonymous
