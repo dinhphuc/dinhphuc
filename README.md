@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Accept yourself, love yourself, and keep moving forward.**
+**It is only possible to live happily ever after on a daily basis.**
 
-Roy T. Bennett
+Anonymous
