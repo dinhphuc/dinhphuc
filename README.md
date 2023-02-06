@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't cry because it's over, smile because it happened.**
+**All things equal, people will do business with, and refer business to, people they know trust and like.**
 
-Dr. Seuss
+Bob Burg
