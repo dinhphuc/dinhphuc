@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If I have the belief that I can do it, I shall surely acquire the capacity to do it even if I may not have it at the beginning.**
+**The greatest danger for most of us is not that our aim is too high and we miss it, but that it is too low and we reach it.**
 
-Gandhi
+Michaelangelo
