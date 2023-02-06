@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All things equal, people will do business with, and refer business to, people they know trust and like.**
+**You don't gain anything from stressing. Remember that.**
 
-Bob Burg
+Anonymous
