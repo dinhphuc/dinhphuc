@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't gain anything from stressing. Remember that.**
+**Life is either a daring adventure or nothing at all.**
 
-Anonymous
+Helen Keller
