@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**So certain were you. Go back and closer you must look.**
+**All our dreams can come true, if we have the courage to pursue them.**
 
-Yoda
+Walt Disney
