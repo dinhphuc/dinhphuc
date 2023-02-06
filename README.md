@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to change the world, start with yourself.**
+**To be willing is only half the task.**
 
-Mahatma Gandhi
+Armenian Proverb
