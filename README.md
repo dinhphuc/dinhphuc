@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.**
+**Be strong when you are weak, brave when you are scared, and humble when you are victorious.**
 
-Henry Ford
+Anonymous
