@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In order to carry a positive action we must develop here a positive vision.**
+**Everywhere you go, take a smile with you.**
 
-Dalai Lama
+Sasha Azevedo
