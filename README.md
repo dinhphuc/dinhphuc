@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Walk on with hope in your heart, and you'll never walk alone.**
+**If you can't stop thinking about it, don't stop working for it.**
 
-Shah Rukh Khan
+Anonymous
