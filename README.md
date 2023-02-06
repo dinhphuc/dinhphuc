@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you find an idea that you just can't stop thinking about, that's probably a good one to pursue.**
+**Do something today that your future self will thank you for.**
 
-Josh James
+Anonymous
