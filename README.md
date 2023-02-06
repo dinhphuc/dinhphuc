@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All our dreams can come true, if we have the courage to pursue them.**
+**You don't gain anything from stressing. Remember that.**
 
-Walt Disney
+Anonymous
