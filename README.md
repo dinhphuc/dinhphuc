@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I've never let anyone talk me into not believing in myself.**
+**Whatever the mind can conceive and believe, it can achieve.**
 
-Muhammad Ali
+Napoleon Hill
