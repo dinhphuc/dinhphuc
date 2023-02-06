@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is only possible to live happily ever after on a daily basis.**
+**Confidence comes from discipline and training.**
 
-Anonymous
+Robert Kiyosaki
