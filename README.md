@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Do something today that your future self will thank you for.**
+**I've never let anyone talk me into not believing in myself.**
 
-Anonymous
+Muhammad Ali
