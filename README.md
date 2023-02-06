@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only easy day was yesterday.**
+**Let your unique awesomeness and positive energy inspire confidence in others.**
 
-Navy Seals
+Anonymous
