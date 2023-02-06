@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're going through hell, keep going.**
+**So certain were you. Go back and closer you must look.**
 
-Winston Churchill
+Yoda
