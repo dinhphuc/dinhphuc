@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To be willing is only half the task.**
+**Blessings sometimes show up in unrecognizable disguises.**
 
-Armenian Proverb
+Janette Oke
