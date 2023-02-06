@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is a journey ... not a destination.**
+**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
 
-Ben Sweetland
+Wayne Dyer
