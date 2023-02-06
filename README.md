@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be strong when you are weak, brave when you are scared, and humble when you are victorious.**
+**Walk on with hope in your heart, and you'll never walk alone.**
 
-Anonymous
+Shah Rukh Khan
