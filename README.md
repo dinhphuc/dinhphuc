@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The past does not equal the future.**
+**Don't cry because it's over, smile because it happened.**
 
-Tony Robbins
+Dr. Seuss
