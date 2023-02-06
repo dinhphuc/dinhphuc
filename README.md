@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are a masterpiece.**
+**The only easy day was yesterday.**
 
-Anonymous
+Navy Seals
