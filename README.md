@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
+**You can have everything you want in life if you just help enough people get what they want in life.**
 
-Wayne Dyer
+Zig Ziglar
