@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not in the stars to hold our destiny but in ourselves.**
+**Accept yourself, love yourself, and keep moving forward.**
 
-William Shakespeare
+Roy T. Bennett
