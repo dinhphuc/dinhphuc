@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everywhere you go, take a smile with you.**
+**You don't manifest dreams without taking chances.**
 
-Sasha Azevedo
+Stephen Richards
