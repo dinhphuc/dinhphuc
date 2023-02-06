@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile at strangers and you just might change a life.**
+**It takes courage to grow up and become who you really are.**
 
-Steve Maraboli
+E.E. Cummings
