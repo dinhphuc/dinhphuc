@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Learn to value yourself, which means: fight for your happiness.**
+**Opportunities to find deeper powers within ourselves come when life seems most challenging.**
 
-Ayn Rand
+Joseph Campbell
