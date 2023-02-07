@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be aware as often as possible of the great transformation process you are going through.**
+**Float like a butterfly, sting like a bee. The hands can't hit what the eyes can't see.**
 
-Anonymous
+Muhammad Ali
