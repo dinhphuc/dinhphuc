@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Surround yourself with only people who are going to lift you higher.**
+**Be strong now, because things will get better. It might be stormy now, but it can't rain forever.**
 
-Oprah
+Anonymous
