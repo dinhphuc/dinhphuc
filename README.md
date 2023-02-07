@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever the mind can conceive and believe, it can achieve.**
+**Keep going. Everything you need will come to you at the perfect time.**
 
-Napoleon Hill
+Anonymous
