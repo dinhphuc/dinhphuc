@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life isn't about finding yourself. Life is about creating yourself.**
+**Run when you can, walk if you have to, crawl if you must; just never give up.**
 
-George Bernard Shaw
+Dean Karnazes
