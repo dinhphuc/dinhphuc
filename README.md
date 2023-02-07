@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All that matters is how you see yourself.**
+**There are so many beautiful reasons to be happy.**
 
-Conor McGregor
+Anonymous
