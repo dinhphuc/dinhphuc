@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Always find opportunities to make someone smile, and to offer random acts of kindness in everyday life.**
+**It is not in the stars to hold our destiny but in ourselves.**
 
-Roy T. Bennett
+William Shakespeare
