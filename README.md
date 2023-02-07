@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can't find the opportunities you're looking for...create them.**
+**Through challenge and difficulty, we learn to see life differently than before.**
 
-Anonymous
+Auliq-Ice
