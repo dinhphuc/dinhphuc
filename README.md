@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Starting today, I need to forget what's gone. Appreciate what still remains and look forward to what's coming next.**
+**Learn to value yourself, which means: fight for your happiness.**
 
-Anonymous
+Ayn Rand
