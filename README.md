@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are so many beautiful reasons to be happy.**
+**If you can't find the opportunities you're looking for...create them.**
 
 Anonymous
