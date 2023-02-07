@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you see in yourself is what you see in the world.**
+**The trophy is earned in the hours that no one is watching.**
 
-Afghan Proverb
+Anonymous
