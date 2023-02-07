@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be crazy. Be stupid. Be silly. Be weird. Be whatever. Because life is too short to be anything but happy.**
+**Always find opportunities to make someone smile, and to offer random acts of kindness in everyday life.**
 
-Anonymous
+Roy T. Bennett
