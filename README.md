@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The trophy is earned in the hours that no one is watching.**
+**Good, better, best. Never let it rest. Until your good is better and your better is best.**
 
-Anonymous
+Tim Duncan
