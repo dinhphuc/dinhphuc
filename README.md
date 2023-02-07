@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you really look closely, most overnight successes took a long time.**
+**Never give up. You only get one life. Go for it.**
 
-Steve Jobs
+Richard E. Grant
