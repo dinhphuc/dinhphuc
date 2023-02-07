@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Once I realized the problem was not you but within me. I found inner peace and was able to harness the flow of the universe.**
+**Be aware as often as possible of the great transformation process you are going through.**
 
-Master Shifu
+Anonymous
