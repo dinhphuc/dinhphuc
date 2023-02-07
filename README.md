@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If it is important to you, you will find a way. If not, you'll find an excuse.**
+**Starting today, I need to forget what's gone. Appreciate what still remains and look forward to what's coming next.**
 
 Anonymous
