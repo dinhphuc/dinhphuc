@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's a good day to be happy.**
+**The things you regret most in life are the risks you didn't take.**
 
 Anonymous
