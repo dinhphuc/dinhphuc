@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can either spend your time or invest your time.**
+**Life isn't about finding yourself. Life is about creating yourself.**
 
-Chip Kelly
+George Bernard Shaw
