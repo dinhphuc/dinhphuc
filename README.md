@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Opportunities to find deeper powers within ourselves come when life seems most challenging.**
+**You can either spend your time or invest your time.**
 
-Joseph Campbell
+Chip Kelly
