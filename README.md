@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Float like a butterfly, sting like a bee. The hands can't hit what the eyes can't see.**
+**If you really look closely, most overnight successes took a long time.**
 
-Muhammad Ali
+Steve Jobs
