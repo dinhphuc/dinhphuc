@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not in the stars to hold our destiny but in ourselves.**
+**I am in charge of how I feel and today I am choosing happiness.**
 
-William Shakespeare
+Anonymous
