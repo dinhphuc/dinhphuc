@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I am in charge of how I feel and today I am choosing happiness.**
+**Surround yourself with only people who are going to lift you higher.**
 
-Anonymous
+Oprah
