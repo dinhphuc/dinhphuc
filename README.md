@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Run when you can, walk if you have to, crawl if you must; just never give up.**
+**Always find opportunities to make someone smile, and to offer random acts of kindness in everyday life.**
 
-Dean Karnazes
+Roy T. Bennett
