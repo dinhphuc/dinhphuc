@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up. You only get one life. Go for it.**
+**What you see in yourself is what you see in the world.**
 
-Richard E. Grant
+Afghan Proverb
