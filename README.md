@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no hope at all.**
+**The very best thing you can do for the whole world is to make the best of yourself.**
 
-Dale Carnegie
+Anonymous
