@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Being entirely honest with oneself is a good exercise.**
+**It's a good day to be happy.**
 
-Sigmund Freud
+Anonymous
