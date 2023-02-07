@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no cosmetic for beauty like happiness.**
+**It is not in the stars to hold our destiny but in ourselves.**
 
-Maria Mitchell
+William Shakespeare
