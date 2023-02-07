@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good, better, best. Never let it rest. Until your good is better and your better is best.**
+**Be crazy. Be stupid. Be silly. Be weird. Be whatever. Because life is too short to be anything but happy.**
 
-Tim Duncan
+Anonymous
