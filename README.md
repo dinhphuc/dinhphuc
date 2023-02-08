@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing is impossible, the word itself says "I'm possible"!**
+**Be so happy that when others look at you they become happy too.**
 
-Audrey Hepburn
+Anonymous
