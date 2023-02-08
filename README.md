@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The first place where self-esteem begins its journey is within us.**
+**It is only possible to live happily ever after on a daily basis.**
 
-Stephen Richards
+Anonymous
