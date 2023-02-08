@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Inhale confidence. Exhale doubt.**
+**If you want it, you'll find a way. If you don't, you'll find an excuse.**
 
 Anonymous
