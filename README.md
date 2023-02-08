@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you only do what you can do, you will never be more than you are now.**
+**The journey of a thousand miles begins with one step.**
 
-Master Oogway
+Lao Tzu
