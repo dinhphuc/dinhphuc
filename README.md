@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To be a great champion you must believe you are the best. If you're not, pretend you are.**
+**Opportunities to find deeper powers within ourselves come when life seems most challenging.**
 
-Muhammad Ali
+Joseph Campbell
