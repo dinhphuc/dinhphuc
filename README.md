@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**With confidence you have won before you have started.**
+**Life isn't about waiting for the storm to pass, it's about learning how to dance in the rain.**
 
-Marcus Garvey
+Vivian Greene
