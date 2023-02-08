@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can alter mood by running.**
+**Beauty begins the moment you decide to be yourself.**
 
-Tumpal Sihombing
+Coco Chanel
