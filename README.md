@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life isn't about waiting for the storm to pass, it's about learning how to dance in the rain.**
+**If you only do what you can do, you will never be more than you are now.**
 
-Vivian Greene
+Master Oogway
