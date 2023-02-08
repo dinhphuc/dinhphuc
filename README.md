@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Courage is taking those first steps toward your dreams even if you can't see the path ahead.**
+**Teachers open the door; you enter by yourself.**
 
-Anonymous
+Chinese Proverb
