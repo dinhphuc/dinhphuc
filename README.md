@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be so happy that when others look at you they become happy too.**
+**I'm too grateful to be hateful. I am too blessed to be stressed.**
 
-Anonymous
+El DeBarge
