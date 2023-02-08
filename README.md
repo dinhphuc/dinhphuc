@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It ain't as bad as you think. It will look better in the morning.**
+**You can either spend your time or invest your time.**
 
-Colin Powell
+Chip Kelly
