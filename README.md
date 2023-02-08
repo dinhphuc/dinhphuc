@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A team is not a group of people that work together. A team is a group of people that trust each other.**
+**You miss 100% of the shots you don't take.**
 
-Simon Sinek
+Wayne Gretzky
