@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Opportunities to find deeper powers within ourselves come when life seems most challenging.**
+**A team is not a group of people that work together. A team is a group of people that trust each other.**
 
-Joseph Campbell
+Simon Sinek
