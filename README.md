@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Self-belief and hard work will always earn you success.**
+**The first place where self-esteem begins its journey is within us.**
 
-Virat Kohli
+Stephen Richards
