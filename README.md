@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Another day another blessing.**
+**You don't go up to the top, you grow up to the top.**
 
-Anonymous
+John C. Maxwell
