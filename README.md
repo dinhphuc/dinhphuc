@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is a magical ride. Enjoy every moment.**
+**There's never enough time to do everything, but there's always enough time to do the most important thing.**
 
-Anonymous
+Dean Bokhari
