@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Challenges are what make life interesting and overcoming them is what makes life meaningful.**
+**With confidence you have won before you have started.**
 
-Joshua Marine
+Marcus Garvey
