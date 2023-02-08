@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You miss 100% of the shots you don't take.**
+**Self-belief and hard work will always earn you success.**
 
-Wayne Gretzky
+Virat Kohli
