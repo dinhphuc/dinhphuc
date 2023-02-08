@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I will not follow where the path may lead, but I will go where there is no path, and I will leave a trail.**
+**Strength isn't about how much you can handle before you break. It's about how much you can endure after you've been broken.**
 
-Muriel Strode
+Anonymous
