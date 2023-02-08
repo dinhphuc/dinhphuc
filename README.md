@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Teachers open the door; you enter by yourself.**
+**The man who views the world at 50 the same as he did at 20 has wasted 30 years of his life.**
 
-Chinese Proverb
+Muhammad Ali
