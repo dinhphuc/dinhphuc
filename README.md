@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The past does not equal the future.**
+**Another day another blessing.**
 
-Tony Robbins
+Anonymous
