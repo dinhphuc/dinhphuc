@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.**
+**It ain't as bad as you think. It will look better in the morning.**
 
-Napoleon Hill
+Colin Powell
