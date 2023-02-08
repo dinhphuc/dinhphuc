@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want it, you'll find a way. If you don't, you'll find an excuse.**
+**Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.**
 
-Anonymous
+Napoleon Hill
