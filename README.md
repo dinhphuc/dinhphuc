@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is only possible to live happily ever after on a daily basis.**
+**The past does not equal the future.**
 
-Anonymous
+Tony Robbins
