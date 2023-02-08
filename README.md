@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Beauty begins the moment you decide to be yourself.**
+**Nothing is impossible, the word itself says "I'm possible"!**
 
-Coco Chanel
+Audrey Hepburn
