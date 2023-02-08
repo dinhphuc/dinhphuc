@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One who moves a mountain begins by carrying away small stones.**
+**How long are you going to wait before you demand the best for yourself?**
 
-Confucius
+Epictetus
