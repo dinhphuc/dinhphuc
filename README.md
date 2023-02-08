@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The wise listens to her mind, the foolish to the mob.**
+**One who moves a mountain begins by carrying away small stones.**
 
-Chinese Proverb
+Confucius
