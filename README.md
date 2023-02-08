@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**How long are you going to wait before you demand the best for yourself?**
+**It's hard to beat a person who never gives up.**
 
-Epictetus
+Anonymous
