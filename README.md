@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The journey of a thousand miles begins with one step.**
+**Appreciate the people who make you smile.**
 
-Lao Tzu
+Anonymous
