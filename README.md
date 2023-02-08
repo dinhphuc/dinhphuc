@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's hard to beat a person who never gives up.**
+**Life is a magical ride. Enjoy every moment.**
 
 Anonymous
