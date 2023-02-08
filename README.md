@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Appreciate the people who make you smile.**
+**Do more of what lights you up and makes you feel alive. The world needs your spark.**
 
 Anonymous
