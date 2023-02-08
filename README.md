@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Inhale confidence. Exhale doubt.**
+**You can alter mood by running.**
 
-Anonymous
+Tumpal Sihombing
