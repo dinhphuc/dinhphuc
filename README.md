@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When something is important enough, you do it even if the odds are not in your favor.**
+**Nothing is impossible, the word itself says "I'm possible"!**
 
-Elon Musk
+Audrey Hepburn
