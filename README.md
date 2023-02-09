@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happens to every guy sometimes this does.**
+**Happiness is not something ready made. It comes from your own actions.**
 
-Yoda
+Dalai Lama
