@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength is the product of struggle. You must do what others don't to achieve what others wont.**
+**Setting goals is the first step into turning the invisible into the visible.**
 
-Henry Rollins
+Tony Robbins
