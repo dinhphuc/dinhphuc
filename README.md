@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If it is important to you, you will find a way. If not, you'll find an excuse.**
+**You will be exactly as happy as you decide to be.**
 
 Anonymous
