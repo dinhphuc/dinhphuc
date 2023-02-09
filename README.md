@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is not something ready made. It comes from your own actions.**
+**When the 'why' is clear, the 'how' is easy.**
 
-Dalai Lama
+Anonymous
