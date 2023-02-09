@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I can't change the direction of the wind, but I can adjust my sails to always reach my destination.**
+**If you only do what you can do, you will never be more than you are now.**
 
-Jimmy Dean
+Master Oogway
