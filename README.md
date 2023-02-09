@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you only do what you can do, you will never be more than you are now.**
+**Successful people build each other up. They inspire, motivate, and push each other. Unsuccessful people just hate, blame, and complain.**
 
-Master Oogway
+Anonymous
