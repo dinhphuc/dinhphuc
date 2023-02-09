@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Replace those thoughts of worry with thoughts of hope, faith, and victory.**
+**When it comes to success, there are no shortcuts.**
 
-Joel Osteen
+Bo Bennett
