@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strive not to be a success, but rather to be of value.**
+**Pain is temporary. Quitting lasts forever.**
 
-Albert Einstein
+Lance Armstrong
