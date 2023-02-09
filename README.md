@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**All things equal, people will do business with, and refer business to, people they know trust and like.**
+**Everywhere you go, take a smile with you.**
 
-Bob Burg
+Sasha Azevedo
