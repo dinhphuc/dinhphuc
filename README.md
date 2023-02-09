@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pain is temporary. Quitting lasts forever.**
+**You don't manifest dreams without taking chances.**
 
-Lance Armstrong
+Stephen Richards
