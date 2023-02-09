@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Give up on being perfect and start working on becoming yourself.**
+**When you want to succeed as bad as you want to breathe, you will be successful.**
 
-Anna Quindlen
+Eric Thomas
