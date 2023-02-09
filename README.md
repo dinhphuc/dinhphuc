@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When the 'why' is clear, the 'how' is easy.**
+**Strive not to be a success, but rather to be of value.**
 
-Anonymous
+Albert Einstein
