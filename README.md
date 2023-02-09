@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Successful people build each other up. They inspire, motivate, and push each other. Unsuccessful people just hate, blame, and complain.**
+**If it is important to you, you will find a way. If not, you'll find an excuse.**
 
 Anonymous
