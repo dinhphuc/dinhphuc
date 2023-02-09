@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Beauty lies in the eye of the beholder.**
+**Give up on being perfect and start working on becoming yourself.**
 
-English Proverb
+Anna Quindlen
