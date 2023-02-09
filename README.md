@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you're thinking is what you're becoming.**
+**Our greatest ability as humans is not to change the world; but to change ourselves.**
 
-Muhammad Ali
+Mahatma Gandhi
