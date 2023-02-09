@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of success is to do the common thing uncommonly well.**
+**It's easy to stand in the crowd but it takes courage to stand alone.**
 
-John D. Rockefeller Jr
+Mahatma Gandhi
