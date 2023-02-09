@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A truly happy person is one who can enjoy the scenery when they have made a wrong turn.**
+**Failure is not the opposite of success. Its part of success.**
 
 Anonymous
