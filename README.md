@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't manifest dreams without taking chances.**
+**The secret of success is to do the common thing uncommonly well.**
 
-Stephen Richards
+John D. Rockefeller Jr
