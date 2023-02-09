@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Positive thinking will let you do everything better than negative thinking will.**
+**In this life we cannot do great things. We can only do small things with great love.**
 
-Zig Ziglar
+Mother Teresa
