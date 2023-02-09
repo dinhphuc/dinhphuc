@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In this life we cannot do great things. We can only do small things with great love.**
+**Good friends are like stars. You don't always see them, but you know they're always there.**
 
-Mother Teresa
+Christy Evans
