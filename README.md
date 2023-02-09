@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Appreciate the people who make you smile.**
+**Champions keep playing until they get it right.**
 
-Anonymous
+Billie Jean King
