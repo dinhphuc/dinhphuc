@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good friends are like stars. You don't always see them, but you know they're always there.**
+**When something is important enough, you do it even if the odds are not in your favor.**
 
-Christy Evans
+Elon Musk
