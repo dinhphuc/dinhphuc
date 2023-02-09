@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Work hard and be nice to people.**
+**Strength is the product of struggle. You must do what others don't to achieve what others wont.**
 
-Anonymous
+Henry Rollins
