@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can either spend your time or invest your time.**
+**All things equal, people will do business with, and refer business to, people they know trust and like.**
 
-Chip Kelly
+Bob Burg
