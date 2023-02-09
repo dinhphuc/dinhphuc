@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing is impossible, the word itself says "I'm possible"!**
+**I think that the good and the great are only separated by the willingness to sacrifice.**
 
-Audrey Hepburn
+Kareem Abdul-Jabbar
