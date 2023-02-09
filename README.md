@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I think that the good and the great are only separated by the willingness to sacrifice.**
+**What you're thinking is what you're becoming.**
 
-Kareem Abdul-Jabbar
+Muhammad Ali
