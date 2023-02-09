@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everywhere you go, take a smile with you.**
+**A leader is one who knows the way, goes the way, and shows the way.**
 
-Sasha Azevedo
+John C. Maxwell
