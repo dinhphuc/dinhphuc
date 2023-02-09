@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you want to succeed as bad as you want to breathe, you will be successful.**
+**Replace those thoughts of worry with thoughts of hope, faith, and victory.**
 
-Eric Thomas
+Joel Osteen
