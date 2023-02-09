@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Setting goals is the first step into turning the invisible into the visible.**
+**A truly happy person is one who can enjoy the scenery when they have made a wrong turn.**
 
-Tony Robbins
+Anonymous
