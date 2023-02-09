@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A leader is one who knows the way, goes the way, and shows the way.**
+**Beauty lies in the eye of the beholder.**
 
-John C. Maxwell
+English Proverb
