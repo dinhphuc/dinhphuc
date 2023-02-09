@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You will be exactly as happy as you decide to be.**
+**Positive thinking will let you do everything better than negative thinking will.**
 
-Anonymous
+Zig Ziglar
