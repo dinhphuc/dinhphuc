@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest ability as humans is not to change the world; but to change ourselves.**
+**If you're going through hell, keep going.**
 
-Mahatma Gandhi
+Winston Churchill
