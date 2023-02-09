@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Champions keep playing until they get it right.**
+**A fault confessed is half redressed.**
 
-Billie Jean King
+Zulu Proverb
