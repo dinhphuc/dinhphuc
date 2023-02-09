@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When it comes to success, there are no shortcuts.**
+**Happens to every guy sometimes this does.**
 
-Bo Bennett
+Yoda
