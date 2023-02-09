@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're going through hell, keep going.**
+**Look for something positive in each day, even if some days you have to look a little harder.**
 
-Winston Churchill
+Anonymous
