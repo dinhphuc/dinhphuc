@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence is something you create in yourself by believing in who you are.**
+**A new command I give you: Love one another.**
 
-Anonymous
+Jesus Christ
