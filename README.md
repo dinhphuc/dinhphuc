@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I have found that if you love life, life will love you back.**
+**We all make mistakes, but the winner knows that success comes from perseverance: trying, failing, learning, and doing it again until he succeeds.**
 
-Arthur Rubinstein
+Judy Ford
