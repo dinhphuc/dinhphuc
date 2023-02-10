@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Learning never exhausts the mind.**
+**An inch of gold can't buy an inch of time.**
 
-Leonardo da Vinci
+Chinese Proverb
