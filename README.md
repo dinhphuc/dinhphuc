@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A fault confessed is half redressed.**
+**So certain were you. Go back and closer you must look.**
 
-Zulu Proverb
+Yoda
