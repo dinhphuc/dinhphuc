@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Leadership is not about being in charge. Leadership is about taking care of those in your charge.**
+**Change your thoughts and you change your world.**
 
-Simon Sinek
+Norman Vincent Peale
