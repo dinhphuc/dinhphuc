@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter who you are, no matter what you did, no matter where you've come from, you can always change, and become a better version of yourself.**
+**Strength does not come from physical capacity. It comes from an indomitable will.**
 
-Madonna
+Mahatma Gandhi
