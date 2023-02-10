@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Give up on being perfect and start working on becoming yourself.**
+**Change your thoughts and you change your world.**
 
-Anna Quindlen
+Norman Vincent Peale
