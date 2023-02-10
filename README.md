@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**An inch of gold can't buy an inch of time.**
+**The best way to predict your future is to create it.**
 
-Chinese Proverb
+Peter F. Drucker
