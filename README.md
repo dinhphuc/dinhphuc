@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Use your smile to change the world; don't let the world change your smile.**
+**One conquers the world by conquering himself.**
 
-Chinese proverb
+Zeno of Citium
