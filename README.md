@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence is the ability to feel beautiful, without needing someone to tell you.**
+**Learning never exhausts the mind.**
 
-Anonymous
+Leonardo da Vinci
