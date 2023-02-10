@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Change your thoughts and you change your world.**
+**A fault confessed is half redressed.**
 
-Norman Vincent Peale
+Zulu Proverb
