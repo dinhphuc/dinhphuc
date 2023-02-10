@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Attitude is everything. New day, new strength, new thoughts.**
+**Motivation is what gets you started. Habit is what keeps you going.**
 
-Anonymous
+Jim Rohn
