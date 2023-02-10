@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't worry about failure; you only have to be right once.**
+**Confidence is the ability to feel beautiful, without needing someone to tell you.**
 
-Drew Houston
+Anonymous
