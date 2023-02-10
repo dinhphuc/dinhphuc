@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We all make mistakes, but the winner knows that success comes from perseverance: trying, failing, learning, and doing it again until he succeeds.**
+**The best way to gain self-confidence is to do what you are afraid to do.**
 
-Judy Ford
+Swati Sharma
