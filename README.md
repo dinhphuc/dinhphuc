@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Motivation is what gets you started. Habit is what keeps you going.**
+**Remember, most of your stress comes from the way you respond, not the way life is.**
 
-Jim Rohn
+Anonymous
