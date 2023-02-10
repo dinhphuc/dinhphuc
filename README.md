@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only those who risk going too far, can possibly find out how far one can go.**
+**If it doesn't challenge you, it won't change you.**
 
-T.S. Elliot
+Anonymous
