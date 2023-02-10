@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Wisdom is knowing when you can't be wise.**
+**My heart is always open to love.**
 
-Muhammad Ali
+Anonymous
