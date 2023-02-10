@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you see in yourself is what you see in the world.**
+**You can either complain about it or grind, I choose to grind.**
 
-Afghan Proverb
+Kyle Vidrine
