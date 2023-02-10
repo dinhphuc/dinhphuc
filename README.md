@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength does not come from physical capacity. It comes from an indomitable will.**
+**It's easy to stand in the crowd but it takes courage to stand alone.**
 
 Mahatma Gandhi
