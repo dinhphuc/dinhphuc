@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are a masterpiece.**
+**I never dreamed about success. I worked for it.**
 
-Anonymous
+Estee Lauder
