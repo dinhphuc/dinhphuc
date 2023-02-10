@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You can either complain about it or grind, I choose to grind.**
+**Confidence is something you create in yourself by believing in who you are.**
 
-Kyle Vidrine
+Anonymous
