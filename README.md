@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Being deeply loved by someone gives you strength, while loving someone deeply gives you courage.**
+**Wisdom is knowing when you can't be wise.**
 
-Lao-Tzu
+Muhammad Ali
