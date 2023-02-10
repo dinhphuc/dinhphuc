@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is never fair, and perhaps it is a good thing for most of us that it is not.**
+**I have found that if you love life, life will love you back.**
 
-Oscar Wilde
+Arthur Rubinstein
