@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Count your age by friends, not years. Count your life by smiles, not tears.**
+**Don't worry about failure; you only have to be right once.**
 
-John Lennon
+Drew Houston
