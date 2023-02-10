@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life becomes easier and more beautiful when we can see the good in other people.**
+**Give up on being perfect and start working on becoming yourself.**
 
-Roy T. Bennett
+Anna Quindlen
