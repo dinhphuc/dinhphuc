@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The best way to predict your future is to create it.**
+**Use your smile to change the world; don't let the world change your smile.**
 
-Peter F. Drucker
+Chinese proverb
