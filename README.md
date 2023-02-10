@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**One conquers the world by conquering himself.**
+**Being deeply loved by someone gives you strength, while loving someone deeply gives you courage.**
 
-Zeno of Citium
+Lao-Tzu
