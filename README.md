@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**My heart is always open to love.**
+**When it gets difficult is often right before you succeed.**
 
-Anonymous
+Jeffrey Walker
