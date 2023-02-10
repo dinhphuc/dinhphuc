@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If it doesn't challenge you, it won't change you.**
+**Attitude is everything. New day, new strength, new thoughts.**
 
 Anonymous
