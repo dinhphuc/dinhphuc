@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When it gets difficult is often right before you succeed.**
+**You are a masterpiece.**
 
-Jeffrey Walker
+Anonymous
