@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't like something, change it. If you can't change it, change your attitude.**
+**What you see in yourself is what you see in the world.**
 
-Maya Angelou
+Afghan Proverb
