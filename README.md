@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**A new command I give you: Love one another.**
+**Life becomes easier and more beautiful when we can see the good in other people.**
 
-Jesus Christ
+Roy T. Bennett
