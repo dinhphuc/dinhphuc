@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's easy to stand in the crowd but it takes courage to stand alone.**
+**Only those who risk going too far, can possibly find out how far one can go.**
 
-Mahatma Gandhi
+T.S. Elliot
