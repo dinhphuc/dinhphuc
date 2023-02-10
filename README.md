@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The best way to gain self-confidence is to do what you are afraid to do.**
+**Count your age by friends, not years. Count your life by smiles, not tears.**
 
-Swati Sharma
+John Lennon
