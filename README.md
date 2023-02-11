@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I never dreamed about success. I worked for it.**
+**Gratitude turns what we have into enough.**
 
-Estee Lauder
+Anonymous
