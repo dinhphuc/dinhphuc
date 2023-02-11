@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When it comes to success, there are no shortcuts.**
+**When it gets difficult is often right before you succeed.**
 
-Bo Bennett
+Jeffrey Walker
