@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To give anything less than your best is to sacrifice the gift.**
+**When you find an idea that you just can't stop thinking about, that's probably a good one to pursue.**
 
-Steve Prefontaine
+Josh James
