@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not the strongest of the species that survive, nor the most intelligent, but the one most responsive to change.**
+**When something is important enough, you do it even if the odds are not in your favor.**
 
-Charles Darwin
+Elon Musk
