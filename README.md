@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To handle yourself, use your head; to handle others, use your heart.**
+**The greatest discovery of all time is that a person can change their future by merely changing their attitude.**
 
-Eleanor Roosevelt
+Oprah Winfrey
