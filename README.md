@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest discovery of all time is that a person can change their future by merely changing their attitude.**
+**You're off to great places, today is your day. Your mountain is waiting, so get on your way.**
 
-Oprah Winfrey
+Dr. Seuss
