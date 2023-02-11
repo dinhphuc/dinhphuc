@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**He who lives in harmony with himself lives in harmony with the universe.**
+**Optimism is a happiness magnet. If you stay positive, good things and good people will be drawn to you.**
 
-Marcus Aurelius
+Mary Lou Retton
