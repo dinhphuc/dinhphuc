@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Positive anything is better than negative nothing.**
+**When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.**
 
-Elbert Hubbard
+Henry Ford
