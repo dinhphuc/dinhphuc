@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Like the morning sun, you too shall rise and continue to shine.**
+**Don't judge each day by the harvest you reap but by the seeds that you plant.**
 
-Anonymous
+Robert Louis Stevenson
