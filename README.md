@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Being happy is the greatest form of success.**
+**When it comes to success, there are no shortcuts.**
 
-Anonymous
+Bo Bennett
