@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Another day another blessing.**
+**The one who falls and gets up is so much stronger than the one who never fell.**
 
 Anonymous
