@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Rise up. Start fresh. See the bright opportunity in each new day.**
+**If you can't stop thinking about it, don't stop working for it.**
 
 Anonymous
