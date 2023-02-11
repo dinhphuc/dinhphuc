@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's hard to beat a person who never gives up.**
+**This a wonderful day. I've never seen this one before.**
 
-Anonymous
+Maya Angelou
