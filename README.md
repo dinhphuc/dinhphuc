@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe in yourself. You are braver than you think, more talented than you know, and capable of more than you imagine.**
+**Like the morning sun, you too shall rise and continue to shine.**
 
-Roy T. Bennett
+Anonymous
