@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I am in charge of how I feel and today I am choosing happiness.**
+**Nobody can make you to feel inferior without your consent.**
 
-Anonymous
+Eleanor Roosevelt
