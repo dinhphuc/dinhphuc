@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When something is important enough, you do it even if the odds are not in your favor.**
+**It's not whether you get knocked down. It's whether you get back up.**
 
-Elon Musk
+Vince Lombardi
