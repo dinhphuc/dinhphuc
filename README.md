@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**This a wonderful day. I've never seen this one before.**
+**He who lives in harmony with himself lives in harmony with the universe.**
 
-Maya Angelou
+Marcus Aurelius
