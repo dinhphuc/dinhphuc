@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Today is a beautiful day and I will attract good things into my life.**
+**I am in charge of how I feel and today I am choosing happiness.**
 
 Anonymous
