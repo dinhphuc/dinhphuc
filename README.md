@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When it gets difficult is often right before you succeed.**
+**Never stop believing in hope because miracles happen everyday.**
 
-Jeffrey Walker
+Anonymous
