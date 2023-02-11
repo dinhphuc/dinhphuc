@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can't stop thinking about it, don't stop working for it.**
+**It's hard to beat a person who never gives up.**
 
 Anonymous
