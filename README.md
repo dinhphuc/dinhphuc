@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I don't make excuses. I make results.**
+**Positive anything is better than negative nothing.**
 
-Anonymous
+Elbert Hubbard
