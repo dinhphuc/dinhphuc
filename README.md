@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.**
+**Rise up. Start fresh. See the bright opportunity in each new day.**
 
-Henry Ford
+Anonymous
