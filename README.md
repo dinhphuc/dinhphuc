@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you find an idea that you just can't stop thinking about, that's probably a good one to pursue.**
+**Today is a beautiful day and I will attract good things into my life.**
 
-Josh James
+Anonymous
