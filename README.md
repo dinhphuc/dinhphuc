@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whoever gossips to you will gossip about you.**
+**To give anything less than your best is to sacrifice the gift.**
 
-Spanish Proverb
+Steve Prefontaine
