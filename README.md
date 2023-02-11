@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't judge each day by the harvest you reap but by the seeds that you plant.**
+**Examine what is said, not who speaks.**
 
-Robert Louis Stevenson
+Arab Proverb
