@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never stop believing in hope because miracles happen everyday.**
+**Only in the darkness can you see the stars.**
 
-Anonymous
+Martin Luther King, Jr.
