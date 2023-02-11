@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**How wonderful it is that nobody need wait a single moment before starting to improve the world.**
+**To handle yourself, use your head; to handle others, use your heart.**
 
-Anne Frank
+Eleanor Roosevelt
