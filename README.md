@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you find an idea that you just can't stop thinking about, that's probably a good one to pursue.**
+**How wonderful it is that nobody need wait a single moment before starting to improve the world.**
 
-Josh James
+Anne Frank
