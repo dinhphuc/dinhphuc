@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Examine what is said, not who speaks.**
+**Life is a succession of lessons which must be lived to be understood.**
 
-Arab Proverb
+Ralph Waldo Emerson
