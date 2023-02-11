@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You're off to great places, today is your day. Your mountain is waiting, so get on your way.**
+**Being happy is the greatest form of success.**
 
-Dr. Seuss
+Anonymous
