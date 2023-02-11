@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When written in Chinese the word "crisis" is composed of two characters - one represents danger and the other represents opportunity.**
+**Working hard for something we don't care about is called stress; working hard for somthing we love is called passion.**
 
-John F. Kennedy
+Simon Sinek
