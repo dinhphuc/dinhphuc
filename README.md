@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Examine what is said, not who speaks.**
+**In a dark place we find ourselves, and a little more knowledge lights our way.**
 
-Arab Proverb
+Yoda
