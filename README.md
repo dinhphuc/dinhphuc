@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I have found that if you love life, life will love you back.**
+**Alone, we can do so little; together we can do so much.**
 
-Arthur Rubinstein
+Helen Keller
