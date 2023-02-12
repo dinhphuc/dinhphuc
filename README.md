@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength is the product of struggle. You must do what others don't to achieve what others wont.**
+**When something is important enough, you do it even if the odds are not in your favor.**
 
-Henry Rollins
+Elon Musk
