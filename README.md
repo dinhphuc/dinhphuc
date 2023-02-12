@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Sometimes your joy is the source of your smile, but sometimes your smile can be the source of your joy.**
+**Strength is the product of struggle. You must do what others don't to achieve what others wont.**
 
-Thich Nhat Hanh
+Henry Rollins
