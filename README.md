@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When a new day begins, dare to smile gratefully.**
+**Today, give a stranger one of your smiles. It might be the only sunshine they see all day.**
 
-Steve Maraboli
+H. Jackson Brown Jr
