@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To give anything less than your best is to sacrifice the gift.**
+**There are so many beautiful reasons to be happy.**
 
-Steve Prefontaine
+Anonymous
