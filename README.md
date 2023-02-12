@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Whoever loves much, performs much, and can accomplish much, and what is done in love is done well.**
+**The only journey is the one within.**
 
-Vincent van Gogh
+Rainer Maria Rilke
