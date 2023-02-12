@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are so many beautiful reasons to be happy.**
+**Everything has beauty, but not everyone can see.**
 
-Anonymous
+Confucius
