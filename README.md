@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The vision of a champion is someone who is bent over, drenched in sweat, at the point of exhaustion when no one else is watching.**
+**To give anything less than your best is to sacrifice the gift.**
 
-Jim Afremow
+Steve Prefontaine
