@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be you. Do you. For you.**
+**Remember, most of your stress comes from the way you respond, not the way life is.**
 
 Anonymous
