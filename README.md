@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You are what you do, not what you say you'll do.**
+**Trust the process of life.**
 
 Anonymous
