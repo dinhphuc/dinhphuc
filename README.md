@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Today, give a stranger one of your smiles. It might be the only sunshine they see all day.**
+**Examine what is said, not who speaks.**
 
-H. Jackson Brown Jr
+Arab Proverb
