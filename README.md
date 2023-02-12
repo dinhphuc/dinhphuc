@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Move fast and break things. If you are not breaking things, you are not moving fast enough.**
+**It's easy to stand in the crowd but it takes courage to stand alone.**
 
-Mark Zuckerberg
+Mahatma Gandhi
