@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The only journey is the one within.**
+**You are what you do, not what you say you'll do.**
 
-Rainer Maria Rilke
+Anonymous
