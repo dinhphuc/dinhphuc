@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It always seems impossible until it's done.**
+**Failure is not the opposite of success. Its part of success.**
 
-Nelson Mandela
+Anonymous
