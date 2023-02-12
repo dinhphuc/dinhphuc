@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything has beauty, but not everyone can see.**
+**So certain were you. Go back and closer you must look.**
 
-Confucius
+Yoda
