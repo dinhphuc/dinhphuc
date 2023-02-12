@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When something is important enough, you do it even if the odds are not in your favor.**
+**When a new day begins, dare to smile gratefully.**
 
-Elon Musk
+Steve Maraboli
