@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Courage is taking those first steps toward your dreams even if you can't see the path ahead.**
+**We don't develop courage by being happy every day. We develop it by surviving difficult times and challenging adversity.**
 
-Anonymous
+Barbara De Angelis
