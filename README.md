@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember, most of your stress comes from the way you respond, not the way life is.**
+**Courage is taking those first steps toward your dreams even if you can't see the path ahead.**
 
 Anonymous
