@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength grows in the moments when you think you can't go on but you keep going anyway.**
+**Education is the most powerful weapon which you can use to change the world.**
 
-Anonymous
+Nelson Mandela
