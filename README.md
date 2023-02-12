@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Optimism is a happiness magnet. If you stay positive, good things and good people will be drawn to you.**
+**Move fast and break things. If you are not breaking things, you are not moving fast enough.**
 
-Mary Lou Retton
+Mark Zuckerberg
