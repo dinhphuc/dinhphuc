@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Alone, we can do so little; together we can do so much.**
+**There are only two mistakes one can make along the road to truth; not going all the way, and not starting.**
 
-Helen Keller
+Buddha
