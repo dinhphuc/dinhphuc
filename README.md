@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's easy to stand in the crowd but it takes courage to stand alone.**
+**I have found that if you love life, life will love you back.**
 
-Mahatma Gandhi
+Arthur Rubinstein
