@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**So certain were you. Go back and closer you must look.**
+**When you have exhausted all possibilities, remember this: you haven't.**
 
-Yoda
+Thomas Edison
