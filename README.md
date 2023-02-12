@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Education is the most powerful weapon which you can use to change the world.**
+**Whoever loves much, performs much, and can accomplish much, and what is done in love is done well.**
 
-Nelson Mandela
+Vincent van Gogh
