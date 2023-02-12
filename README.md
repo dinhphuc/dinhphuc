@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Maybe it won't work out. But maybe seeing if it does will be the best adventure ever.**
+**It always seems impossible until it's done.**
 
-Anonymous
+Nelson Mandela
