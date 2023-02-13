@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**To handle yourself, use your head; to handle others, use your heart.**
+**What you see in yourself is what you see in the world.**
 
-Eleanor Roosevelt
+Afghan Proverb
