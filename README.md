@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.**
+**Success doesn't just come and find you, you have to go out and get it.**
 
-Samuel Beckett
+Anonymous
