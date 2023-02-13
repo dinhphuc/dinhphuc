@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Plenty of people miss their share of happiness, not because they never found it, but because they didn't stop to enjoy it.**
+**We love life, not because we are used to living but because we are used to loving.**
 
-William Feather
+Friedrich Nietzsche
