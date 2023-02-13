@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can dream it, then you can achieve it.**
+**You matter.**
 
-Zig Ziglar
+Anonymous
