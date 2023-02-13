@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It's better to light a candle than curse the darkness.**
+**We can complain because rose bushes have thorns, or rejoice because thorns have roses.**
 
-Chinese Proverb
+Alphonse Karr
