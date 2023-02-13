@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Optimism is a happiness magnet. If you stay positive, good things and good people will be drawn to you.**
+**There's nothing that you can do that can't be done.**
 
-Mary Lou Retton
+The Beatles
