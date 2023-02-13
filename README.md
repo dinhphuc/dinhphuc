@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Losers quit when they're tired. Winners quit when they've won.**
+**There is nothing on this earth more to be prized than true friendship.**
 
-Anonymous
+Thomas Aquinas
