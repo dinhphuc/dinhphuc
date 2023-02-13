@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Make the mind tougher by exposing it to adversity.**
+**Success is the sum of small efforts repeated day-in and day-out.**
 
-Robert Greene
+Robert Collier
