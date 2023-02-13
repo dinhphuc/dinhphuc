@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you look the right way, you can see that the whole world is a garden.**
+**If you can dream it, then you can achieve it.**
 
-Frances Hodgson Burnett
+Zig Ziglar
