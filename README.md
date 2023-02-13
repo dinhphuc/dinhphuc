@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There's nothing that you can do that can't be done.**
+**Smile, it is the key that fits the lock of everybody's heart.**
 
-The Beatles
+Anthony J D'Angelo
