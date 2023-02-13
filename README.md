@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness can be found, even in the darkest of times, if one only remembers to turn on the light.**
+**There is no better than adversity. Every defeat, every heartbreak, every loss, contains its own seed, its own lesson on how to improve your performance the next time.**
 
-Anonymous
+Malcolm X
