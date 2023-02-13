@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is nothing on this earth more to be prized than true friendship.**
+**You don't have to control your thoughts; you just have to stop letting them control you.**
 
-Thomas Aquinas
+Dan Millman
