@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When it gets difficult is often right before you succeed.**
+**The absence of adversity is an indicator that my goals aren't significant enough.**
 
-Jeffrey Walker
+Clint Bruce
