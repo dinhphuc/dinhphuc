@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**What you see in yourself is what you see in the world.**
+**When it gets difficult is often right before you succeed.**
 
-Afghan Proverb
+Jeffrey Walker
