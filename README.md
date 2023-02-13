@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile, it is the key that fits the lock of everybody's heart.**
+**He who always thinks it is too soon is sure to come too late.**
 
-Anthony J D'Angelo
+German Proverb
