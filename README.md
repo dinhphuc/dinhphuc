@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Wake up every morning with the thought that something wonderful is about to happen.**
+**Get going ... walk if you have to, but finish the damned race.**
 
-Anonymous
+Ron Hill
