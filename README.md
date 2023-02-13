@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Pass on what you have learned.**
+**If you look at what you have in life, you'll always have more. If you look at what you don't have in life, you'll never have enough.**
 
-Yoda
+Oprah Winfrey
