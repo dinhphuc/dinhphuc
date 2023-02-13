@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We can't help everyone, but everyone can help someone.**
+**Instead of feeding myself excuses why I can't, I give myself reasons why I can.**
 
-Ronald Reagan
+Anonymous
