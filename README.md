@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is the sum of small efforts repeated day-in and day-out.**
+**To handle yourself, use your head; to handle others, use your heart.**
 
-Robert Collier
+Eleanor Roosevelt
