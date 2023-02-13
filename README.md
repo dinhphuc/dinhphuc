@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**When you stop chasing the wrong things you give the right things a chance to catch you.**
+**The happiness of your life depends upon the quality of your thoughts.**
 
-Anonymous
+Marcus Aurelius
