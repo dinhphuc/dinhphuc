@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how tough it may get, never give up on yourself or you will look back and regret it.**
+**When you stop chasing the wrong things you give the right things a chance to catch you.**
 
 Anonymous
