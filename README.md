@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything will work out in the end. You don't need to know how. You just have to trust that it will.**
+**Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.**
 
-Anonymous
+Samuel Beckett
