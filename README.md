@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Success doesn't just come and find you, you have to go out and get it.**
+**The biggest adventure you can take is to live the life of your dreams.**
 
-Anonymous
+Oprah Winfrey
