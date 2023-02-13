@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We love life, not because we are used to living but because we are used to loving.**
+**Decide what matters most to you and do it.**
 
-Friedrich Nietzsche
+Anonymous
