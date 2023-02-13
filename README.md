@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Instead of feeding myself excuses why I can't, I give myself reasons why I can.**
+**Pass on what you have learned.**
 
-Anonymous
+Yoda
