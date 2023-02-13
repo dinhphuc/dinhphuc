@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Enjoy the little things, for one day you may look back and realize they were the big things.**
+**Beat the drum inside the house to spare the neighbors.**
 
-Robert Brault
+Chinese Proverb
