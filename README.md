@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no better than adversity. Every defeat, every heartbreak, every loss, contains its own seed, its own lesson on how to improve your performance the next time.**
+**No matter how tough it may get, never give up on yourself or you will look back and regret it.**
 
-Malcolm X
+Anonymous
