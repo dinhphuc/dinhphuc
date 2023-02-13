@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**There are only two mistakes one can make along the road to truth; not going all the way, and not starting.**
+**It's better to light a candle than curse the darkness.**
 
-Buddha
+Chinese Proverb
