@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't have to control your thoughts; you just have to stop letting them control you.**
+**We can't help everyone, but everyone can help someone.**
 
-Dan Millman
+Ronald Reagan
