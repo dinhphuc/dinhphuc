@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Decide what matters most to you and do it.**
+**The greatest teacher, failure is.**
 
-Anonymous
+Yoda
