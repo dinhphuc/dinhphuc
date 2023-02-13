@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Get going ... walk if you have to, but finish the damned race.**
+**Enjoy the little things, for one day you may look back and realize they were the big things.**
 
-Ron Hill
+Robert Brault
