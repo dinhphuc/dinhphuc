@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We can complain because rose bushes have thorns, or rejoice because thorns have roses.**
+**Make the mind tougher by exposing it to adversity.**
 
-Alphonse Karr
+Robert Greene
