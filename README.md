@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If you get tired, learn to rest, not quit.**
+**Never stop believing in hope because miracles happen everyday.**
 
 Anonymous
