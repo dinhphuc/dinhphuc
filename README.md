@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Live for yourself and don't ever stop.**
+**The sweat. The time. The devotion. It pays off.**
 
-John Tew
+Anonymous
