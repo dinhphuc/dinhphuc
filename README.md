@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Your life does not get better by chance, it gets better by change.**
+**Hope never abandons you, you abandon it.**
 
-Anonymous
+George Weinberg
