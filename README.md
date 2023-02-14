@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Like the morning sun, you too shall rise and continue to shine.**
+**If you get tired, learn to rest, not quit.**
 
 Anonymous
