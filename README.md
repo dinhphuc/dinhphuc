@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence is something you create in yourself by believing in who you are.**
+**It is only possible to live happily ever after on a daily basis.**
 
 Anonymous
