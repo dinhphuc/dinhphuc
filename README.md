@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**I've got nothing to do today but smile.**
+**Never stop believing in hope because miracles happen everyday.**
 
-Paul Simon
+Anonymous
