@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't manifest dreams without taking chances.**
+**Everything will work out in the end. You don't need to know how. You just have to trust that it will.**
 
-Stephen Richards
+Anonymous
