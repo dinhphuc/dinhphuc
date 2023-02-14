@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't criticize, condemn or complain.**
+**Your life does not get better by chance, it gets better by change.**
 
-Dale Carnegie
+Anonymous
