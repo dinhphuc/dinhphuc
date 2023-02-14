@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Mistakes are proof that you are trying.**
+**You don't manifest dreams without taking chances.**
 
-Anonymous
+Stephen Richards
