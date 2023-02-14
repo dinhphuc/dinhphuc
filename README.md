@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Words should be weighed, not counted.**
+**Work on being in love with the person in the mirror who has been through so much but is still standing.**
 
-Yiddish Proverb
+Anonymous
