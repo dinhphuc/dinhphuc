@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest.**
+**No one is perfect - that's why pencils have erasers.**
 
-Sri Chinmoy
+Wolfgang Riebe
