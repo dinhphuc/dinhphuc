@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is letting go of what you think your life is supposed to look like and enjoying it for everything that it is.**
+**Courage is taking those first steps toward your dreams even if you can't see the path ahead.**
 
-Mandy Hale
+Anonymous
