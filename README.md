@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The people who make you smile from just seeing them, those are my favorite people.**
+**Like the morning sun, you too shall rise and continue to shine.**
 
-Koi Fresco
+Anonymous
