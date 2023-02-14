@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Only a man who knows what it is like to be defeated can reach down to the bottom of his soul and come up with the extra ounce of power it takes to win when the match is even.**
+**Life is what happens when you're busy making other plans.**
 
-Muhammad Ali
+John Lennon
