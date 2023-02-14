@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Alone, we can do so little; together we can do so much.**
+**All our dreams can come true, if we have the courage to pursue them.**
 
-Helen Keller
+Walt Disney
