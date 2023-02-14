@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is what happens when you're busy making other plans.**
+**Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest.**
 
-John Lennon
+Sri Chinmoy
