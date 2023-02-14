@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Good friends are all that matter.**
+**Words may inspire but only action creates change.**
 
-Anonymous
+Simon Sinek
