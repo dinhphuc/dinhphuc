@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Hope never abandons you, you abandon it.**
+**You need to spend time crawling alone through shadows to truly appreciate what it is to stand in the sun.**
 
-George Weinberg
+Shaun Hick
