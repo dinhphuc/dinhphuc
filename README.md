@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**It is only possible to live happily ever after on a daily basis.**
+**Happiness is when what you think, what you say, and what you do are in harmony.**
 
-Anonymous
+Mahatma Gandhi
