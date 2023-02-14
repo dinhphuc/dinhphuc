@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**No one is perfect - that's why pencils have erasers.**
+**Life only comes around once, so do whatever makes you happy, and be with whoever makes you smile.**
 
-Wolfgang Riebe
+Anonymous
