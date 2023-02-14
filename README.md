@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be yourself. An original is so much better than a copy.**
+**Words should be weighed, not counted.**
 
-Anonymous
+Yiddish Proverb
