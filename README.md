@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Words may inspire but only action creates change.**
+**Confidence is something you create in yourself by believing in who you are.**
 
-Simon Sinek
+Anonymous
