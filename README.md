@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**In every success story, you will find someone who made a courageous decision.**
+**Mistakes are proof that you are trying.**
 
-Peter Drucker
+Anonymous
