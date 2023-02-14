@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Be crazy. Be stupid. Be silly. Be weird. Be whatever. Because life is too short to be anything but happy.**
+**People want to do business with you because you help them get what they want. They don't do business with you to help you get what you want.**
 
-Anonymous
+Don Crowther
