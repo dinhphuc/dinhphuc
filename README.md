@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**People want to do business with you because you help them get what they want. They don't do business with you to help you get what you want.**
+**The best way to gain self-confidence is to do what you are afraid to do.**
 
-Don Crowther
+Swati Sharma
