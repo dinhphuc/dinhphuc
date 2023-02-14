@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**He who always thinks it is too soon is sure to come too late.**
+**Don't criticize, condemn or complain.**
 
-German Proverb
+Dale Carnegie
