@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Never stop believing in hope because miracles happen everyday.**
+**Be yourself. An original is so much better than a copy.**
 
 Anonymous
