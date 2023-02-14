@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is when what you think, what you say, and what you do are in harmony.**
+**Live for yourself and don't ever stop.**
 
-Mahatma Gandhi
+John Tew
