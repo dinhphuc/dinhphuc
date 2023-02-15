@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The only easy day was yesterday.**
+**Never give up, stay focused, stay positive, stay strong.**
 
-Navy Seals
+Anonymous
