@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Who begins too much accomplishes little.**
+**Never stop believing in hope because miracles happen everyday.**
 
-German Proverb
+Anonymous
