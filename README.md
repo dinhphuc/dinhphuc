@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**If no mistake have you made, yet losing you are... a different game you should play.**
+**The absence of adversity is an indicator that my goals aren't significant enough.**
 
-Yoda
+Clint Bruce
