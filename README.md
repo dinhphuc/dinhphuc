@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Never let the fear of striking out keep you from playing the game.**
+**Whatever you are, be a good one.**
 
-Babe Ruth
+Abraham Lincoln
