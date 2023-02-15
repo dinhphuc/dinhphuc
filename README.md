@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how much it hurts, hold your head up and keep going.**
+**I have learned over the years that when one's mind is made up, this diminishes fear.**
 
-Anonymous
+Rosa Parks
