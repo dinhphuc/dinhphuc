@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**The absence of adversity is an indicator that my goals aren't significant enough.**
+**When you want to succeed as bad as you want to breathe, you will be successful.**
 
-Clint Bruce
+Eric Thomas
