@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Never stop believing in hope because miracles happen everyday.**
+**The only easy day was yesterday.**
 
-Anonymous
+Navy Seals
