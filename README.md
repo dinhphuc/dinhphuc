@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**Maybe it won't work out. But maybe seeing if it does will be the best adventure ever.**
+**We are all in the gutter, but some of us are looking at the stars.**
 
-Anonymous
+Oscar Wilde
