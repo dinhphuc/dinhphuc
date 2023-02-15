@@ -36,6 +36,6 @@
 
 ------------
 ⚡ Quote: 
-**We are all in the gutter, but some of us are looking at the stars.**
+**There are only two mistakes one can make along the road to truth; not going all the way, and not starting.**
 
-Oscar Wilde
+Buddha
