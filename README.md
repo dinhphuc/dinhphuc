@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**He who always thinks it is too soon is sure to come too late.**
+**No matter how much it hurts, hold your head up and keep going.**
 
-German Proverb
+Anonymous
