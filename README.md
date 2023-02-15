@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest discovery of all time is that a person can change their future by merely changing their attitude.**
+**To be the best, you must be able to handle the worst.**
 
-Oprah Winfrey
+Wilson Kanadi
