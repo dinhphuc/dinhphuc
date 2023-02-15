@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's the repetition of affirmations that leads to belief. And once that belief becomes a deep conviction, things begin to happen.**
+**One of the best ways of being happy with life is to make someone happy.**
 
-Muhammad Ali
+Anonymous
