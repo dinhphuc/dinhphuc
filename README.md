@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Focus on being productive instead of busy.**
+**Certain things catch your eye, but pursue only those that capture the heart.**
 
-Tim Ferris
+Ancient Indian Proverb
