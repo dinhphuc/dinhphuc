@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Some people ask me 'How to be happy' and my answer is always the same: just be happy!**
+**Focus on being productive instead of busy.**
 
-Anonymous
+Tim Ferris
