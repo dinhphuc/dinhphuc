@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The miracle isn't that I finished. The miracle is that I had the courage to start.**
+**Who begins too much accomplishes little.**
 
-John Bingham
+German Proverb
