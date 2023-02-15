@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you dare to dream, dare to follow that dream; dare to suffer through the pain, sacrifice, self-doubts and friction from the world.**
+**Measure a thousand times and cut once.**
 
-Laura Schlessinger
+Turkish Proverb
