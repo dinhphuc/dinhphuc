@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Our own self-esteem is something we can actually twist in whatever way we want.**
+**Life is ours to be spent, not to be saved.**
 
-Stephen Richards
+D. H. Lawrence
