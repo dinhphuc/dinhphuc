@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Certain things catch your eye, but pursue only those that capture the heart.**
+**It's the repetition of affirmations that leads to belief. And once that belief becomes a deep conviction, things begin to happen.**
 
-Ancient Indian Proverb
+Muhammad Ali
