@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I have learned over the years that when one's mind is made up, this diminishes fear.**
+**Some people ask me 'How to be happy' and my answer is always the same: just be happy!**
 
-Rosa Parks
+Anonymous
