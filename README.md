@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The trophy is earned in the hours that no one is watching.**
+**Life is never fair, and perhaps it is a good thing for most of us that it is not.**
 
-Anonymous
+Oscar Wilde
