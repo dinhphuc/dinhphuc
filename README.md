@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**To be the best, you must be able to handle the worst.**
+**He who always thinks it is too soon is sure to come too late.**
 
-Wilson Kanadi
+German Proverb
