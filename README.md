@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is never fair, and perhaps it is a good thing for most of us that it is not.**
+**Never let the fear of striking out keep you from playing the game.**
 
-Oscar Wilde
+Babe Ruth
