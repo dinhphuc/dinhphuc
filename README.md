@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**At the end of the day, you can either focus on what's tearing you apart, or you can focus on what's keeping you together.**
+**Smile at strangers and you just might change a life.**
 
-Anonymous
+Steve Maraboli
