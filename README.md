@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**All our dreams can come true, if we have the courage to pursue them.**
+**It's gonna get harder before it gets easier. But it will get better, you just gotta make it through the hard stuff first.**
 
-Walt Disney
+Anonymous
