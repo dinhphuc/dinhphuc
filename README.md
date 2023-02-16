@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile, and let the world wonder why.**
+**Spend your life with people who make you smile, laugh, and feel loved.**
 
-Minnie Mouse
+Roy T. Bennett
