@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not so much that I began to run, but that I continued.**
+**You may encounter many defeats, but you must not be defeated.**
 
-Hal Higdon
+Maya Angelou
