@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Being entirely honest with oneself is a good exercise.**
+**All our dreams can come true, if we have the courage to pursue them.**
 
-Sigmund Freud
+Walt Disney
