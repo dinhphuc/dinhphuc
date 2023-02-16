@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you are enthusiastic about what you do, you feel this positive energy. It's very simple.**
+**If you are willing to do more than you are paid to do, eventually you will be paid to do more than you do.**
 
-Paulo Coelho
+Anonymous
