@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I ask not for a lighter burden, but for broader shoulders.**
+**We know what we are, but know not what we may be.**
 
-Jewish Proverb
+William Shakespeare
