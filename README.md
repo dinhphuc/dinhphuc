@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Pain has taught me to appreciate the things that don't hurt.**
+**Whatever the mind can conceive and believe, it can achieve.**
 
-Melissa Tripp
+Napoleon Hill
