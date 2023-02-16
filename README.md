@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Spend your life with people who make you smile, laugh, and feel loved.**
+**Champions keep playing until they get it right.**
 
-Roy T. Bennett
+Billie Jean King
