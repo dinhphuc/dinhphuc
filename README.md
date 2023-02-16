@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Attitude will always define who we are in life.**
+**Kindness is free. Sprinkle that stuff everywhere.**
 
-Mark A. Brennan
+Anonymous
