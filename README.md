@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile at strangers and you just might change a life.**
+**You were born to win. But to be a winner, you must plan to win, prepare to win, and expect to win.**
 
-Steve Maraboli
+Zig Ziglar
