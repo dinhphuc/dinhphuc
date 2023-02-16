@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Leadership is not about being in charge. Leadership is about taking care of those in your charge.**
+**Working hard for something we don't care about is called stress; working hard for somthing we love is called passion.**
 
 Simon Sinek
