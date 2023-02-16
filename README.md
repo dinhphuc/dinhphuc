@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A gentle word, a kind look, a good-natured smile can work wonders and accomplish miracles.**
+**Being entirely honest with oneself is a good exercise.**
 
-William Hazlitt
+Sigmund Freud
