@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life works for my benefit.**
+**Attitude will always define who we are in life.**
 
-Anonymous
+Mark A. Brennan
