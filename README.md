@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Kindness is free. Sprinkle that stuff everywhere.**
+**Pain has taught me to appreciate the things that don't hurt.**
 
-Anonymous
+Melissa Tripp
