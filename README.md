@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot shake hands with a clenched fist.**
+**Many of the truths that we cling to depend on our point of view.**
 
-Indira Gandhi
+Yoda
