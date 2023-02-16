@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest victory in life is to rise above the material things that we once valued most.**
+**Smile, and let the world wonder why.**
 
-Muhammad Ali
+Minnie Mouse
