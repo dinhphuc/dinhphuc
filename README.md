@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**My heart is always open to love.**
+**I ask not for a lighter burden, but for broader shoulders.**
 
-Anonymous
+Jewish Proverb
