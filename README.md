@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can't find the opportunities you're looking for...create them.**
+**I never dreamed about success. I worked for it.**
 
-Anonymous
+Estee Lauder
