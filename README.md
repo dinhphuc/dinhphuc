@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever the mind can conceive and believe, it can achieve.**
+**The greatest discovery of all time is that a person can change their future by merely changing their attitude.**
 
-Napoleon Hill
+Oprah Winfrey
