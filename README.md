@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are willing to do more than you are paid to do, eventually you will be paid to do more than you do.**
+**If you can't find the opportunities you're looking for...create them.**
 
 Anonymous
