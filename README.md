@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We know what we are, but know not what we may be.**
+**The greatest victory in life is to rise above the material things that we once valued most.**
 
-William Shakespeare
+Muhammad Ali
