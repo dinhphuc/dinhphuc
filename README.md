@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Many of the truths that we cling to depend on our point of view.**
+**Life works for my benefit.**
 
-Yoda
+Anonymous
