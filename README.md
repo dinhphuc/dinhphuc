@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest discovery of all time is that a person can change their future by merely changing their attitude.**
+**That is bad news... if you do not believe in yourself.**
 
-Oprah Winfrey
+Master Oogway
