@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Make each day your masterpiece.**
+**My heart is always open to love.**
 
-John Wooden
+Anonymous
