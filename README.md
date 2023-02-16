@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Action is the foundational key to all success.**
+**It's gonna get harder before it gets easier. But it will get better, you just gotta make it through the hard stuff first.**
 
-Pablo Picasso
+Anonymous
