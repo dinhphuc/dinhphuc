@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Champions keep playing until they get it right.**
+**You cannot shake hands with a clenched fist.**
 
-Billie Jean King
+Indira Gandhi
