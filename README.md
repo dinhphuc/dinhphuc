@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you decide to do, make sure it makes you happy.**
+**Not all those who wander are lost.**
 
-Anonymous
+J. R. R. Tolkien
