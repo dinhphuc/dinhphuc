@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**That is bad news... if you do not believe in yourself.**
+**When you are enthusiastic about what you do, you feel this positive energy. It's very simple.**
 
-Master Oogway
+Paulo Coelho
