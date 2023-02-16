@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You were born to win. But to be a winner, you must plan to win, prepare to win, and expect to win.**
+**Leadership is not about being in charge. Leadership is about taking care of those in your charge.**
 
-Zig Ziglar
+Simon Sinek
