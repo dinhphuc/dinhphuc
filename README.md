@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Not all those who wander are lost.**
+**Decide what matters most to you and do it.**
 
-J. R. R. Tolkien
+Anonymous
