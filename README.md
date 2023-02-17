@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**What you think of yourself is much more important than what people think of you.**
+**A runner must run with dreams in his heart.**
 
-Anonymous
+Emil Zatopek
