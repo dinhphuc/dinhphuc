@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There are so many beautiful reasons to be happy.**
+**Work hard and be nice to people.**
 
 Anonymous
