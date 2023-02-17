@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Work hard and be nice to people.**
+**Don't just glov, dazzle.**
 
 Anonymous
