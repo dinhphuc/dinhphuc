@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's easy to stand in the crowd but it takes courage to stand alone.**
+**You have purpose.**
 
-Mahatma Gandhi
+Anonymous
