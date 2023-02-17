@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength doesn't come from what you can do. It comes from overcoming the things you once thought you couldn't.**
+**Set a goal that makes you want to jump out of bed in the morning.**
 
-Rikki Rogers
+Anonymous
