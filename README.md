@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Successful people have fear, successful people have doubts, and successful people have worries. They just don't let these feelings stop them.**
+**Confidence comes not from always being right but from not fearing to be wrong.**
 
-T. Harv Eker
+Peter T. Mcintyre
