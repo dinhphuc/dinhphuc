@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The only way to do great work is to love what you do.**
+**What you see in yourself is what you see in the world.**
 
-Steve Jobs
+Afghan Proverb
