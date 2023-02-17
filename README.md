@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I didn't come this far to only come this far.**
+**It makes a big difference in your life when you stay positive.**
 
-Anonymous
+Ellen DeGeneres
