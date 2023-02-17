@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The goal is not to be perfect by the end. The goal is to be better today.**
+**There are so many beautiful reasons to be happy.**
 
-Simon Sinek
+Anonymous
