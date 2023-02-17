@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success usually comes to those who are too busy to be looking for it.**
+**Don't just glov, dazzle.**
 
-Henry David Thoreau
+Anonymous
