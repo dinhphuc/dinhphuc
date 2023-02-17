@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A runner must run with dreams in his heart.**
+**Everything you've ever wanted is on the other side of fear.**
 
-Emil Zatopek
+George Addair
