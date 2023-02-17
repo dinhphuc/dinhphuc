@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The reputation of a thousand years may be determined by the conduct of one hour.**
+**When obstacles arise, you change your direction to reach your goal, you do not change your decision to get there.**
 
-Japanese Proverb
+Zig Ziglar
