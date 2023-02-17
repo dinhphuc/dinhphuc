@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything you've ever wanted is on the other side of fear.**
+**The only way to do great work is to love what you do.**
 
-George Addair
+Steve Jobs
