@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Working hard for something we don't care about is called stress; working hard for somthing we love is called passion.**
+**Today, give a stranger one of your smiles. It might be the only sunshine they see all day.**
 
-Simon Sinek
+H. Jackson Brown Jr
