@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Set a goal that makes you want to jump out of bed in the morning.**
+**The reputation of a thousand years may be determined by the conduct of one hour.**
 
-Anonymous
+Japanese Proverb
