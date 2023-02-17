@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**In order to carry a positive action we must develop here a positive vision.**
+**It never gets easier. You just get better.**
 
-Dalai Lama
+Jordan Hoechlin
