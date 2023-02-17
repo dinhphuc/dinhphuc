@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up. Great things take time. Be patient.**
+**In order to carry a positive action we must develop here a positive vision.**
 
-Anonymous
+Dalai Lama
