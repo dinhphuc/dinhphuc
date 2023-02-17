@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A winner never stops trying.**
+**Strength doesn't come from what you can do. It comes from overcoming the things you once thought you couldn't.**
 
-Tom Landry
+Rikki Rogers
