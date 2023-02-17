@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Focus on your goal. Don't look in any direction but ahead.**
+**Life is either a daring adventure or nothing at all.**
 
-Anonymous
+Helen Keller
