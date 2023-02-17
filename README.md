@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is the secret to all beauty. There is no beauty without happiness.**
+**You can either spend your time or invest your time.**
 
-Christian Dior
+Chip Kelly
