@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep your face always toward the sunshine - and shadows will fall behind you.**
+**Whoever is happy will make others happy too.**
 
-Walt Whitman
+Anonymous
