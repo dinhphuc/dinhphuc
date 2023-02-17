@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It never gets easier. You just get better.**
+**Happiness is the secret to all beauty. There is no beauty without happiness.**
 
-Jordan Hoechlin
+Christian Dior
