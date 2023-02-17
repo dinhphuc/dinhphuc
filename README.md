@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**What you see in yourself is what you see in the world.**
+**Keep your face always toward the sunshine - and shadows will fall behind you.**
 
-Afghan Proverb
+Walt Whitman
