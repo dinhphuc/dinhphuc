@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't just glov, dazzle.**
+**Wherever you go, no matter what the weather, always bring your own sunshine.**
 
-Anonymous
+Anthony J. D'Angelo
