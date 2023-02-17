@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**What you choose to focus on expands and grows.**
+**I didn't come this far to only come this far.**
 
 Anonymous
