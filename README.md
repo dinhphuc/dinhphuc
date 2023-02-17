@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It makes a big difference in your life when you stay positive.**
+**If you don't fall, how are you going to know what getting up feels like?**
 
-Ellen DeGeneres
+Stephen Curry
