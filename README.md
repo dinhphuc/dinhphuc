@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want it, you'll find a way. If you don't, you'll find an excuse.**
+**Success usually comes to those who are too busy to be looking for it.**
 
-Anonymous
+Henry David Thoreau
