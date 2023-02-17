@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence comes not from always being right but from not fearing to be wrong.**
+**We can't be brave without fear.**
 
-Peter T. Mcintyre
+Muhammad Ali
