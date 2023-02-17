@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When written in Chinese the word "crisis" is composed of two characters - one represents danger and the other represents opportunity.**
+**A winner never stops trying.**
 
-John F. Kennedy
+Tom Landry
