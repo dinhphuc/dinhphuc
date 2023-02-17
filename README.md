@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not in the stars to hold our destiny but in ourselves.**
+**It's easy to stand in the crowd but it takes courage to stand alone.**
 
-William Shakespeare
+Mahatma Gandhi
