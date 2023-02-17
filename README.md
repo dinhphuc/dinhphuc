@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't fall, how are you going to know what getting up feels like?**
+**What you think of yourself is much more important than what people think of you.**
 
-Stephen Curry
+Anonymous
