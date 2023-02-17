@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Wherever you go, no matter what the weather, always bring your own sunshine.**
+**The one who falls and gets up is so much stronger than the one who never fell.**
 
-Anthony J. D'Angelo
+Anonymous
