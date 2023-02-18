@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**What you choose to focus on expands and grows.**
+**When I hear somebody sigh, 'Life is hard,' I am always tempted to ask, 'Compared to what?'**
 
-Anonymous
+Sydney Harris
