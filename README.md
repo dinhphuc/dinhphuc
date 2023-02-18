@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Today is a beautiful day and I will attract good things into my life.**
+**Life is short, and it is up to you to make it sweet.**
 
-Anonymous
+Sarah Louise Delany
