@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It never gets easier. You just get better.**
+**Life is about making an impact, not making an income.**
 
-Jordan Hoechlin
+Kevin Kruse
