@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Everytime you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**
+**Today is a beautiful day and I will attract good things into my life.**
 
-Mother Teresa
+Anonymous
