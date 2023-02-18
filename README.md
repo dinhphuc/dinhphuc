@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you depersonalize abrasive behavior and see it as a call for help you become a catalyst for the best kind of change.**
+**It never gets easier. You just get better.**
 
-Marilyn Suttle
+Jordan Hoechlin
