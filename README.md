@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Winning is fun, but those moments that you can touch someone's life in a very positive way are better.**
+**It matters not what someone is born, but what they grow to be.**
 
-Tim Howard
+Master Oogway
