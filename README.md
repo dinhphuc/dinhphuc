@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The only impossible journey is the one you never begin.**
+**Maybe it won't work out. But maybe seeing if it does will be the best adventure ever.**
 
-Tony Robbins
+Anonymous
