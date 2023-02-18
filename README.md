@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's a good day to be happy.**
+**Sometimes you face difficulties not because you're doing something wrong but because you're doing something right.**
 
 Anonymous
