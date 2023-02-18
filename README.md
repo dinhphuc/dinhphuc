@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be happy. It really annoys negative people.**
+**It makes a big difference in your life when you stay positive.**
 
-Ricky Gervais
+Ellen DeGeneres
