@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Cheerfulness is the very flower of health.**
+**Champions keep playing until they get it right.**
 
-Anonymous
+Billie Jean King
