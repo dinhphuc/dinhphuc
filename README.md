@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life only comes around once, so do whatever makes you happy, and be with whoever makes you smile.**
+**Set a goal that makes you want to jump out of bed in the morning.**
 
 Anonymous
