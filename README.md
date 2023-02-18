@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Maybe it won't work out. But maybe seeing if it does will be the best adventure ever.**
+**Forgiving yourself, believing in yourself and choosing to love yourself are the best gifts one could receive.**
 
-Anonymous
+Brittany Burgunder
