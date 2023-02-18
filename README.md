@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is short, and it is up to you to make it sweet.**
+**Believe you can and you're halfway there.**
 
-Sarah Louise Delany
+Theodore Roosevelt
