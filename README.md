@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Determination is doing what needs to be done even when you don't feel like doing it.**
+**Life only comes around once, so do whatever makes you happy, and be with whoever makes you smile.**
 
 Anonymous
