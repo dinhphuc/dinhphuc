@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It ain't as bad as you think. It will look better in the morning.**
+**Winning is fun, but those moments that you can touch someone's life in a very positive way are better.**
 
-Colin Powell
+Tim Howard
