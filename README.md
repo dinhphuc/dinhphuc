@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When I hear somebody sigh, 'Life is hard,' I am always tempted to ask, 'Compared to what?'**
+**Our own self-esteem is something we can actually twist in whatever way we want.**
 
-Sydney Harris
+Stephen Richards
