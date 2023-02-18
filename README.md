@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Champions keep playing until they get it right.**
+**What you choose to focus on expands and grows.**
 
-Billie Jean King
+Anonymous
