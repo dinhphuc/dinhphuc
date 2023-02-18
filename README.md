@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest weakness lies in giving up. The most certain way to succeed is to just try one more time.**
+**Someone who is busier than you is running right now.**
 
-Thomas Edison
+Nike
