@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't let the past steal your present.**
+**Determination is doing what needs to be done even when you don't feel like doing it.**
 
-Terri Guillemets
+Anonymous
