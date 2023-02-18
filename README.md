@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Set a goal that makes you want to jump out of bed in the morning.**
+**Cheerfulness is the very flower of health.**
 
 Anonymous
