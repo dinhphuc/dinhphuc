@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Words may inspire but only action creates change.**
+**When you depersonalize abrasive behavior and see it as a call for help you become a catalyst for the best kind of change.**
 
-Simon Sinek
+Marilyn Suttle
