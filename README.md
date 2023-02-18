@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It makes a big difference in your life when you stay positive.**
+**If you can dream it, then you can achieve it.**
 
-Ellen DeGeneres
+Zig Ziglar
