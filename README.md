@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can dream it, then you can achieve it.**
+**It's a good day to be happy.**
 
-Zig Ziglar
+Anonymous
