@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**What we achieve inwardly will change outer reality.**
+**Be happy. It really annoys negative people.**
 
-Plutarch
+Ricky Gervais
