@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is about making an impact, not making an income.**
+**What we achieve inwardly will change outer reality.**
 
-Kevin Kruse
+Plutarch
