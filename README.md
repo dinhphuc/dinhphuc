@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When obstacles arise, you change your direction to reach your goal, you do not change your decision to get there.**
+**Remember, most of your stress comes from the way you respond, not the way life is.**
 
-Zig Ziglar
+Anonymous
