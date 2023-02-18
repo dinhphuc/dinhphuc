@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It matters not what someone is born, but what they grow to be.**
+**Words may inspire but only action creates change.**
 
-Master Oogway
+Simon Sinek
