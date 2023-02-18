@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Peace begins When expectation ends.**
+**It matters not what someone is born, but what they grow to be.**
 
-Sri Chinmoy
+Master Oogway
