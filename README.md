@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't get discouraged by what you're going through. Your time is coming. Where you are is not where you're going to stay.**
+**It takes but one positive thought when given a chance to survive and thrive to overpower an entire army of negative thoughts.**
 
-Anonymous
+Robert H. Schuller
