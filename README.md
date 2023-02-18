@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Our own self-esteem is something we can actually twist in whatever way we want.**
+**It's going to be hard. But hard is not impossible.**
 
-Stephen Richards
+Anonymous
