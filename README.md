@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't judge each day by the harvest you reap but by the seeds that you plant.**
+**I compete only with myself, and I try to become a better human being. This is my goal.**
 
-Robert Louis Stevenson
+Sri Chinmoy
