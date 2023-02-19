@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Winners make a habit of manufacturing their own positive expectations in advance of the event.**
+**There is always something more to learn. Even for a master.**
 
-Brian Tracy
+Master Oogway
