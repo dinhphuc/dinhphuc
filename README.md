@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life isn't about finding yourself. Life is about creating yourself.**
+**Life is not a problem to be solved, but a reality to be experienced.**
 
-George Bernard Shaw
+Soren Kierkegaard
