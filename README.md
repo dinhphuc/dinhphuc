@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't have to control your thoughts; you just have to stop letting them control you.**
+**Climb the mountains to see lowlands.**
 
-Dan Millman
+Chinese Proverb
