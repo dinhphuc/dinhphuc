@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Climb the mountains to see lowlands.**
+**Life isn't about finding yourself. Life is about creating yourself.**
 
-Chinese Proverb
+George Bernard Shaw
