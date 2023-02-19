@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is a habit - cultivate it.**
+**The difference between the impossible and the possible lies in a person's determination.**
 
-Elbert Hubbard
+Tommy Lasorda
