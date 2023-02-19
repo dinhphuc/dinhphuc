@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You will never always be motivated. You have to learn to be disciplined.**
+**Once you're beat mentally, you might as well not even go to the starting line.**
 
-Anonymous
+Todd Williams
