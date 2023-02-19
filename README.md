@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There is always something more to learn. Even for a master.**
+**Continuous effort - not strength or intelligence - is the key to unlocking our potential.**
 
-Master Oogway
+Liane Cardes
