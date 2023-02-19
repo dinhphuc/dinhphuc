@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success consists of getting up just one more time than you fall.**
+**The reputation of a thousand years may be determined by the conduct of one hour.**
 
-Oliver Goldsmith
+Japanese Proverb
