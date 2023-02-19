@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you find your why, you find a way to make it happen.**
+**Dream big. Start small. But most of all, start.**
 
-Eric Thomas
+Simon Sinek
