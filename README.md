@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your path you must decide.**
+**It is not the mountain we conquer, but ourselves.**
 
-Yoda
+Sir Edmund Hillary
