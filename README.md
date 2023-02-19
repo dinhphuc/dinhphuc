@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I compete only with myself, and I try to become a better human being. This is my goal.**
+**Success consists of getting up just one more time than you fall.**
 
-Sri Chinmoy
+Oliver Goldsmith
