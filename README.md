@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your time is limited, so don't waste it living someone else's life.**
+**You deserve to be happy. You deserve to live a life you are excited about. Don't let others make you forget that.**
 
-Steve Jobs
+Anonymous
