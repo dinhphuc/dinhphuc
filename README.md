@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Setting goals is the first step into turning the invisible into the visible.**
+**A champion is someone who gets up when they can't.**
 
-Tony Robbins
+Jack Dempsey
