@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Dream big. Start small. But most of all, start.**
+**Happiness is a habit - cultivate it.**
 
-Simon Sinek
+Elbert Hubbard
