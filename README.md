@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Good judgment comes from experience, and a lot of that comes from bad judgment.**
+**When you want to talk about who made me, you talk to me. Who made me is ME.**
 
-Will Rogers
+Muhammad Ali
