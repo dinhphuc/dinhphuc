@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No one is perfect - that's why pencils have erasers.**
+**Our greatest weakness lies in giving up. The most certain way to succeed is to just try one more time.**
 
-Wolfgang Riebe
+Thomas Edison
