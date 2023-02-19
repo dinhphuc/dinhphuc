@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not the mountain we conquer, but ourselves.**
+**Don't judge each day by the harvest you reap but by the seeds that you plant.**
 
-Sir Edmund Hillary
+Robert Louis Stevenson
