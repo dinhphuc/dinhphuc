@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Today is a beautiful day and I will attract good things into my life.**
+**When you find your why, you find a way to make it happen.**
 
-Anonymous
+Eric Thomas
