@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is not a problem to be solved, but a reality to be experienced.**
+**Happy are those who take life day by day, complain very little, and are thankful for the little things in life.**
 
-Soren Kierkegaard
+Anonymous
