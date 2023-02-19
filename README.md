@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happy are those who take life day by day, complain very little, and are thankful for the little things in life.**
+**Nothing builds self-esteem and self-confidence like accomplishment.**
 
-Anonymous
+Thomas Carlyle
