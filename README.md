@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Everytime you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**
+**Setting goals is the first step into turning the invisible into the visible.**
 
-Mother Teresa
+Tony Robbins
