@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life chips away at us all. Some play the victim. Some choose to be a survivor. And then there are those who choose to conquer.**
+**Winners make a habit of manufacturing their own positive expectations in advance of the event.**
 
-Anonymous
+Brian Tracy
