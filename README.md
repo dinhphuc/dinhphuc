@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Only in the darkness can you see the stars.**
+**The things you regret most in life are the risks you didn't take.**
 
-Martin Luther King, Jr.
+Anonymous
