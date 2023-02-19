@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Once you're beat mentally, you might as well not even go to the starting line.**
+**Your time is limited, so don't waste it living someone else's life.**
 
-Todd Williams
+Steve Jobs
