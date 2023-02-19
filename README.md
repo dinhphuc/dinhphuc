@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Forgiving yourself, believing in yourself and choosing to love yourself are the best gifts one could receive.**
+**Your path you must decide.**
 
-Brittany Burgunder
+Yoda
