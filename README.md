@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter where you are on your journey, that's exactly where you need to be.**
+**Only in the darkness can you see the stars.**
 
-Oprah Winfrey
+Martin Luther King, Jr.
