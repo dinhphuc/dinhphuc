@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Shine like the whole universe is yours.**
+**Today is a beautiful day and I will attract good things into my life.**
 
-Rumi
+Anonymous
