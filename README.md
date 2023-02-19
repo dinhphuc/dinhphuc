@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing builds self-esteem and self-confidence like accomplishment.**
+**Everytime you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**
 
-Thomas Carlyle
+Mother Teresa
