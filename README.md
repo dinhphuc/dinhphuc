@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The things you regret most in life are the risks you didn't take.**
+**No one is perfect - that's why pencils have erasers.**
 
-Anonymous
+Wolfgang Riebe
