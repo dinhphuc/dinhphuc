@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't like something, change it. If you can't change it, change your attitude.**
+**Tension is who you think you should be. Relaxation is who you are.**
 
-Maya Angelou
+Jim Afremow
