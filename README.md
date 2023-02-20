@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Peace begins When expectation ends.**
+**He who lives in harmony with himself lives in harmony with the universe.**
 
-Sri Chinmoy
+Marcus Aurelius
