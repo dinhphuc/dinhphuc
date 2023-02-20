@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Maybe it won't work out. But maybe seeing if it does will be the best adventure ever.**
+**You can if you think you can.**
 
-Anonymous
+George Reeves
