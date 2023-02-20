@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are loved.**
+**Maybe it won't work out. But maybe seeing if it does will be the best adventure ever.**
 
 Anonymous
