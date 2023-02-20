@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Tension is who you think you should be. Relaxation is who you are.**
+**Peace begins When expectation ends.**
 
-Jim Afremow
+Sri Chinmoy
