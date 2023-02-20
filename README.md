@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**He who lives in harmony with himself lives in harmony with the universe.**
+**You have a choice. You can throw in the towel, or you can use it to wipe the sweat off of your face.**
 
-Marcus Aurelius
+Gatorade
