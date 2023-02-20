@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You can if you think you can.**
+**Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching.**
 
-George Reeves
+Satchel Paige
