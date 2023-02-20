@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.**
+**Good things come to those who believe. Better things come to those who are patient. The best things come to those who never give up.**
 
-Napoleon Hill
+Anonymous
