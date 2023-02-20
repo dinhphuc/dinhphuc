@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Alone, we can do so little; together we can do so much.**
+**I attribute my success to this: I never gave or took any excuse.**
 
-Helen Keller
+Florence Nightingale
