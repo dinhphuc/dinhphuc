@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be who you are and say what you feel because those who mind don't matter and those who matter don't mind.**
+**You can either spend your time or invest your time.**
 
-Dr. Seuss
+Chip Kelly
