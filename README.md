@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You have a choice. You can throw in the towel, or you can use it to wipe the sweat off of your face.**
+**Be who you are and say what you feel because those who mind don't matter and those who matter don't mind.**
 
-Gatorade
+Dr. Seuss
