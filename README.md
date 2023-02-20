@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're presenting yourself with confidence, you can pull off pretty much anything.**
+**When it rains look for rainbows.**
 
-Katy Perry
+Oscar Wilde
