@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When it rains look for rainbows.**
+**You are loved.**
 
-Oscar Wilde
+Anonymous
