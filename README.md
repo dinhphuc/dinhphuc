@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody who ever gave their best regretted it.**
+**Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.**
 
-George Halas
+Napoleon Hill
