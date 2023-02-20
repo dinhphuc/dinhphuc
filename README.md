@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I ask not for a lighter burden, but for broader shoulders.**
+**We should never change our minds about where we are going, but always be curious about different ways to get there.**
 
-Jewish Proverb
+Simon Sinek
