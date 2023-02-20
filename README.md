@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The purpose of our lives is to be happy.**
+**If you're presenting yourself with confidence, you can pull off pretty much anything.**
 
-Dalai Lama
+Katy Perry
