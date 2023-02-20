@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Learn to value yourself, which means: fight for your happiness.**
+**Nothing will work unless you do.**
 
-Ayn Rand
+Maya Angelou
