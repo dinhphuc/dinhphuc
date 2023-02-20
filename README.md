@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Learn to be thankful for what you already have, while you pursue all that you want.**
+**It's the repetition of affirmations that leads to belief. And once that belief becomes a deep conviction, things begin to happen.**
 
-Jim Rohn
+Muhammad Ali
