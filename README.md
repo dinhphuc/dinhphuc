@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're presenting yourself with confidence, you can pull off pretty much anything.**
+**Love the life you live. Live the life you love.**
 
-Katy Perry
+Bob Marley
