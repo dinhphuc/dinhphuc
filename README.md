@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We should never change our minds about where we are going, but always be curious about different ways to get there.**
+**If you're presenting yourself with confidence, you can pull off pretty much anything.**
 
-Simon Sinek
+Katy Perry
