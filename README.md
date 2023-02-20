@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You deserve to be happy. You deserve to live a life you are excited about. Don't let others make you forget that.**
+**Learn to be thankful for what you already have, while you pursue all that you want.**
 
-Anonymous
+Jim Rohn
