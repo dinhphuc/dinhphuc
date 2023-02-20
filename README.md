@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
+**If you don't like something, change it. If you can't change it, change your attitude.**
 
-Anonymous
+Maya Angelou
