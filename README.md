@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Simple to open a shop; another thing to keep it open.**
+**If you can't live longer, live deeper.**
 
-Chinese Proverb
+Italian Proverb
