@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest glory is not in never falling, but in rising every time we fall.**
+**Nobody who ever gave their best regretted it.**
 
-Confucius
+George Halas
