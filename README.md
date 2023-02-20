@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter who you are, no matter what you did, no matter where you've come from, you can always change, and become a better version of yourself.**
+**I ask not for a lighter burden, but for broader shoulders.**
 
-Madonna
+Jewish Proverb
