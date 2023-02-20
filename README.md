@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A little progress each day adds up to big results.**
+**Simple to open a shop; another thing to keep it open.**
 
-Satya Nani
+Chinese Proverb
