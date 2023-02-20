@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Love the life you live. Live the life you love.**
+**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
 
-Bob Marley
+Anonymous
