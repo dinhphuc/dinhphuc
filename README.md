@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**This a wonderful day. I've never seen this one before.**
+**Action is the foundational key to all success.**
 
-Maya Angelou
+Pablo Picasso
