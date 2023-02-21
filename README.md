@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Where there is love there is life.**
+**Success isn't just about what you accomplish in life. It's about what you inspire others to do.**
 
-Mahatma Gandhi
+Anonymous
