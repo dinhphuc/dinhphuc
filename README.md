@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life becomes easier and more beautiful when we can see the good in other people.**
+**You will be exactly as happy as you decide to be.**
 
-Roy T. Bennett
+Anonymous
