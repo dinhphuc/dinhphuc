@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Learn to value yourself, which means: fight for your happiness.**
+**Be aware as often as possible of the great transformation process you are going through.**
 
-Ayn Rand
+Anonymous
