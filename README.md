@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness resides not in possessions, and not in gold, happiness dwells in the soul.**
+**It ain't as bad as you think. It will look better in the morning.**
 
-Democritus
+Colin Powell
