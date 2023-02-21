@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A team is not a group of people that work together. A team is a group of people that trust each other.**
+**Happiness resides not in possessions, and not in gold, happiness dwells in the soul.**
 
-Simon Sinek
+Democritus
