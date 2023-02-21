@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It is only possible to live happily ever after on a daily basis.**
+**One often meets his destiny on the road he takes to avoid it.**
 
-Anonymous
+Master Oogway
