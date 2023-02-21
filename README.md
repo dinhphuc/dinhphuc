@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Certain things catch your eye, but pursue only those that capture the heart.**
+**Learning never exhausts the mind.**
 
-Ancient Indian Proverb
+Leonardo da Vinci
