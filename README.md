@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**In a dark place we find ourselves, and a little more knowledge lights our way.**
+**The difference between stumbling blocks and stepping stones is how you use them.**
 
-Yoda
+Anonymous
