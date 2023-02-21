@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Doing what you like is freedom. Liking what you do is happiness.**
+**It is only possible to live happily ever after on a daily basis.**
 
 Anonymous
