@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**One often meets his destiny on the road he takes to avoid it.**
+**Push yourself because no one else is going to do it for you.**
 
-Master Oogway
+Anonymous
