@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You will be exactly as happy as you decide to be.**
+**We know what we are, but know not what we may be.**
 
-Anonymous
+William Shakespeare
