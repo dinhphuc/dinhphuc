@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between stumbling blocks and stepping stones is how you use them.**
+**Always remember that you are absolutely unique. Just like everyone else.**
 
-Anonymous
+Margaret Mead
