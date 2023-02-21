@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**An attitude of positive expectation is the mark of the superior personality.**
+**In a dark place we find ourselves, and a little more knowledge lights our way.**
 
-Brian Tracy
+Yoda
