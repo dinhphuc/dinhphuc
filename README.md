@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Change your thoughts and you change your world.**
+**Doing what you like is freedom. Liking what you do is happiness.**
 
-Norman Vincent Peale
+Anonymous
