@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You can have everything you want in life if you just help enough people get what they want in life.**
+**If your dreams don't scare you, they aren't big enough.**
 
-Zig Ziglar
+Muhammad Ali
