@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between stumbling blocks and stepping stones is how you use them.**
+**When we help ourselves, we find moments of happiness. When we help others, we find lasting fulfillment.**
 
-Anonymous
+Simon Sinek
