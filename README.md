@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you are, be a good one.**
+**Learn to value yourself, which means: fight for your happiness.**
 
-Abraham Lincoln
+Ayn Rand
