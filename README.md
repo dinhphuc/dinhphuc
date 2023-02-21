@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is too short to spend it at war with yourself.**
+**You may never know what results come of your actions, but if you do nothing, there will be no results.**
 
-Anonymous
+Mahatma Gandhi
