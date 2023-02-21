@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe in yourself, take on your challenges, dig deep within yourself to conquer fears. Never let anyone bring you down. You got to keep going.**
+**Certain things catch your eye, but pursue only those that capture the heart.**
 
-Chantal Sutherland
+Ancient Indian Proverb
