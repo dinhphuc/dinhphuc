@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Learning never exhausts the mind.**
+**Don't wait around for other people to be happy for you. Any happiness you get, you've got to make yourself.**
 
-Leonardo da Vinci
+Alice Walker
