@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Doubt kills more dreams than failure ever will.**
+**Whatever you are, be a good one.**
 
-Suzy Kassem
+Abraham Lincoln
