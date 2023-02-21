@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It ain't as bad as you think. It will look better in the morning.**
+**When you are enthusiastic about what you do, you feel this positive energy. It's very simple.**
 
-Colin Powell
+Paulo Coelho
