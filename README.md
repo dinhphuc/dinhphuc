@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If your dreams don't scare you, they aren't big enough.**
+**I didn't come this far to only come this far.**
 
-Muhammad Ali
+Anonymous
