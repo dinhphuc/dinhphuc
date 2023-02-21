@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You may never know what results come of your actions, but if you do nothing, there will be no results.**
+**Whoever is happy will make others happy too.**
 
-Mahatma Gandhi
+Anonymous
