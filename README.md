@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can't live longer, live deeper.**
+**Doubt kills more dreams than failure ever will.**
 
-Italian Proverb
+Suzy Kassem
