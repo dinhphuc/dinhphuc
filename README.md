@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whoever is happy will make others happy too.**
+**This a wonderful day. I've never seen this one before.**
 
-Anonymous
+Maya Angelou
