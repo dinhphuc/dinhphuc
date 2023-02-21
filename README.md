@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life works for my benefit.**
+**Life is too short to spend it at war with yourself.**
 
 Anonymous
