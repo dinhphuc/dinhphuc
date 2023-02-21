@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Action is the foundational key to all success.**
+**Love the life you live. Live the life you love.**
 
-Pablo Picasso
+Bob Marley
