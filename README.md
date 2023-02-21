@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I didn't come this far to only come this far.**
+**Life becomes easier and more beautiful when we can see the good in other people.**
 
-Anonymous
+Roy T. Bennett
