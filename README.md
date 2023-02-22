@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Leadership is not about being in charge. Leadership is about taking care of those in your charge.**
+**The more you praise and celebrate your life, the more there is in life to celebrate.**
 
-Simon Sinek
+Oprah Winfrey
