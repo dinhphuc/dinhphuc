@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When we point to obstacles we inhibit progress. When we offer solutions we advance.**
+**If we feel inwardly strong, we will have no need or desire to speak ill of others.**
 
-Simon Sinek
+Sri Chinmoy
