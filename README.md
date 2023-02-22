@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**To be calm is the highest achievement of the self.**
+**You don't get what you wish for. You get what you work for.**
 
-Zen Proverb
+Anonymous
