@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Work on being in love with the person in the mirror who has been through so much but is still standing.**
+**There are only two mistakes one can make along the road to truth; not going all the way, and not starting.**
 
-Anonymous
+Buddha
