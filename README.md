@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**100% commitment is easier than 98% commitment.**
+**Mind what you have learned. Save you it can.**
 
-Harvard Business School
+Yoda
