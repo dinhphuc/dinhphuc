@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If we feel inwardly strong, we will have no need or desire to speak ill of others.**
+**Blessed are they who see beautiful things in humble places where other people see nothing.**
 
-Sri Chinmoy
+Camille Pissaro
