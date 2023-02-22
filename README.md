@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Hope never abandons you, you abandon it.**
+**Be you. Do you. For you.**
 
-George Weinberg
+Anonymous
