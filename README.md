@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Always plan for the fact that no plan ever goes according to plan.**
+**I alone cannot change the world, but I can cast a stone across the water to create many ripples.**
 
-Simon Sinek
+Mother Teresa
