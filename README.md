@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You have a choice. You can throw in the towel, or you can use it to wipe the sweat off of your face.**
+**Work on being in love with the person in the mirror who has been through so much but is still standing.**
 
-Gatorade
+Anonymous
