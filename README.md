@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm stronger because I had to be, I'm smarter because of my mistakes, happier because of the sadness I've known, and now wiser because I learned.**
+**Leadership is not about being in charge. Leadership is about taking care of those in your charge.**
 
-Anonymous
+Simon Sinek
