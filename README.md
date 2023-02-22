@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The more you praise and celebrate your life, the more there is in life to celebrate.**
+**In life, many things do not go according to plan. If you fall, get back up.**
 
-Oprah Winfrey
+Anonymous
