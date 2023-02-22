@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Continuous effort - not strength or intelligence - is the key to unlocking our potential.**
+**You have a choice. You can throw in the towel, or you can use it to wipe the sweat off of your face.**
 
-Liane Cardes
+Gatorade
