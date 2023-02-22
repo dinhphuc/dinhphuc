@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Kill them with success and bury them with a smile.**
+**Never give up. You only get one life. Go for it.**
 
-Usain Bolt
+Richard E. Grant
