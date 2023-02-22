@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There will be obstacles. There will be doubters. There will be mistakes. But with hard work, there are no limits.**
+**When we point to obstacles we inhibit progress. When we offer solutions we advance.**
 
-Anonymous
+Simon Sinek
