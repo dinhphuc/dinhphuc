@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do all things with love.**
+**If you're presenting yourself with confidence, you can pull off pretty much anything.**
 
-Og Mandino
+Katy Perry
