@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There is a difference between giving up and knowing when you've had enough.**
+**There will be obstacles. There will be doubters. There will be mistakes. But with hard work, there are no limits.**
 
 Anonymous
