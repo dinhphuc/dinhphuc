@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We can't help everyone, but everyone can help someone.**
+**Being happy is the greatest form of success.**
 
-Ronald Reagan
+Anonymous
