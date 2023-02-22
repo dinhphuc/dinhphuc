@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The comeback is always stronger than the setback.**
+**All that matters is how you see yourself.**
 
-Anonymous
+Conor McGregor
