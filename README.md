@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You alone are enough. You have nothing to prove to anybody.**
+**Always plan for the fact that no plan ever goes according to plan.**
 
-Maya Angelou
+Simon Sinek
