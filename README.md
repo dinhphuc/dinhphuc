@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Being happy is the greatest form of success.**
+**You alone are enough. You have nothing to prove to anybody.**
 
-Anonymous
+Maya Angelou
