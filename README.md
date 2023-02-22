@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Mind what you have learned. Save you it can.**
+**Be aware as often as possible of the great transformation process you are going through.**
 
-Yoda
+Anonymous
