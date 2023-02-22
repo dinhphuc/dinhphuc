@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Blessed are they who see beautiful things in humble places where other people see nothing.**
+**We can't help everyone, but everyone can help someone.**
 
-Camille Pissaro
+Ronald Reagan
