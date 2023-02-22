@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're presenting yourself with confidence, you can pull off pretty much anything.**
+**Be not afraid of life. Believe that life is worth living, and your belief will help create the fact.**
 
-Katy Perry
+William James
