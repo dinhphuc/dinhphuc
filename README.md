@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Always plan for the fact that no plan ever goes according to plan.**
+**One day I'll be at the place I always wanted to be.**
 
-Simon Sinek
+Anonymous
