@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**All that matters is how you see yourself.**
+**Continuous effort - not strength or intelligence - is the key to unlocking our potential.**
 
-Conor McGregor
+Liane Cardes
