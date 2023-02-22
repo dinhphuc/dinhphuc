@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be not afraid of life. Believe that life is worth living, and your belief will help create the fact.**
+**100% commitment is easier than 98% commitment.**
 
-William James
+Harvard Business School
