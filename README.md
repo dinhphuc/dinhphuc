@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No marathon gets easier later. The halfway point only marks the end of the beginning.**
+**Kill them with success and bury them with a smile.**
 
-Joe Henderson
+Usain Bolt
