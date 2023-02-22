@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When we point to obstacles we inhibit progress. When we offer solutions we advance.**
+**No marathon gets easier later. The halfway point only marks the end of the beginning.**
 
-Simon Sinek
+Joe Henderson
