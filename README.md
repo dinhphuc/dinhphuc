@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be aware as often as possible of the great transformation process you are going through.**
+**Hope never abandons you, you abandon it.**
 
-Anonymous
+George Weinberg
