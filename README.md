@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We know what we are, but know not what we may be.**
+**The comeback is always stronger than the setback.**
 
-William Shakespeare
+Anonymous
