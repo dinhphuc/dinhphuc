@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up. You only get one life. Go for it.**
+**Shared joy is a double joy; shared sorrow is half a sorrow.**
 
-Richard E. Grant
+Swedish Proverb
