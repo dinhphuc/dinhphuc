@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Shared joy is a double joy; shared sorrow is half a sorrow.**
+**If you are not willing to risk the usual, you will have to settle for the ordinary.**
 
-Swedish Proverb
+Jim Rohn
