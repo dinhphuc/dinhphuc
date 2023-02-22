@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be you. Do you. For you.**
+**Whatever the mind can conceive and believe, it can achieve.**
 
-Anonymous
+Napoleon Hill
