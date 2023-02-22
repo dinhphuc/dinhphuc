@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever the mind can conceive and believe, it can achieve.**
+**When we point to obstacles we inhibit progress. When we offer solutions we advance.**
 
-Napoleon Hill
+Simon Sinek
