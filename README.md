@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you really look closely, most overnight successes took a long time.**
+**Honesty is the first chapter in the book of wisdom.**
 
-Steve Jobs
+Thomas Jefferson
