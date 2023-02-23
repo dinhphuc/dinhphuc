@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The first place where self-esteem begins its journey is within us.**
+**You cannot change the direction of the wind - only alter the angle of your sails.**
 
-Stephen Richards
+Anonymous
