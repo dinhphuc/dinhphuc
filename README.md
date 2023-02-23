@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure will never overtake me if my determination to succeed is strong enough.**
+**Dream without fear. Love without limits.**
 
-Og Mandino
+Dilip Bathija
