@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you get tired, learn to rest, not quit.**
+**Every strike brings me closer to the next home run.**
 
-Anonymous
+Babe Ruth
