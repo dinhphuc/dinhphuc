@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do all things with love.**
+**The purpose of our lives is to be happy.**
 
-Og Mandino
+Dalai Lama
