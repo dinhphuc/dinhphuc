@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Learn to be thankful for what you already have, while you pursue all that you want.**
+**Life is either a daring adventure or nothing at all.**
 
-Jim Rohn
+Helen Keller
