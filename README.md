@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Every strike brings me closer to the next home run.**
+**Use your smile to change the world; don't let the world change your smile.**
 
-Babe Ruth
+Chinese proverb
