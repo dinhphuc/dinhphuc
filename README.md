@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Very little is needed to make a happy life; it is all within yourself, in your way of thinking.**
+**To fall in love with yourself is the first secret to happiness.**
 
-Marcus Aurelius
+Robert Morley
