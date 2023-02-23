@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**To fall in love with yourself is the first secret to happiness.**
+**The first place where self-esteem begins its journey is within us.**
 
-Robert Morley
+Stephen Richards
