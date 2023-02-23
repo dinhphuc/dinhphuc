@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm too grateful to be hateful. I am too blessed to be stressed.**
+**The one who falls and gets up is so much stronger than the one who never fell.**
 
-El DeBarge
+Anonymous
