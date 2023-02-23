@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Even the greatest were beginners. Don't be afraid to take that first step.**
+**Relationships are based on four principles: respect, understanding, acceptance and appreciation.**
 
-Anonymous
+Mahatma Gandhi
