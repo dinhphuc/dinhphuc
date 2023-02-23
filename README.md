@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest ability as humans is not to change the world; but to change ourselves.**
+**My heart is always open to love.**
 
-Mahatma Gandhi
+Anonymous
