@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are the only one who can limit your greatness.**
+**It's better to light a candle than curse the darkness.**
 
-Anonymous
+Chinese Proverb
