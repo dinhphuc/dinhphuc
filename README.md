@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot afford to live in potential for the rest of your life; at some point, you have to unleash the potential and make your move.**
+**Start by doing what's necessary; then do what's possible; and suddenly you are doing the impossible.**
 
-Eric Thomas
+Francis of Assisi
