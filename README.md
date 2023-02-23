@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is either a daring adventure or nothing at all.**
+**Make the most of yourself....for that is all there is of you.**
 
-Helen Keller
+Ralph Waldo Emerson
