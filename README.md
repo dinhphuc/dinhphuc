@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing is more beautiful than the smile that has struggled through the tears.**
+**Your hardest times often lead to the greatest moments of your life. Keep going. Tough situations build strong people in the end.**
 
-Demi Lovato
+Roy T. Bennett
