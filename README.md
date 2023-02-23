@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't get what you wish for. You get what you work for.**
+**If you really look closely, most overnight successes took a long time.**
 
-Anonymous
+Steve Jobs
