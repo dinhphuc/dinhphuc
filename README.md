@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength doesn't come from what you can do. It comes from overcoming the things you once thought you couldn't.**
+**Always plan for the fact that no plan ever goes according to plan.**
 
-Rikki Rogers
+Simon Sinek
