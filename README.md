@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you dare to dream, dare to follow that dream; dare to suffer through the pain, sacrifice, self-doubts and friction from the world.**
+**Skill is only developed by hours and hours of work.**
 
-Laura Schlessinger
+Usain Bolt
