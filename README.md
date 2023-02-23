@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Always plan for the fact that no plan ever goes according to plan.**
+**You have brains in your head. You have feet in your shoes. You can steer yourself any direction you choose.**
 
-Simon Sinek
+Dr. Seuss
