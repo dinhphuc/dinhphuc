@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The one who falls and gets up is so much stronger than the one who never fell.**
+**If you get tired, learn to rest, not quit.**
 
 Anonymous
