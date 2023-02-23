@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Feel the force!**
+**Do all things with love.**
 
-Yoda
+Og Mandino
