@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't count the days, make the days count.**
+**Successful people build each other up. They inspire, motivate, and push each other. Unsuccessful people just hate, blame, and complain.**
 
-Muhammad Ali
+Anonymous
