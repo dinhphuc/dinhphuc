@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Start by doing what's necessary; then do what's possible; and suddenly you are doing the impossible.**
+**Nothing is more beautiful than the smile that has struggled through the tears.**
 
-Francis of Assisi
+Demi Lovato
