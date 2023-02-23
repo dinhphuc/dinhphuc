@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Skill is only developed by hours and hours of work.**
+**You are the only one who can limit your greatness.**
 
-Usain Bolt
+Anonymous
