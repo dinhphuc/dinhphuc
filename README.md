@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Make the most of yourself....for that is all there is of you.**
+**You cannot afford to live in potential for the rest of your life; at some point, you have to unleash the potential and make your move.**
 
-Ralph Waldo Emerson
+Eric Thomas
