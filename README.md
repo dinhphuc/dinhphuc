@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Use your smile to change the world; don't let the world change your smile.**
+**Love cures people - both the ones who give it and the ones who receive it.**
 
-Chinese proverb
+Karl A. Menninger
