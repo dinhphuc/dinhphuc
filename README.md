@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Successful people build each other up. They inspire, motivate, and push each other. Unsuccessful people just hate, blame, and complain.**
+**Our greatest ability as humans is not to change the world; but to change ourselves.**
 
-Anonymous
+Mahatma Gandhi
