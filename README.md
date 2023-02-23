@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Relationships are based on four principles: respect, understanding, acceptance and appreciation.**
+**To give anything less than your best is to sacrifice the gift.**
 
-Mahatma Gandhi
+Steve Prefontaine
