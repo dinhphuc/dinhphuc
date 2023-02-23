@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**To give anything less than your best is to sacrifice the gift.**
+**It is only possible to live happily ever after on a daily basis.**
 
-Steve Prefontaine
+Anonymous
