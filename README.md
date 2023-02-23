@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Honesty is the first chapter in the book of wisdom.**
+**Learn to be thankful for what you already have, while you pursue all that you want.**
 
-Thomas Jefferson
+Jim Rohn
