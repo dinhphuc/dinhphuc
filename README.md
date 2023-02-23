@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It is only possible to live happily ever after on a daily basis.**
+**I'm too grateful to be hateful. I am too blessed to be stressed.**
 
-Anonymous
+El DeBarge
