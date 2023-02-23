@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life chips away at us all. Some play the victim. Some choose to be a survivor. And then there are those who choose to conquer.**
+**Even the greatest were beginners. Don't be afraid to take that first step.**
 
 Anonymous
