@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your hardest times often lead to the greatest moments of your life. Keep going. Tough situations build strong people in the end.**
+**Failure will never overtake me if my determination to succeed is strong enough.**
 
-Roy T. Bennett
+Og Mandino
