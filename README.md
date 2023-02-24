@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I compete only with myself, and I try to become a better human being. This is my goal.**
+**Make the mind tougher by exposing it to adversity.**
 
-Sri Chinmoy
+Robert Greene
