@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I am in charge of how I feel and today I am choosing happiness.**
+**Don't get discouraged by what you're going through. Your time is coming. Where you are is not where you're going to stay.**
 
 Anonymous
