@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Alone, we can do so little; together we can do so much.**
+**You can either complain about it or grind, I choose to grind.**
 
-Helen Keller
+Kyle Vidrine
