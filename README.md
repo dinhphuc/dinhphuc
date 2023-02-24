@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe with all of your heart that you will do what you were made to do.**
+**I compete only with myself, and I try to become a better human being. This is my goal.**
 
-Orison Swett Marden
+Sri Chinmoy
