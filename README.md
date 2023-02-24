@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Once I realized the problem was not you but within me. I found inner peace and was able to harness the flow of the universe.**
+**Live as if you were to die tomorrow. Learn as if you were to live forever.**
 
-Master Shifu
+Mahatma Gandhi
