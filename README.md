@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is only real when shared.**
+**Life isn't about waiting for the storm to pass, it's about learning how to dance in the rain.**
 
-Jon Krakauer
+Vivian Greene
