@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence comes from discipline and training.**
+**Age is whatever you think it is. You are as old as you think you are.**
 
-Robert Kiyosaki
+Muhammad Ali
