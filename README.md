@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody can make you to feel inferior without your consent.**
+**Confidence comes from discipline and training.**
 
-Eleanor Roosevelt
+Robert Kiyosaki
