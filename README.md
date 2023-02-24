@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Honesty is the first chapter in the book of wisdom.**
+**Believe with all of your heart that you will do what you were made to do.**
 
-Thomas Jefferson
+Orison Swett Marden
