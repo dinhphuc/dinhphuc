@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You can have everything you want in life if you just help enough people get what they want in life.**
+**Honesty is the first chapter in the book of wisdom.**
 
-Zig Ziglar
+Thomas Jefferson
