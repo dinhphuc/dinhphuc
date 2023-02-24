@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Make the mind tougher by exposing it to adversity.**
+**Why worry? If you've done the very best you can, worrying won't make it any better.**
 
-Robert Greene
+Walt Disney
