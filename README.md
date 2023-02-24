@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Measure a thousand times and cut once.**
+**Happiness is only real when shared.**
 
-Turkish Proverb
+Jon Krakauer
