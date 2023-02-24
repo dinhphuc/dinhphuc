@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life isn't about waiting for the storm to pass, it's about learning how to dance in the rain.**
+**Life is short, and it is up to you to make it sweet.**
 
-Vivian Greene
+Sarah Louise Delany
