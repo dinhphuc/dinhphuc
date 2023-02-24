@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Age is whatever you think it is. You are as old as you think you are.**
+**Do all things with love.**
 
-Muhammad Ali
+Og Mandino
