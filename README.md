@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Positive thinking will let you do everything better than negative thinking will.**
+**Once I realized the problem was not you but within me. I found inner peace and was able to harness the flow of the universe.**
 
-Zig Ziglar
+Master Shifu
