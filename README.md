@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Alone, we can do so little; together we can do so much.**
+**A secret to happiness is letting every situatiuon be what it is instead of what you think it should be.**
 
-Helen Keller
+Anonymous
