@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**My heart is always open to love.**
+**Accept yourself, love yourself, and keep moving forward.**
 
-Anonymous
+Roy T. Bennett
