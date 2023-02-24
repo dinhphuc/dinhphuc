@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Climb the mountains to see lowlands.**
+**Positive thinking will let you do everything better than negative thinking will.**
 
-Chinese Proverb
+Zig Ziglar
