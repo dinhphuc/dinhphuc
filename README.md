@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Go confidently in the direction of your dreams! Live the life you've imagined.**
+**Make each day your masterpiece.**
 
-Henry David Thoreau
+John Wooden
