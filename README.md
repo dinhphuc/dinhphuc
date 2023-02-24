@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Live as if you were to die tomorrow. Learn as if you were to live forever.**
+**Focus on your goal. Don't look in any direction but ahead.**
 
-Mahatma Gandhi
+Anonymous
