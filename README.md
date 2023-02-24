@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is short, and it is up to you to make it sweet.**
+**Don't judge each day by the harvest you reap but by the seeds that you plant.**
 
-Sarah Louise Delany
+Robert Louis Stevenson
