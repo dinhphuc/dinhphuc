@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We don't develop courage by being happy every day. We develop it by surviving difficult times and challenging adversity.**
+**Walk on with hope in your heart, and you'll never walk alone.**
 
-Barbara De Angelis
+Shah Rukh Khan
