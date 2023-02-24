@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Accept yourself, love yourself, and keep moving forward.**
+**If you don't love what you do, you won't do it with much conviction or passion.**
 
-Roy T. Bennett
+Mia Hamm
