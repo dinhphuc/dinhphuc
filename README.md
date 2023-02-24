@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Why worry? If you've done the very best you can, worrying won't make it any better.**
+**Don't wait around for other people to be happy for you. Any happiness you get, you've got to make yourself.**
 
-Walt Disney
+Alice Walker
