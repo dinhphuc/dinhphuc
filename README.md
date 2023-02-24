@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do all things with love.**
+**I am in charge of how I feel and today I am choosing happiness.**
 
-Og Mandino
+Anonymous
