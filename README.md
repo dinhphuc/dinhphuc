@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Only those who dare to fail greatly can ever achieve greatly.**
+**Alone, we can do so little; together we can do so much.**
 
-Robert F. Kennedy
+Helen Keller
