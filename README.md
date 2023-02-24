@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Focus on your goal. Don't look in any direction but ahead.**
+**It is only possible to live happily ever after on a daily basis.**
 
 Anonymous
