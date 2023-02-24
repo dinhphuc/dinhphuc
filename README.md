@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Always deliver more than expected.**
+**Measure a thousand times and cut once.**
 
-Larry Page
+Turkish Proverb
