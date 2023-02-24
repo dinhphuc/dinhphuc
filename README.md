@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Walk on with hope in your heart, and you'll never walk alone.**
+**Tension is who you think you should be. Relaxation is who you are.**
 
-Shah Rukh Khan
+Jim Afremow
