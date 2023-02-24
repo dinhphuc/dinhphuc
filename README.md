@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You've never lived this day before, and you never will again. Make the most of it!**
+**Always deliver more than expected.**
 
-Anonymous
+Larry Page
