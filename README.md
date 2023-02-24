@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is too short to spend it at war with yourself.**
+**You've never lived this day before, and you never will again. Make the most of it!**
 
 Anonymous
