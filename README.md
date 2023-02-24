@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Make each day your masterpiece.**
+**Strength does not come from physical capacity. It comes from an indomitable will.**
 
-John Wooden
+Mahatma Gandhi
