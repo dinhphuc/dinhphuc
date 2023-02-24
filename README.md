@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't love what you do, you won't do it with much conviction or passion.**
+**Go confidently in the direction of your dreams! Live the life you've imagined.**
 
-Mia Hamm
+Henry David Thoreau
