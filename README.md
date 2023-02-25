@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.**
+**Fear is temporary. Regret is forever.**
 
-William Arthur Ward
+Anonymous
