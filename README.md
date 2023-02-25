@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is letting go of what you think your life is supposed to look like and enjoying it for everything that it is.**
+**Life without love is like a tree without blossoms or fruit.**
 
-Mandy Hale
+Khalil Gibran
