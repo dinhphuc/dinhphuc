@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I attribute my success to this: I never gave or took any excuse.**
+**I know I have unlimited potential to create the life of my dreams.**
 
-Florence Nightingale
+Anonymous
