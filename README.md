@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You've got to find people who love like you do.**
+**Good people are like candles; they burn themselves up to give others light.**
 
 Anonymous
