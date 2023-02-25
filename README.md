@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Victory is always possible for the person who refuses to stop fighting.**
+**The harder the struggle, the more glorious the triumph.**
 
-Napoleon Hill
+Anonymous
