@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I know I have unlimited potential to create the life of my dreams.**
+**Life's most persistent and urgent question is, 'What are you doing for others?'**
 
-Anonymous
+Martin Luther King
