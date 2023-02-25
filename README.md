@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Just one smile, immensely increases the beauty, of the universe.**
+**You are what you believe yourself to be.**
 
-Sri Chinmoy
+Paulo Coelho
