@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life's most persistent and urgent question is, 'What are you doing for others?'**
+**Keep going. Everything you need will come to you at the perfect time.**
 
-Martin Luther King
+Anonymous
