@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is letting go of what you think your life is supposed to look like and enjoying it for everything that it is.**
+**Yesterday is not ours to recover, but tomorrow is ours to win or lose.**
 
-Mandy Hale
+Lyndon B. Johnson
