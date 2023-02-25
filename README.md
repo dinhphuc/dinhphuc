@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Yesterday is not ours to recover, but tomorrow is ours to win or lose.**
+**To be willing is only half the task.**
 
-Lyndon B. Johnson
+Armenian Proverb
