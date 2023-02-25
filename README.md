@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The harder the struggle, the more glorious the triumph.**
+**A fault confessed is half redressed.**
 
-Anonymous
+Zulu Proverb
