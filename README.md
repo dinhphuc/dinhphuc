@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I know I have unlimited potential to create the life of my dreams.**
+**Certain things catch your eye, but pursue only those that capture the heart.**
 
-Anonymous
+Ancient Indian Proverb
