@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Everyone is breakable, but not everyone is aware that it's a choice to stay broken.**
+**You've got to find people who love like you do.**
 
-Stanley Behrman
+Anonymous
