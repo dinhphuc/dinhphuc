@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When it comes to success, there are no shortcuts.**
+**No matter how old I get, the race remains one of life's most rewarding experiences.**
 
-Bo Bennett
+George Sheehan
