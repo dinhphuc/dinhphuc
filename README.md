@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Certain things catch your eye, but pursue only those that capture the heart.**
+**Everyone is breakable, but not everyone is aware that it's a choice to stay broken.**
 
-Ancient Indian Proverb
+Stanley Behrman
