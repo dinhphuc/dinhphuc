@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't let the past steal your present.**
+**The supreme art of war is to subdue the enemy without fighting.**
 
-Terri Guillemets
+Sun Tzu
