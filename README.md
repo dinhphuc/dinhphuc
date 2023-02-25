@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life without love is like a tree without blossoms or fruit.**
+**Our greatest weakness lies in giving up. The most certain way to succeed is to just try one more time.**
 
-Khalil Gibran
+Thomas Edison
