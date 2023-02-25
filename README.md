@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A fault confessed is half redressed.**
+**I know I have unlimited potential to create the life of my dreams.**
 
-Zulu Proverb
+Anonymous
