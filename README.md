@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If your dreams don't scare you, they aren't big enough.**
+**Failure is not the opposite of success. Its part of success.**
 
-Muhammad Ali
+Anonymous
