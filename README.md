@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The supreme art of war is to subdue the enemy without fighting.**
+**I attribute my success to this: I never gave or took any excuse.**
 
-Sun Tzu
+Florence Nightingale
