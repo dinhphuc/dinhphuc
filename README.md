@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are so much more than what you are going through.**
+**Winning isn't everything, but wanting to win is.**
 
-John Tew
+Vince Lombardi
