@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Winning isn't everything, but wanting to win is.**
+**I attribute my success to this: I never gave or took any excuse.**
 
-Vince Lombardi
+Florence Nightingale
