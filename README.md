@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are what you believe yourself to be.**
+**Alone, we can do so little; together we can do so much.**
 
-Paulo Coelho
+Helen Keller
