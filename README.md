@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Good people are like candles; they burn themselves up to give others light.**
+**If your dreams don't scare you, they aren't big enough.**
 
-Anonymous
+Muhammad Ali
