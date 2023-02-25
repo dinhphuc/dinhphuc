@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It only takes one person to make you happy and change your life: YOU.**
+**When it comes to success, there are no shortcuts.**
 
-Charles Orlando
+Bo Bennett
