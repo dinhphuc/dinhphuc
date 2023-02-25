@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**To be willing is only half the task.**
+**Don't let the past steal your present.**
 
-Armenian Proverb
+Terri Guillemets
