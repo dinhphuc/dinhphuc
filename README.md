@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Mind what you have learned. Save you it can.**
+**Just one smile, immensely increases the beauty, of the universe.**
 
-Yoda
+Sri Chinmoy
