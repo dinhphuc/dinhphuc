@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You may be disappointed if you fail, but you are doomed if you don't try.**
+**It only takes one person to make you happy and change your life: YOU.**
 
-Beverly Sills
+Charles Orlando
