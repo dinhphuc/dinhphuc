@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Fear is temporary. Regret is forever.**
+**Victory is always possible for the person who refuses to stop fighting.**
 
-Anonymous
+Napoleon Hill
