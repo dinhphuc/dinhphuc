@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest weakness lies in giving up. The most certain way to succeed is to just try one more time.**
+**You may be disappointed if you fail, but you are doomed if you don't try.**
 
-Thomas Edison
+Beverly Sills
