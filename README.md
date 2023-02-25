@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't judge each day by the harvest you reap but by the seeds that you plant.**
+**Happiness is letting go of what you think your life is supposed to look like and enjoying it for everything that it is.**
 
-Robert Louis Stevenson
+Mandy Hale
