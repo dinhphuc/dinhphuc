@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are positive, you'll see opportunities instead of obstacles.**
+**Just when the caterpillar thought the world was ending, it turned into a butterfly.**
 
-Widad Akrawi
+Anonymous
