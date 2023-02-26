@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Easy choices, hard life. Hard choices, easy life.**
+**What you choose to focus on expands and grows.**
 
-Jerzy Gregorek
+Anonymous
