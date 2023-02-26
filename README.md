@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I don't make excuses. I make results.**
+**The greatest mistake you can make in life is to continually fear that you will make one.**
 
-Anonymous
+Elbert Hubbard
