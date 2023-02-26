@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Even the greatest were beginners. Don't be afraid to take that first step.**
+**You should never give up. No matter how hard the situation is, always believe that something beautiful is going to happen.**
 
 Anonymous
