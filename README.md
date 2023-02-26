@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Faith is taking the first step even when you don't see the whole staircase.**
+**Easy choices, hard life. Hard choices, easy life.**
 
-Martin Luther King
+Jerzy Gregorek
