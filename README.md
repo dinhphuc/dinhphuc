@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest ability as humans is not to change the world; but to change ourselves.**
+**Keep your eyes on the stars, and your feet on the ground.**
 
-Mahatma Gandhi
+Theodore Roosevelt
