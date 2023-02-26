@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I alone cannot change the world, but I can cast a stone across the water to create many ripples.**
+**Good people are like candles; they burn themselves up to give others light.**
 
-Mother Teresa
+Anonymous
