@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Every champion was once a contender that refused to give up.**
+**Trust the process of life.**
 
-Rocky Balboa
+Anonymous
