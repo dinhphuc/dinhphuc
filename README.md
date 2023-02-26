@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep your eyes on the stars, and your feet on the ground.**
+**The trophy is earned in the hours that no one is watching.**
 
-Theodore Roosevelt
+Anonymous
