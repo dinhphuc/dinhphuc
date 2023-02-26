@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you believe it, the mind can achieve it.**
+**Almost every successful person begins their journey with two core beliefs: the future can be better than the present, and I have the power to make it so.**
 
-Ronnie Lott
+Anonymous
