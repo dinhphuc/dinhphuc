@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't let the past steal your present.**
+**Move fast and break things. If you are not breaking things, you are not moving fast enough.**
 
-Terri Guillemets
+Mark Zuckerberg
