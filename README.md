@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Stop beating yourself up. You are a work in progress which means you get there a little at a time, not all at once.**
+**Feel the force!**
 
-Anonymous
+Yoda
