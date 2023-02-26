@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The trophy is earned in the hours that no one is watching.**
+**Live as if you were to die tomorrow. Learn as if you were to live forever.**
 
-Anonymous
+Mahatma Gandhi
