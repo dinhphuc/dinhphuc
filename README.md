@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Make the mind tougher by exposing it to adversity.**
+**The beginning is the most important part of the work.**
 
-Robert Greene
+Plato
