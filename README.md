@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Just when the caterpillar thought the world was ending, it turned into a butterfly.**
+**The goal is not to be perfect by the end. The goal is to be better today.**
 
-Anonymous
+Simon Sinek
