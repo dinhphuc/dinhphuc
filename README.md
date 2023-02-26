@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Alone, we can do so little; together we can do so much.**
+**Your problem isn't the problem, it's your attitude about the problem.**
 
-Helen Keller
+Ann Brashares
