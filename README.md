@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're presenting yourself with confidence, you can pull off pretty much anything.**
+**Stop beating yourself up. You are a work in progress which means you get there a little at a time, not all at once.**
 
-Katy Perry
+Anonymous
