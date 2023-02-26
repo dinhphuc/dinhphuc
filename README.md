@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are what you do, not what you say you'll do.**
+**Every champion was once a contender that refused to give up.**
 
-Anonymous
+Rocky Balboa
