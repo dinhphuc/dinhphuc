@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The goal is not to be perfect by the end. The goal is to be better today.**
+**A team is not a group of people that work together. A team is a group of people that trust each other.**
 
 Simon Sinek
