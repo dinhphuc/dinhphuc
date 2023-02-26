@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Move fast and break things. If you are not breaking things, you are not moving fast enough.**
+**Our greatest ability as humans is not to change the world; but to change ourselves.**
 
-Mark Zuckerberg
+Mahatma Gandhi
