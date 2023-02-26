@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest mistake you can make in life is to continually fear that you will make one.**
+**Make the mind tougher by exposing it to adversity.**
 
-Elbert Hubbard
+Robert Greene
