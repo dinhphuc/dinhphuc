@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We become what we think about.**
+**Even the greatest were beginners. Don't be afraid to take that first step.**
 
-Earl Nightingale
+Anonymous
