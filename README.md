@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Doubt kills more dreams than failure ever will.**
+**Faith is taking the first step even when you don't see the whole staircase.**
 
-Suzy Kassem
+Martin Luther King
