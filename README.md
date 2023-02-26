@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**One small positive thought in the morning can change your whole day.**
+**If you believe it, the mind can achieve it.**
 
-Anonymous
+Ronnie Lott
