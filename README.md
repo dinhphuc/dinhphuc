@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Good people are like candles; they burn themselves up to give others light.**
+**You are what you do, not what you say you'll do.**
 
 Anonymous
