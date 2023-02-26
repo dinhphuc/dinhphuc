@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Feel the force!**
+**If you are positive, you'll see opportunities instead of obstacles.**
 
-Yoda
+Widad Akrawi
