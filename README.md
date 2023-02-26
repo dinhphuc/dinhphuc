@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your problem isn't the problem, it's your attitude about the problem.**
+**We become what we think about.**
 
-Ann Brashares
+Earl Nightingale
