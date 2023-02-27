@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The comeback is always stronger than the setback.**
+**We all make mistakes, but the winner knows that success comes from perseverance: trying, failing, learning, and doing it again until he succeeds.**
 
-Anonymous
+Judy Ford
