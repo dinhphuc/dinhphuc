@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Spend your life with people who make you smile, laugh, and feel loved.**
+**If no mistake have you made, yet losing you are... a different game you should play.**
 
-Roy T. Bennett
+Yoda
