@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I alone cannot change the world, but I can cast a stone across the water to create many ripples.**
+**Smile, it is the key that fits the lock of everybody's heart.**
 
-Mother Teresa
+Anthony J D'Angelo
