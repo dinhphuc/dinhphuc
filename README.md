@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Good things come to those who believe. Better things come to those who are patient. The best things come to those who never give up.**
+**No marathon gets easier later. The halfway point only marks the end of the beginning.**
 
-Anonymous
+Joe Henderson
