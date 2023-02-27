@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If no mistake have you made, yet losing you are... a different game you should play.**
+**Failure will never overtake me if my determination to succeed is strong enough.**
 
-Yoda
+Og Mandino
