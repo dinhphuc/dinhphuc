@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't blame gravity for falling in love.**
+**One often meets his destiny on the road he takes to avoid it.**
 
-Albert Einstein
+Master Oogway
