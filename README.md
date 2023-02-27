@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**An attitude of positive expectation is the mark of the superior personality.**
+**I ask not for a lighter burden, but for broader shoulders.**
 
-Brian Tracy
+Jewish Proverb
