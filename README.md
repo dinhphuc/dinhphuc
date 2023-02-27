@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Peace begins When expectation ends.**
+**A warm smile is the universal language of kindness.**
 
-Sri Chinmoy
+William Arthur Ward
