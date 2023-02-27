@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The question isn't who is going to let me; it's who is going to stop me.**
+**Whatever you do, be different. If you're different, you will stand out.**
 
-Ayn Rand
+Anita Roddick
