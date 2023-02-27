@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We all make mistakes, but the winner knows that success comes from perseverance: trying, failing, learning, and doing it again until he succeeds.**
+**Count your age by friends, not years. Count your life by smiles, not tears.**
 
-Judy Ford
+John Lennon
