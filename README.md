@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We are made to persist. That's how we find out who we are.**
+**The best way to gain self-confidence is to do what you are afraid to do.**
 
-Tobias Wolff
+Swati Sharma
