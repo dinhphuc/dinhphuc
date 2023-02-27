@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The only person who can pull me down is myself, and I'm not going to let myself pull me down anymore.**
+**If you don't love what you do, you won't do it with much conviction or passion.**
 
-C. JoyBell C
+Mia Hamm
