@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be aware as often as possible of the great transformation process you are going through.**
+**Peace begins When expectation ends.**
 
-Anonymous
+Sri Chinmoy
