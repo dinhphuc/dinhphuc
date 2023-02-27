@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Count your age by friends, not years. Count your life by smiles, not tears.**
+**Shared joy is a double joy; shared sorrow is half a sorrow.**
 
-John Lennon
+Swedish Proverb
