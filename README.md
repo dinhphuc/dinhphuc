@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**One often meets his destiny on the road he takes to avoid it.**
+**No matter how tough it may get, never give up on yourself or you will look back and regret it.**
 
-Master Oogway
+Anonymous
