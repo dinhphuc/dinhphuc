@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody said it would be easy, so don't ever give up when it gets hard.**
+**Happiness is the secret to all beauty. There is no beauty without happiness.**
 
-Anonymous
+Christian Dior
