@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Shared joy is a double joy; shared sorrow is half a sorrow.**
+**An attitude of positive expectation is the mark of the superior personality.**
 
-Swedish Proverb
+Brian Tracy
