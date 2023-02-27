@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The best way to gain self-confidence is to do what you are afraid to do.**
+**Limitations live only in our minds. But if we use our imaginations, our possibilities become limitless.**
 
-Swati Sharma
+Jamie Paolinetti
