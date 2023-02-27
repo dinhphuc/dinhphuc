@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Inhale confidence. Exhale doubt.**
+**Limitations live only in our minds. But if we use our imaginations, our possibilities become limitless.**
 
-Anonymous
+Jamie Paolinetti
