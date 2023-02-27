@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing builds self-esteem and self-confidence like accomplishment.**
+**Be aware as often as possible of the great transformation process you are going through.**
 
-Thomas Carlyle
+Anonymous
