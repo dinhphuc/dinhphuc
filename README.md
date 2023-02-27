@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I am in charge of how I feel and today I am choosing happiness.**
+**Nothing builds self-esteem and self-confidence like accomplishment.**
 
-Anonymous
+Thomas Carlyle
