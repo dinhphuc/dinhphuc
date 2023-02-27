@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is the secret to all beauty. There is no beauty without happiness.**
+**I am in charge of how I feel and today I am choosing happiness.**
 
-Christian Dior
+Anonymous
