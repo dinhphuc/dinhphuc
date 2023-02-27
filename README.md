@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how tough it may get, never give up on yourself or you will look back and regret it.**
+**The only person who can pull me down is myself, and I'm not going to let myself pull me down anymore.**
 
-Anonymous
+C. JoyBell C
