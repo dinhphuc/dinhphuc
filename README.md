@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile, it is the key that fits the lock of everybody's heart.**
+**You can't blame gravity for falling in love.**
 
-Anthony J D'Angelo
+Albert Einstein
