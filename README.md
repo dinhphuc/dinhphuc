@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Earn your confidence, nurture it, then help to build it in others.**
+**The more you praise and celebrate your life, the more there is in life to celebrate.**
 
-Alex Malley
+Oprah Winfrey
