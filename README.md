@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Setting goals is the first step into turning the invisible into the visible.**
+**The comeback is always stronger than the setback.**
 
-Tony Robbins
+Anonymous
