@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Well I am here to tell you that one of the best ways to make a difference, is by sharing a smile and radiating good positive energy.**
+**Setting goals is the first step into turning the invisible into the visible.**
 
-Anonymous
+Tony Robbins
