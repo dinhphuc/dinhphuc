@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't love what you do, you won't do it with much conviction or passion.**
+**The question isn't who is going to let me; it's who is going to stop me.**
 
-Mia Hamm
+Ayn Rand
