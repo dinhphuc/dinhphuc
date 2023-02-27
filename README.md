@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The more you praise and celebrate your life, the more there is in life to celebrate.**
+**Spend your life with people who make you smile, laugh, and feel loved.**
 
-Oprah Winfrey
+Roy T. Bennett
