@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**What you choose to focus on expands and grows.**
+**Nobody said it would be easy, so don't ever give up when it gets hard.**
 
 Anonymous
