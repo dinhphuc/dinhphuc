@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Pain is temporary. Quitting lasts forever.**
+**You may be disappointed if you fail, but you are doomed if you don't try.**
 
-Lance Armstrong
+Beverly Sills
