@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You may be disappointed if you fail, but you are doomed if you don't try.**
+**We are made to persist. That's how we find out who we are.**
 
-Beverly Sills
+Tobias Wolff
