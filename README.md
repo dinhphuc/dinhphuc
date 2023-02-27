@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Limitations live only in our minds. But if we use our imaginations, our possibilities become limitless.**
+**I alone cannot change the world, but I can cast a stone across the water to create many ripples.**
 
-Jamie Paolinetti
+Mother Teresa
