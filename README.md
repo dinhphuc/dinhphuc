@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No marathon gets easier later. The halfway point only marks the end of the beginning.**
+**The reason we race isn't so much to beat each other,... but to be with each other.**
 
-Joe Henderson
+Christopher McDougall
