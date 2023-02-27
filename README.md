@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you do, be different. If you're different, you will stand out.**
+**Well I am here to tell you that one of the best ways to make a difference, is by sharing a smile and radiating good positive energy.**
 
-Anita Roddick
+Anonymous
