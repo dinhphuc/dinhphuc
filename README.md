@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A warm smile is the universal language of kindness.**
+**Pain is temporary. Quitting lasts forever.**
 
-William Arthur Ward
+Lance Armstrong
