@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure will never overtake me if my determination to succeed is strong enough.**
+**What you choose to focus on expands and grows.**
 
-Og Mandino
+Anonymous
