@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The reason we race isn't so much to beat each other,... but to be with each other.**
+**Earn your confidence, nurture it, then help to build it in others.**
 
-Christopher McDougall
+Alex Malley
