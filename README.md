@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Walk on with hope in your heart, and you'll never walk alone.**
+**Being deeply loved by someone gives you strength, while loving someone deeply gives you courage.**
 
-Shah Rukh Khan
+Lao-Tzu
