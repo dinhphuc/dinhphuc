@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whoever gossips to you will gossip about you.**
+**Nothing will work unless you do.**
 
-Spanish Proverb
+Maya Angelou
