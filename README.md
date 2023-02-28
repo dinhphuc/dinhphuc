@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence comes from discipline and training.**
+**Believe you can and you're halfway there.**
 
-Robert Kiyosaki
+Theodore Roosevelt
