@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your life does not get better by chance, it gets better by change.**
+**When things are bad, remember: it won't always be this way. Take one day at a time.**
 
 Anonymous
