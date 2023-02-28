@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I ask not for a lighter burden, but for broader shoulders.**
+**Your life does not get better by chance, it gets better by change.**
 
-Jewish Proverb
+Anonymous
