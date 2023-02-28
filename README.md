@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever can happen at any time can happen today.**
+**Do not dwell in the past, do not dream of the future, concentrate the mind on the present moment.**
 
-Seneca
+Buddha
