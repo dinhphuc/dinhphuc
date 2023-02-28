@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There's never enough time to do everything, but there's always enough time to do the most important thing.**
+**Believe with all of your heart that you will do what you were made to do.**
 
-Dean Bokhari
+Orison Swett Marden
