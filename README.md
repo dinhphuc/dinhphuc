@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You can alter mood by running.**
+**No marathon gets easier later. The halfway point only marks the end of the beginning.**
 
-Tumpal Sihombing
+Joe Henderson
