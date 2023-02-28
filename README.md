@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot change the direction of the wind - only alter the angle of your sails.**
+**No matter how old I get, the race remains one of life's most rewarding experiences.**
 
-Anonymous
+George Sheehan
