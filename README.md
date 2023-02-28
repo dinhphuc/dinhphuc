@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe you can and you're halfway there.**
+**Until you're broken, you don't know what you're made of.**
 
-Theodore Roosevelt
+Anonymous
