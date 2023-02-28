@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**In the end, it's not the years in your life that count. It's the life in your years.**
+**As we express our gratitude, we must never forget that the highest appreciation is not to utter words, but to live by them.**
 
-Abraham Lincoln
+John F. Kennedy
