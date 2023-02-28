@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter where you are on your journey, that's exactly where you need to be.**
+**Do not blame the world. Find a solution.**
 
-Oprah Winfrey
+Sri Chinmoy
