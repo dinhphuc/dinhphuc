@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do not dwell in the past, do not dream of the future, concentrate the mind on the present moment.**
+**Even if I knew that tomorrow the world would go to pieces, I would still plant my apple tree.**
 
-Buddha
+Martin Luther
