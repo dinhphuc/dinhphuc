@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Run when you can, walk if you have to, crawl if you must; just never give up.**
+**Strength does not come from physical capacity. It comes from an indomitable will.**
 
-Dean Karnazes
+Mahatma Gandhi
