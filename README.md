@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Only those who risk going too far, can possibly find out how far one can go.**
+**Walk on with hope in your heart, and you'll never walk alone.**
 
-T.S. Elliot
+Shah Rukh Khan
