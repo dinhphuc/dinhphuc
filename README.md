@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Plenty of people miss their share of happiness, not because they never found it, but because they didn't stop to enjoy it.**
+**Whatever can happen at any time can happen today.**
 
-William Feather
+Seneca
