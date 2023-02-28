@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Instead of feeding myself excuses why I can't, I give myself reasons why I can.**
+**Your positive action combined with positive thinking results in success.**
 
 Anonymous
