@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe with all of your heart that you will do what you were made to do.**
+**You cannot change the direction of the wind - only alter the angle of your sails.**
 
-Orison Swett Marden
+Anonymous
