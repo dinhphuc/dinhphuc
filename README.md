@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything you need to accomplish your goals is already in you.**
+**How you do anything is how you do everything.**
 
-Anonymous
+T. Harv Eker
