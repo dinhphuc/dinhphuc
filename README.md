@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**How you do anything is how you do everything.**
+**Smile in the mirror. Do that every morning and you'll start to see a big difference in your life.**
 
-T. Harv Eker
+Yoko Ono
