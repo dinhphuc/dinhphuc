@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**As we express our gratitude, we must never forget that the highest appreciation is not to utter words, but to live by them.**
+**I'm not telling you it is going to be easy, I'm telling you it's going to be worth it.**
 
-John F. Kennedy
+Art Williams
