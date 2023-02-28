@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I knew that if I failed I wouldn't regret that. But I would regret not trying.**
+**Whoever gossips to you will gossip about you.**
 
-Jeff Bezos
+Spanish Proverb
