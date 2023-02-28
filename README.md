@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Determination is doing what needs to be done even when you don't feel like doing it.**
+**You can alter mood by running.**
 
-Anonymous
+Tumpal Sihombing
