@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile in the mirror. Do that every morning and you'll start to see a big difference in your life.**
+**No matter where you are on your journey, that's exactly where you need to be.**
 
-Yoko Ono
+Oprah Winfrey
