@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing will work unless you do.**
+**Instead of feeding myself excuses why I can't, I give myself reasons why I can.**
 
-Maya Angelou
+Anonymous
