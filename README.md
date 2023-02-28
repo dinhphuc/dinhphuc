@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you stop chasing the wrong things you give the right things a chance to catch you.**
+**Determination is doing what needs to be done even when you don't feel like doing it.**
 
 Anonymous
