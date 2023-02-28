@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Even if I knew that tomorrow the world would go to pieces, I would still plant my apple tree.**
+**In the end, it's not the years in your life that count. It's the life in your years.**
 
-Martin Luther
+Abraham Lincoln
