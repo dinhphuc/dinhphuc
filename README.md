@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When things are bad, remember: it won't always be this way. Take one day at a time.**
+**When you stop chasing the wrong things you give the right things a chance to catch you.**
 
 Anonymous
