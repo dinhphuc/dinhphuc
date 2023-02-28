@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Being deeply loved by someone gives you strength, while loving someone deeply gives you courage.**
+**The future belongs to those who believe in the beauty of their dreams.**
 
-Lao-Tzu
+Franklin D. Roosevelt
