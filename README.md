@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Until you're broken, you don't know what you're made of.**
+**Keep smiling, because life is a beautiful thing and there's so much to smile about.**
 
-Anonymous
+Marilyn Monroe
