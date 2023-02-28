@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how old I get, the race remains one of life's most rewarding experiences.**
+**Start where you are. Use what you have. Do what you can.**
 
-George Sheehan
+Arthur Ashe
