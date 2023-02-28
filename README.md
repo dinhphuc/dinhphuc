@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No marathon gets easier later. The halfway point only marks the end of the beginning.**
+**There's never enough time to do everything, but there's always enough time to do the most important thing.**
 
-Joe Henderson
+Dean Bokhari
