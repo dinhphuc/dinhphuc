@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The future belongs to those who believe in the beauty of their dreams.**
+**Attitude will always define who we are in life.**
 
-Franklin D. Roosevelt
+Mark A. Brennan
