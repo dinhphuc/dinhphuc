@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep smiling, because life is a beautiful thing and there's so much to smile about.**
+**Run when you can, walk if you have to, crawl if you must; just never give up.**
 
-Marilyn Monroe
+Dean Karnazes
