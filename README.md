@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength does not come from physical capacity. It comes from an indomitable will.**
+**Everything you need to accomplish your goals is already in you.**
 
-Mahatma Gandhi
+Anonymous
