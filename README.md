@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You must do the thing you think you cannot do.**
+**Live as if you were to die tomorrow. Learn as if you were to live forever.**
 
-Eleanor Roosevelt
+Mahatma Gandhi
