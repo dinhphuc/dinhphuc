@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Spend your life with people who make you smile, laugh, and feel loved.**
+**Success is what comes after you stop making excuses.**
 
-Roy T. Bennett
+Luis Galarza
