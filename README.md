@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Fear is temporary. Regret is forever.**
+**Set a goal that makes you want to jump out of bed in the morning.**
 
 Anonymous
