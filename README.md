@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between the impossible and the possible lies in a person's determination.**
+**The only way to do great work is to love what you do.**
 
-Tommy Lasorda
+Steve Jobs
