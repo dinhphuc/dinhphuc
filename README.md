@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The only way to do great work is to love what you do.**
+**May you live all the days of your life.**
 
-Steve Jobs
+Jonathan Swift
