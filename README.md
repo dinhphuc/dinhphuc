@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do what makes you happy.**
+**There's never enough time to do everything, but there's always enough time to do the most important thing.**
 
-Rachel Ann Nunes
+Dean Bokhari
