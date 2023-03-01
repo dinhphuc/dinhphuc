@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We must embrace pain and burn it as fuel for our journey.**
+**Pain has taught me to appreciate the things that don't hurt.**
 
-Kenji Miyazawa
+Melissa Tripp
