@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe in yourself and you can be anything.**
+**The question isn't who is going to let me; it's who is going to stop me.**
 
-Katy Perry
+Ayn Rand
