@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Open your eyes and notice the beauty of this wonderful world.**
+**Hate. It has caused a lot of problems in this world but has not solved one yet.**
 
-Anonymous
+Maya Angelou
