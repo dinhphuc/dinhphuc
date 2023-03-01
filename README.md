@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you hold in your mind on a consistent basis is exactly what you will experience in your life.**
+**The way to get started is to quit talking and begin doing.**
 
-Tony Robbins
+Walt Disney
