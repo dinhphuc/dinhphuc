@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Pain has taught me to appreciate the things that don't hurt.**
+**You only live once, but if you do it right, once is enough.**
 
-Melissa Tripp
+Mae West
