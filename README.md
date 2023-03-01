@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Who begins too much accomplishes little.**
+**Results happen over time, not overnight. Work hard, stay consistent, and be patient.**
 
-German Proverb
+Anonymous
