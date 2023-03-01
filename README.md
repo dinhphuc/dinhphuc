@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Attitude will always define who we are in life.**
+**I learned that courage was not the absence of fear, but the triumph over it.**
 
-Mark A. Brennan
+Nelson Mandela
