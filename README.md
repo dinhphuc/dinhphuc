@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Hate. It has caused a lot of problems in this world but has not solved one yet.**
+**Spend your life with people who make you smile, laugh, and feel loved.**
 
-Maya Angelou
+Roy T. Bennett
