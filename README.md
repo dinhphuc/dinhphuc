@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**May you live all the days of your life.**
+**We are made to persist. That's how we find out who we are.**
 
-Jonathan Swift
+Tobias Wolff
