@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We are made to persist. That's how we find out who we are.**
+**Open your eyes and notice the beauty of this wonderful world.**
 
-Tobias Wolff
+Anonymous
