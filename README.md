@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously.**
+**We must embrace pain and burn it as fuel for our journey.**
 
-Steve Maraboli
+Kenji Miyazawa
