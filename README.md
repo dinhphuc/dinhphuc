@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The question isn't who is going to let me; it's who is going to stop me.**
+**Do what makes you happy.**
 
-Ayn Rand
+Rachel Ann Nunes
