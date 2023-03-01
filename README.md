@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I learned that courage was not the absence of fear, but the triumph over it.**
+**Never give up. Great things take time. Be patient.**
 
-Nelson Mandela
+Anonymous
