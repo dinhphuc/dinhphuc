@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We must embrace pain and burn it as fuel for our journey.**
+**People who make you feel better about yourself when you're sad are so important.**
 
-Kenji Miyazawa
+Anonymous
