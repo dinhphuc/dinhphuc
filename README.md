@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm stronger because I had to be, I'm smarter because of my mistakes, happier because of the sadness I've known, and now wiser because I learned.**
+**When things are bad, remember: it won't always be this way. Take one day at a time.**
 
 Anonymous
