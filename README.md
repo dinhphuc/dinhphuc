@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When things are bad, remember: it won't always be this way. Take one day at a time.**
+**Everyone wants happiness. No one wants pain. But you can't have a rainbow, without a little rain.**
 
 Anonymous
