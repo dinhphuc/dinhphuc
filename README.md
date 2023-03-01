@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Make the most of yourself....for that is all there is of you.**
+**You must do the thing you think you cannot do.**
 
-Ralph Waldo Emerson
+Eleanor Roosevelt
