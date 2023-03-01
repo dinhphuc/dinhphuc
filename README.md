@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up. Great things take time. Be patient.**
+**Believe in yourself and you can be anything.**
 
-Anonymous
+Katy Perry
