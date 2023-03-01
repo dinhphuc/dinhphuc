@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The biggest adventure you can take is to live the life of your dreams.**
+**Whatever you hold in your mind on a consistent basis is exactly what you will experience in your life.**
 
-Oprah Winfrey
+Tony Robbins
