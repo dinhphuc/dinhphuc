@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your path you must decide.**
+**Running is therapy anyone can afford.**
 
-Yoda
+Toni Sorenson
