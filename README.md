@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There's never enough time to do everything, but there's always enough time to do the most important thing.**
+**Make the most of yourself....for that is all there is of you.**
 
-Dean Bokhari
+Ralph Waldo Emerson
