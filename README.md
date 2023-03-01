@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The way to get started is to quit talking and begin doing.**
+**Measure a thousand times and cut once.**
 
-Walt Disney
+Turkish Proverb
