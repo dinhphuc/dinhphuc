@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You only live once, but if you do it right, once is enough.**
+**You can't always control what goes on outside, but you can always control what goes on inside.**
 
-Mae West
+Wayne Dyer
