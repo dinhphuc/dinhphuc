@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There's nothing that you can do that can't be done.**
+**The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.**
 
-The Beatles
+William Arthur Ward
