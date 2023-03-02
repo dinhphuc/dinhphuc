@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Float like a butterfly, sting like a bee.**
+**Choosing to be positive and having a grateful attitude is going to determine how you're going to live your life.**
 
-Muhammad Ali
+Joel Osteen
