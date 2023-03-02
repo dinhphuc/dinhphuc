@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Honesty is the first chapter in the book of wisdom.**
+**Nothing is more beautiful than the smile that has struggled through the tears.**
 
-Thomas Jefferson
+Demi Lovato
