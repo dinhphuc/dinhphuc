@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't go up to the top, you grow up to the top.**
+**If you feel like giving up, just look back on how far you are already.**
 
-John C. Maxwell
+Anonymous
