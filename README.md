@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot prevent the birds of sadness from passing over your head, but you can prevent their making a nest in your hair.**
+**Happiness resides not in possessions, and not in gold, happiness dwells in the soul.**
 
-Chinese Proverb
+Democritus
