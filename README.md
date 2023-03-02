@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure will never overtake me if my determination to succeed is strong enough.**
+**If you want your dinner, don't insult the cook.**
 
-Og Mandino
+Chinese Proverb
