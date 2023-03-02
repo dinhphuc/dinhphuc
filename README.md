@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.**
+**Be strong now, because things will get better. It might be stormy now, but it can't rain forever.**
 
-William Arthur Ward
+Anonymous
