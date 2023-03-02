@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your relationship with yourself sets the tone for every other relationship you have.**
+**Practice 'gratitude' each day and your relationship will last forever.**
 
 Anonymous
