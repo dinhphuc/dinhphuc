@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Deep doubts, deep wisdom; small doubts, small wisdom.**
+**Acting on a good idea is better than just having a good idea.**
 
-Chinese Proverb
+Robert Half
