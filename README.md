@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success consists of getting up just one more time than you fall.**
+**No one controls how I feel about myself, but me.**
 
-Oliver Goldsmith
+Anonymous
