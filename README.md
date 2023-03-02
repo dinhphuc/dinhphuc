@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want your dinner, don't insult the cook.**
+**Float like a butterfly, sting like a bee.**
 
-Chinese Proverb
+Muhammad Ali
