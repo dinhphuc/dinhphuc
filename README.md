@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The things you regret most in life are the risks you didn't take.**
+**There's nothing that you can do that can't be done.**
 
-Anonymous
+The Beatles
