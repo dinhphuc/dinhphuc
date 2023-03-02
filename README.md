@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I know I have unlimited potential to create the life of my dreams.**
+**Success consists of getting up just one more time than you fall.**
 
-Anonymous
+Oliver Goldsmith
