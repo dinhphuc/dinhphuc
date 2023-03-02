@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Opportunities to find deeper powers within ourselves come when life seems most challenging.**
+**Deep doubts, deep wisdom; small doubts, small wisdom.**
 
-Joseph Campbell
+Chinese Proverb
