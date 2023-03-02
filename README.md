@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Practice 'gratitude' each day and your relationship will last forever.**
+**I know I have unlimited potential to create the life of my dreams.**
 
 Anonymous
