@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A little progress each day adds up to big results.**
+**Just one smile, immensely increases the beauty, of the universe.**
 
-Satya Nani
+Sri Chinmoy
