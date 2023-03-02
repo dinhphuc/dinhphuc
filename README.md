@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing is more beautiful than the smile that has struggled through the tears.**
+**You are your only limit.**
 
-Demi Lovato
+Anonymous
