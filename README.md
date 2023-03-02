@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I've failed over and over and over again in my life and that is why I succeed.**
+**Life isn't about waiting for the storm to pass, it's about learning how to dance in the rain.**
 
-Michael Jordan
+Vivian Greene
