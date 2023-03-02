@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When I hear somebody sigh, 'Life is hard,' I am always tempted to ask, 'Compared to what?'**
+**The will to win means nothing without the will to prepare.**
 
-Sydney Harris
+Juma Ikangaa
