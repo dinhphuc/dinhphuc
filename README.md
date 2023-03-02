@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life isn't about waiting for the storm to pass, it's about learning how to dance in the rain.**
+**No matter where you are on your journey, that's exactly where you need to be.**
 
-Vivian Greene
+Oprah Winfrey
