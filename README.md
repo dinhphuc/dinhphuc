@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No one controls how I feel about myself, but me.**
+**Friends show their love in times of trouble, not in happiness.**
 
-Anonymous
+Euripides
