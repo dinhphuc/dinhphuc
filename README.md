@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Everyone wants happiness. No one wants pain. But you can't have a rainbow, without a little rain.**
+**I failed my way to success.**
 
-Anonymous
+Thomas Edison
