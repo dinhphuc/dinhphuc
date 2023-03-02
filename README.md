@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be strong now, because things will get better. It might be stormy now, but it can't rain forever.**
+**Failure will never overtake me if my determination to succeed is strong enough.**
 
-Anonymous
+Og Mandino
