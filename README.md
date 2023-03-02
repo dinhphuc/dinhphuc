@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I failed my way to success.**
+**Be a voice not an echo.**
 
-Thomas Edison
+Anonymous
