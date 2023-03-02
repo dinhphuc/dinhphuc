@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No one controls how I feel about myself, but me.**
+**There are two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle.**
 
-Anonymous
+Albert Einstein
