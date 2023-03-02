@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you feel like giving up, just look back on how far you are already.**
+**The things you regret most in life are the risks you didn't take.**
 
 Anonymous
