@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest.**
+**You don't go up to the top, you grow up to the top.**
 
-Sri Chinmoy
+John C. Maxwell
