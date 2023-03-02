@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The will to win means nothing without the will to prepare.**
+**Honesty is the first chapter in the book of wisdom.**
 
-Juma Ikangaa
+Thomas Jefferson
