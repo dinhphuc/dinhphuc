@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter where you are on your journey, that's exactly where you need to be.**
+**Opportunities to find deeper powers within ourselves come when life seems most challenging.**
 
-Oprah Winfrey
+Joseph Campbell
