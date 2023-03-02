@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Just one smile, immensely increases the beauty, of the universe.**
+**When obstacles arise, you change your direction to reach your goal, you do not change your decision to get there.**
 
-Sri Chinmoy
+Zig Ziglar
