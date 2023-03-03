@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Deep doubts, deep wisdom; small doubts, small wisdom.**
+**Believe you can and you're halfway there.**
 
-Chinese Proverb
+Theodore Roosevelt
