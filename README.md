@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The only journey is the one within.**
+**At first they'll ask you why you're doing it. Later they'll ask how you did it.**
 
-Rainer Maria Rilke
+Anonymous
