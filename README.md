@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be a voice not an echo.**
+**I would rather die of passion than of boredom.**
 
-Anonymous
+Vincent van Gogh
