@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**People want to do business with you because you help them get what they want. They don't do business with you to help you get what you want.**
+**Be yourself. An original is so much better than a copy.**
 
-Don Crowther
+Anonymous
