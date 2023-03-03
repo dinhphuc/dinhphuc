@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You're off to great places, today is your day. Your mountain is waiting, so get on your way.**
+**There is no better than adversity. Every defeat, every heartbreak, every loss, contains its own seed, its own lesson on how to improve your performance the next time.**
 
-Dr. Seuss
+Malcolm X
