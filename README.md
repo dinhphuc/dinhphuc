@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't have to control your thoughts; you just have to stop letting them control you.**
+**Don't think about what might go wrong. Think about what might go right.**
 
-Dan Millman
+Anonymous
