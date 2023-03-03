@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe you can and you're halfway there.**
+**Be aware as often as possible of the great transformation process you are going through.**
 
-Theodore Roosevelt
+Anonymous
