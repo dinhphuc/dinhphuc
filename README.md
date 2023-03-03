@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I would rather die of passion than of boredom.**
+**Success seems to be connected with action. Successful people keep moving. They make mistakes, but they don't quit.**
 
-Vincent van Gogh
+Conrad Hilton
