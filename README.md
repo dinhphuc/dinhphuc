@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Starting today, I need to forget what's gone. Appreciate what still remains and look forward to what's coming next.**
+**Everyone wants happiness. No one wants pain. But you can't have a rainbow, without a little rain.**
 
 Anonymous
