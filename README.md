@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between ordinary and extraordinary is that little extra.**
+**The only journey is the one within.**
 
-Jimmy Johnson
+Rainer Maria Rilke
