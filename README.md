@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**What you think of yourself is much more important than what people think of you.**
+**Starting today, I need to forget what's gone. Appreciate what still remains and look forward to what's coming next.**
 
 Anonymous
