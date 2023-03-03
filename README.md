@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be aware as often as possible of the great transformation process you are going through.**
+**I'm too grateful to be hateful. I am too blessed to be stressed.**
 
-Anonymous
+El DeBarge
