@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Everyone wants happiness. No one wants pain. But you can't have a rainbow, without a little rain.**
+**Be patient, good things are coming your way.**
 
 Anonymous
