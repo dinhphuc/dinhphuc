@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't just glov, dazzle.**
+**Deep doubts, deep wisdom; small doubts, small wisdom.**
 
-Anonymous
+Chinese Proverb
