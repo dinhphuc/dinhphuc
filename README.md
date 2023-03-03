@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The happiness of your life depends upon the quality of your thoughts.**
+**With virtue, you can't be completely poor; without it, you can't be truly rich.**
 
-Marcus Aurelius
+Chinese Proverb
