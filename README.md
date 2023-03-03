@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not human nature to enjoy what we get with no effort.**
+**You were born to win. But to be a winner, you must plan to win, prepare to win, and expect to win.**
 
-Sri Chinmoy
+Zig Ziglar
