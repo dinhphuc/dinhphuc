@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe in yourself and you can be anything.**
+**When you find your why, you find a way to make it happen.**
 
-Katy Perry
+Eric Thomas
