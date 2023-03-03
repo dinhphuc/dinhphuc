@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Focus on being productive instead of busy.**
+**The reputation of a thousand years may be determined by the conduct of one hour.**
 
-Tim Ferris
+Japanese Proverb
