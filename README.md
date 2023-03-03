@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you find your why, you find a way to make it happen.**
+**What you think of yourself is much more important than what people think of you.**
 
-Eric Thomas
+Anonymous
