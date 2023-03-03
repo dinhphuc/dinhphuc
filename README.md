@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Gratitude turns what we have into enough.**
+**Believe in yourself and you can be anything.**
 
-Anonymous
+Katy Perry
