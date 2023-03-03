@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be yourself. An original is so much better than a copy.**
+**Love is not running away or giving up, it is standing and fighting for every moment.**
 
-Anonymous
+M.F. Moonzajer
