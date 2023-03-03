@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You were born to win. But to be a winner, you must plan to win, prepare to win, and expect to win.**
+**Confidence is something you create in yourself by believing in who you are.**
 
-Zig Ziglar
+Anonymous
