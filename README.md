@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep smiling. It makes people wonder what you are up to.**
+**It is not human nature to enjoy what we get with no effort.**
 
-Anonymous
+Sri Chinmoy
