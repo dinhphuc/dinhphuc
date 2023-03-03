@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success seems to be connected with action. Successful people keep moving. They make mistakes, but they don't quit.**
+**If you can dream it, then you can achieve it.**
 
-Conrad Hilton
+Zig Ziglar
