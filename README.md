@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Focus on being productive instead of busy.**
+**Self-control is strength. Right thought is mastery. Calmness is power.**
 
-Tim Ferris
+James Allen
