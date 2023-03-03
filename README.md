@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm too grateful to be hateful. I am too blessed to be stressed.**
+**Focus on being productive instead of busy.**
 
-El DeBarge
+Tim Ferris
