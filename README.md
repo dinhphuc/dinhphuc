@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be patient, good things are coming your way.**
+**The difference between ordinary and extraordinary is that little extra.**
 
-Anonymous
+Jimmy Johnson
