@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't think about what might go wrong. Think about what might go right.**
+**The happiness of your life depends upon the quality of your thoughts.**
 
-Anonymous
+Marcus Aurelius
