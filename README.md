@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Love is not running away or giving up, it is standing and fighting for every moment.**
+**You don't have to control your thoughts; you just have to stop letting them control you.**
 
-M.F. Moonzajer
+Dan Millman
