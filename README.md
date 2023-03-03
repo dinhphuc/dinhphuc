@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The reputation of a thousand years may be determined by the conduct of one hour.**
+**Start where you are. Use what you have. Do what you can.**
 
-Japanese Proverb
+Arthur Ashe
