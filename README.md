@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A problem is a chance for you to do your best.**
+**Determination is doing what needs to be done even when you don't feel like doing it.**
 
-Duke Ellington
+Anonymous
