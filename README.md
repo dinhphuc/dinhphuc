@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you set your goals ridiculously high and it's a failure, you will fail above everyone else's success.**
+**Change your thoughts and you change your world.**
 
-James Cameron
+Norman Vincent Peale
