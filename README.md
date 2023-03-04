@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Good things come to those who believe. Better things come to those who are patient. The best things come to those who never give up.**
+**If you're presenting yourself with confidence, you can pull off pretty much anything.**
 
-Anonymous
+Katy Perry
