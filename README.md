@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The positive thinker sees the invisible, feels the intangible, and achieves the impossible.**
+**Great minds discuss ideas; average minds discuss events; small minds discuss people.**
 
-Winston Churchill
+Eleanor Roosevelt
