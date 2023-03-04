@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The happiness of your life depends upon the quality of your thoughts.**
+**Being deeply loved by someone gives you strength, while loving someone deeply gives you courage.**
 
-Marcus Aurelius
+Lao-Tzu
