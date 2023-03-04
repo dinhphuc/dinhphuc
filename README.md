@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Being optimistic really has nothing to do with happiness, it's just taking whatever life chucks at you and not letting it break you down.**
+**When obstacles arise, you change your direction to reach your goal, you do not change your decision to get there.**
 
-Anonymous
+Zig Ziglar
