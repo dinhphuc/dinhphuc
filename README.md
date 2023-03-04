@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When it rains look for rainbows.**
+**The happiness of your life depends upon the quality of your thoughts.**
 
-Oscar Wilde
+Marcus Aurelius
