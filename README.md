@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is really simple, but we insist on making it complicated.**
+**Do not blame the world. Find a solution.**
 
-Confucius
+Sri Chinmoy
