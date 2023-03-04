@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're presenting yourself with confidence, you can pull off pretty much anything.**
+**You may say I'm a dreamer but I'm not the only one.**
 
-Katy Perry
+John Lennon
