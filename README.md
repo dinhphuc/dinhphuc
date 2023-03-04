@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between stumbling blocks and stepping stones is how you use them.**
+**People will see you the way you see yourself.**
 
-Anonymous
+Sergio Diaz
