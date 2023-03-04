@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Great minds discuss ideas; average minds discuss events; small minds discuss people.**
+**What you think of yourself is much more important than what people think of you.**
 
-Eleanor Roosevelt
+Anonymous
