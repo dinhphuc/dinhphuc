@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no shame in not knowing; the shame lies in not finding out.**
+**The difference between stumbling blocks and stepping stones is how you use them.**
 
-Russian Proverb
+Anonymous
