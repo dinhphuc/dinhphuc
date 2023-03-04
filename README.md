@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Successful people build each other up. They inspire, motivate, and push each other. Unsuccessful people just hate, blame, and complain.**
+**The one who falls and gets up is so much stronger than the one who never fell.**
 
 Anonymous
