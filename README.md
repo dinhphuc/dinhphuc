@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You may say I'm a dreamer but I'm not the only one.**
+**Each time I thought I had achieved my life's purpose, I discovered it was only another step in my journey.**
 
-John Lennon
+Muhammad Ali
