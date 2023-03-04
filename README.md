@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be patient, good things are coming your way.**
+**You were born to win. But to be a winner, you must plan to win, prepare to win, and expect to win.**
 
-Anonymous
+Zig Ziglar
