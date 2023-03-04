@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A house is made of bricks and beams. A home is made of hopes and dreams.**
+**A problem is a chance for you to do your best.**
 
-Anonymous
+Duke Ellington
