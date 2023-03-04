@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is not something you postpone for the future; it is something you design for the present.**
+**Successful people build each other up. They inspire, motivate, and push each other. Unsuccessful people just hate, blame, and complain.**
 
-Jim Rohn
+Anonymous
