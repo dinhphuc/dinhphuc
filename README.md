@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Always believe that something wonderful is about to happen.**
+**When it rains look for rainbows.**
 
-Anonymous
+Oscar Wilde
