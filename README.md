@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be frightened by difficulties.**
+**None of us is as smart as all of us.**
 
-Ryan Holiday
+Ken Blanchard
