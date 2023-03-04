@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You were born to win. But to be a winner, you must plan to win, prepare to win, and expect to win.**
+**Happiness is not something you postpone for the future; it is something you design for the present.**
 
-Zig Ziglar
+Jim Rohn
