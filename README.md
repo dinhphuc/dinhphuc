@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Who begins too much accomplishes little.**
+**Life is really simple, but we insist on making it complicated.**
 
-German Proverb
+Confucius
