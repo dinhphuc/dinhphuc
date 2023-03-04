@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The one who falls and gets up is so much stronger than the one who never fell.**
+**Believe you can and you're halfway there.**
 
-Anonymous
+Theodore Roosevelt
