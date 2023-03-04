@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**What you think of yourself is much more important than what people think of you.**
+**If you set your goals ridiculously high and it's a failure, you will fail above everyone else's success.**
 
-Anonymous
+James Cameron
