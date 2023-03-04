@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't wait around for other people to be happy for you. Any happiness you get, you've got to make yourself.**
+**Always believe that something wonderful is about to happen.**
 
-Alice Walker
+Anonymous
