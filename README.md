@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Change your thoughts and you change your world.**
+**You are your only limit.**
 
-Norman Vincent Peale
+Anonymous
