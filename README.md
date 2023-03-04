@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe you can and you're halfway there.**
+**Don't wait around for other people to be happy for you. Any happiness you get, you've got to make yourself.**
 
-Theodore Roosevelt
+Alice Walker
