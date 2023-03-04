@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Being deeply loved by someone gives you strength, while loving someone deeply gives you courage.**
+**Being optimistic really has nothing to do with happiness, it's just taking whatever life chucks at you and not letting it break you down.**
 
-Lao-Tzu
+Anonymous
