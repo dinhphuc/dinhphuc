@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When it rains look for rainbows.**
+**Be you. Do you. For you.**
 
-Oscar Wilde
+Anonymous
