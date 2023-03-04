@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**None of us is as smart as all of us.**
+**Good things come to those who believe. Better things come to those who are patient. The best things come to those who never give up.**
 
-Ken Blanchard
+Anonymous
