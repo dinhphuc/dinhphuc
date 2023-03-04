@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do not blame the world. Find a solution.**
+**It makes a big difference in your life when you stay positive.**
 
-Sri Chinmoy
+Ellen DeGeneres
