@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You matter.**
+**Nobody can make you to feel inferior without your consent.**
 
-Anonymous
+Eleanor Roosevelt
