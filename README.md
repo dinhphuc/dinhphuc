@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When things are bad, remember: it won't always be this way. Take one day at a time.**
+**Don't be afraid to start over. It's a brand new opportunity to rebuild what you truly want.**
 
 Anonymous
