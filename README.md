@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Give up on being perfect and start working on becoming yourself.**
+**No matter how you feel, get up, dress up, show up and never give up.**
 
-Anna Quindlen
+Anonymous
