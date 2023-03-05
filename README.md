@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Anyone who has grown mentally, physically or spiritually knows that growth is not found in comfort.**
+**When things are bad, remember: it won't always be this way. Take one day at a time.**
 
 Anonymous
