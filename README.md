@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you dare to dream, dare to follow that dream; dare to suffer through the pain, sacrifice, self-doubts and friction from the world.**
+**Give up on being perfect and start working on becoming yourself.**
 
-Laura Schlessinger
+Anna Quindlen
