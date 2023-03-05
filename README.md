@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot propel yourself forward by patting yourself on the back.**
+**You are the only one who can limit your greatness.**
 
-Steve Prefontaine
+Anonymous
