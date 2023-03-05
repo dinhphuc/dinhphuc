@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Examine what is said, not who speaks.**
+**It is far better to be alone, than to be in bad company.**
 
-Arab Proverb
+George Washington
