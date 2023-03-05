@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to go fast, go alone. If you want to go far, go together.**
+**There are only two mistakes one can make along the road to truth; not going all the way, and not starting.**
 
-African Proverb
+Buddha
