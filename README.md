@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile at strangers and you just might change a life.**
+**Today is a beautiful day and I will attract good things into my life.**
 
-Steve Maraboli
+Anonymous
