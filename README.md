@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm too grateful to be hateful. I am too blessed to be stressed.**
+**Anyone who has grown mentally, physically or spiritually knows that growth is not found in comfort.**
 
-El DeBarge
+Anonymous
