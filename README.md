@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are the only one who can limit your greatness.**
+**The reputation of a thousand years may be determined by the conduct of one hour.**
 
-Anonymous
+Japanese Proverb
