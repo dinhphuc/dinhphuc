@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Certain things catch your eye, but pursue only those that capture the heart.**
+**A challenge lifelong it is, not to bend fear into anger.**
 
-Ancient Indian Proverb
+Yoda
