@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No one who can rise before dawn three hundred sixty days a year fails to make his family rich.**
+**Hard work beats talent when talent doesn't work hard.**
 
-Malcolm Gladwell
+Tim Notke
