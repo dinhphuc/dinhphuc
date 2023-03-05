@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It always seems impossible until it's done.**
+**If you want to go fast, go alone. If you want to go far, go together.**
 
-Nelson Mandela
+African Proverb
