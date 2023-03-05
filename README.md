@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be afraid to start over. It's a brand new opportunity to rebuild what you truly want.**
+**It always seems impossible until it's done.**
 
-Anonymous
+Nelson Mandela
