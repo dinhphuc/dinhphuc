@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I don't count my sit-ups; I only start counting when it starts hurting because they're the only ones that count.**
+**No one who can rise before dawn three hundred sixty days a year fails to make his family rich.**
 
-Muhammad Ali
+Malcolm Gladwell
