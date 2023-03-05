@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Live life to the fullest and focus on the positive.**
+**I'm too grateful to be hateful. I am too blessed to be stressed.**
 
-Matt Cameron
+El DeBarge
