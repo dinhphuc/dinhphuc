@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There are only two mistakes one can make along the road to truth; not going all the way, and not starting.**
+**The real opportunity for success lies within the person and not in the job.**
 
-Buddha
+Zig Ziglar
