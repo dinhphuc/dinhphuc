@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**He who always thinks it is too soon is sure to come too late.**
+**Often it isn't the mountains ahead that wear you out, it's the little pebble in your shoe.**
 
-German Proverb
+Muhammad Ali
