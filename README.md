@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You came into the world to do something; So... do something!**
+**Happiness is the secret to all beauty. There is no beauty without happiness.**
 
-Johnnie Dent Jr
+Christian Dior
