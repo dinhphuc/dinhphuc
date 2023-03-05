@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is the secret to all beauty. There is no beauty without happiness.**
+**Certain things catch your eye, but pursue only those that capture the heart.**
 
-Christian Dior
+Ancient Indian Proverb
