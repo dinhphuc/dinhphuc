@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Hard work beats talent when talent doesn't work hard.**
+**You cannot propel yourself forward by patting yourself on the back.**
 
-Tim Notke
+Steve Prefontaine
