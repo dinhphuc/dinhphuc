@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A challenge lifelong it is, not to bend fear into anger.**
+**Live life to the fullest and focus on the positive.**
 
-Yoda
+Matt Cameron
