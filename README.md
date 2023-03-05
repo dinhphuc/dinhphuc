@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Positive thinking will let you do everything better than negative thinking will.**
+**The start is what stops most people.**
 
-Zig Ziglar
+Don Shula
