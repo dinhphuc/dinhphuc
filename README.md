@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Look at this tree. I cannot make it blossom when it suits me, nor make it bear fruit before its time.**
+**Positive thinking will let you do everything better than negative thinking will.**
 
-Master Oogway
+Zig Ziglar
