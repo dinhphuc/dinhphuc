@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how you feel, get up, dress up, show up and never give up.**
+**Examine what is said, not who speaks.**
 
-Anonymous
+Arab Proverb
