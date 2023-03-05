@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody can make you to feel inferior without your consent.**
+**Smile at strangers and you just might change a life.**
 
-Eleanor Roosevelt
+Steve Maraboli
