@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The start is what stops most people.**
+**I don't count my sit-ups; I only start counting when it starts hurting because they're the only ones that count.**
 
-Don Shula
+Muhammad Ali
