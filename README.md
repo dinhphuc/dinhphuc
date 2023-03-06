@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**All you need is love.**
+**We can't be brave without fear.**
 
-The Beatles
+Muhammad Ali
