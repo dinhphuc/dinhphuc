@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of success is to do the common thing uncommonly well.**
+**Happiness is not something you postpone for the future; it is something you design for the present.**
 
-John D. Rockefeller Jr
+Jim Rohn
