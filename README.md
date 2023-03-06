@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**In the end, it's not the years in your life that count. It's the life in your years.**
+**I can and I will. Watch me.**
 
-Abraham Lincoln
+Carrie Green
