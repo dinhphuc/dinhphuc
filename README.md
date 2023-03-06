@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Because of your smile, you make life more beautiful.**
+**Don't be afraid to give up the good to go for the great.**
 
-Thich Nhat Hanh
+John D. Rockefeller
