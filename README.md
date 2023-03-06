@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If only we'd stop trying to be happy we could have a pretty good time.**
+**If you want your dinner, don't insult the cook.**
 
-Edith Wharton
+Chinese Proverb
