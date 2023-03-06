@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you believe it will work out, you'll see opportunities. If you believe it won't, you will see obstacles.**
+**Never underestimate the power you have to take your life in a new direction.**
 
-Wayne Dyer
+Germany Kent
