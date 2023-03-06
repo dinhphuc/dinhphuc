@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Never underestimate the power you have to take your life in a new direction.**
+**The secret of success is to do the common thing uncommonly well.**
 
-Germany Kent
+John D. Rockefeller Jr
