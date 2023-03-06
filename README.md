@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is not something you postpone for the future; it is something you design for the present.**
+**You walk through life much easier with a smile on your face.**
 
-Jim Rohn
+Sweet Paul
