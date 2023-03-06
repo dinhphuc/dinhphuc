@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You only live once, but if you do it right, once is enough.**
+**The secret of change is to focus all of your energy, not on fighting the old, but on building the new.**
 
-Mae West
+Socrates
