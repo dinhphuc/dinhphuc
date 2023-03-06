@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter where you are on your journey, that's exactly where you need to be.**
+**Think well of all, be patient with all, and try to find the good in all.**
 
-Oprah Winfrey
+Muhammad Ali
