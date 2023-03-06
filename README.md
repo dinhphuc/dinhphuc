@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Faith is taking the first step even when you don't see the whole staircase.**
+**You only live once, but if you do it right, once is enough.**
 
-Martin Luther King
+Mae West
