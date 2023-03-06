@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Hard work beats talent when talent doesn't work hard.**
+**You are stronger than you think.**
 
-Tim Notke
+Anonymous
