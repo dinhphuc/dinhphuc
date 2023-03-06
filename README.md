@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We can be who we are without the pleasures but we could not be who we are not without the hardships.**
+**If only we'd stop trying to be happy we could have a pretty good time.**
 
-Anonymous
+Edith Wharton
