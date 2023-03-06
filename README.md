@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Learn to be thankful for what you already have, while you pursue all that you want.**
+**You are never too old to set another goal or dream a new dream.**
 
-Jim Rohn
+Les Brown
