@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Until you're broken, you don't know what you're made of.**
+**All you need is love.**
 
-Anonymous
+The Beatles
