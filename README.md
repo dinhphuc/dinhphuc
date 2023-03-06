@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We can't be brave without fear.**
+**You cannot change the direction of the wind - only alter the angle of your sails.**
 
-Muhammad Ali
+Anonymous
