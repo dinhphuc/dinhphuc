@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't think about what might go wrong. Think about what might go right.**
+**No matter where you are on your journey, that's exactly where you need to be.**
 
-Anonymous
+Oprah Winfrey
