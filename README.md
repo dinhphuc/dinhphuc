@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are never too old to set another goal or dream a new dream.**
+**You will find only what you bring in.**
 
-Les Brown
+Yoda
