@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't let the silly little things steal your happiness.**
+**Don't think about what might go wrong. Think about what might go right.**
 
 Anonymous
