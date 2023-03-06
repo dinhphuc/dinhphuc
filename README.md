@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot change the direction of the wind - only alter the angle of your sails.**
+**Learn to be thankful for what you already have, while you pursue all that you want.**
 
-Anonymous
+Jim Rohn
