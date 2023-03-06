@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success seems to be connected with action. Successful people keep moving. They make mistakes, but they don't quit.**
+**Enjoy the little things, for one day you may look back and realize they were the big things.**
 
-Conrad Hilton
+Robert Brault
