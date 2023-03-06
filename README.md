@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I can and I will. Watch me.**
+**There may be people that have more talent than you, but theres no excuse for anyone to work harder than you.**
 
-Carrie Green
+Derek Jeter
