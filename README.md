@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You walk through life much easier with a smile on your face.**
+**Faith is taking the first step even when you don't see the whole staircase.**
 
-Sweet Paul
+Martin Luther King
