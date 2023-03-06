@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You can either complain about it or grind, I choose to grind.**
+**The sweat. The time. The devotion. It pays off.**
 
-Kyle Vidrine
+Anonymous
