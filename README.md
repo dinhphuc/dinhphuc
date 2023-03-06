@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Words should be weighed, not counted.**
+**Until you're broken, you don't know what you're made of.**
 
-Yiddish Proverb
+Anonymous
