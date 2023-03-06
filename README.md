@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You will find only what you bring in.**
+**Hard work beats talent when talent doesn't work hard.**
 
-Yoda
+Tim Notke
