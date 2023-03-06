@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Think well of all, be patient with all, and try to find the good in all.**
+**Words should be weighed, not counted.**
 
-Muhammad Ali
+Yiddish Proverb
