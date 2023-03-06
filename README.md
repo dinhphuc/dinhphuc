@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are stronger than you think.**
+**We can be who we are without the pleasures but we could not be who we are not without the hardships.**
 
 Anonymous
