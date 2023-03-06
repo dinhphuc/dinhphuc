@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no greater miracle than our conscious efforts to become good human beings.**
+**In the end, it's not the years in your life that count. It's the life in your years.**
 
-Sri Chinmoy
+Abraham Lincoln
