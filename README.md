@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be happy. It really annoys negative people.**
+**The best way to make your dreams come true is to wake up.**
 
-Ricky Gervais
+Paul Valery
