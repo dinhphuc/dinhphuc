@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Doing what you like is freedom. Liking what you do is happiness.**
+**Make the most of yourself....for that is all there is of you.**
 
-Anonymous
+Ralph Waldo Emerson
