@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Change your thoughts and you change your world.**
+**You are loved.**
 
-Norman Vincent Peale
+Anonymous
