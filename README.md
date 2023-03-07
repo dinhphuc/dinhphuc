@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be helpful. When you see a person without a smile, give them yours.**
+**Don't try to be perfect. Just try to be better than you were yesterday.**
 
-Zig Ziglar
+Anonymous
