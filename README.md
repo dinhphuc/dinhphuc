@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The wise listens to her mind, the foolish to the mob.**
+**Stop doubting yourself. Work hard and make it happen.**
 
-Chinese Proverb
+Anonymous
