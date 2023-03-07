@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Maybe it won't work out. But maybe seeing if it does will be the best adventure ever.**
+**The man who views the world at 50 the same as he did at 20 has wasted 30 years of his life.**
 
-Anonymous
+Muhammad Ali
