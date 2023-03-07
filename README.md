@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't try to be perfect. Just try to be better than you were yesterday.**
+**Self-confidence is the most attractive quality a person can have. How can anyone see how great you are if you can't see it yourself?**
 
 Anonymous
