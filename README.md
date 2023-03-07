@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It matters not what someone is born, but what they grow to be.**
+**Be happy. It really annoys negative people.**
 
-Master Oogway
+Ricky Gervais
