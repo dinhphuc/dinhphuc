@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Pass on what you have learned.**
+**Be helpful. When you see a person without a smile, give them yours.**
 
-Yoda
+Zig Ziglar
