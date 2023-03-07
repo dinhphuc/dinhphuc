@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your path you must decide.**
+**Pass on what you have learned.**
 
 Yoda
