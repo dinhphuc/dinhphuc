@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You will find only what you bring in.**
+**Doing what you like is freedom. Liking what you do is happiness.**
 
-Yoda
+Anonymous
