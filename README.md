@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success usually comes to those who are too busy to be looking for it.**
+**Do more of what lights you up and makes you feel alive. The world needs your spark.**
 
-Henry David Thoreau
+Anonymous
