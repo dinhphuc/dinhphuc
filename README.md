@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**My heart is always open to love.**
+**You are never too old to set another goal or dream a new dream.**
 
-Anonymous
+Les Brown
