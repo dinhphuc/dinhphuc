@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you look the right way, you can see that the whole world is a garden.**
+**It matters not what someone is born, but what they grow to be.**
 
-Frances Hodgson Burnett
+Master Oogway
