@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Stop doubting yourself. Work hard and make it happen.**
+**Success usually comes to those who are too busy to be looking for it.**
 
-Anonymous
+Henry David Thoreau
