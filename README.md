@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are loved.**
+**Success trains. Failure complains.**
 
 Anonymous
