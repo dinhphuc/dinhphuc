@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are never too old to set another goal or dream a new dream.**
+**Climb the mountains to see lowlands.**
 
-Les Brown
+Chinese Proverb
