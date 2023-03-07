@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are loved.**
+**It is only possible to live happily ever after on a daily basis.**
 
 Anonymous
