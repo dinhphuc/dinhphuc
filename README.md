@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Climb the mountains to see lowlands.**
+**Pass on what you have learned.**
 
-Chinese Proverb
+Yoda
