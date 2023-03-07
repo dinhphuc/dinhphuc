@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Shared joy is a double joy; shared sorrow is half a sorrow.**
+**Believe you can and you're halfway there.**
 
-Swedish Proverb
+Theodore Roosevelt
