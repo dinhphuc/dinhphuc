@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Always believe that something wonderful is about to happen.**
+**Shared joy is a double joy; shared sorrow is half a sorrow.**
 
-Anonymous
+Swedish Proverb
