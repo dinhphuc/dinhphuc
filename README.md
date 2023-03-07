@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Self-confidence is the most attractive quality a person can have. How can anyone see how great you are if you can't see it yourself?**
+**Even the greatest were beginners. Don't be afraid to take that first step.**
 
 Anonymous
