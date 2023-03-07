@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The best way to make your dreams come true is to wake up.**
+**Always believe that something wonderful is about to happen.**
 
-Paul Valery
+Anonymous
