@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is too short to spend it at war with yourself.**
+**Change your thoughts and you change your world.**
 
-Anonymous
+Norman Vincent Peale
