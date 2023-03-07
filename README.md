@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you have exhausted all possibilities, remember this: you haven't.**
+**I will not follow where the path may lead, but I will go where there is no path, and I will leave a trail.**
 
-Thomas Edison
+Muriel Strode
