@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do more of what lights you up and makes you feel alive. The world needs your spark.**
+**If you look the right way, you can see that the whole world is a garden.**
 
-Anonymous
+Frances Hodgson Burnett
