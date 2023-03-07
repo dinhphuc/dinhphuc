@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe you can and you're halfway there.**
+**You are loved.**
 
-Theodore Roosevelt
+Anonymous
