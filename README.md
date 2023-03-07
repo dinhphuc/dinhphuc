@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success trains. Failure complains.**
+**The wise listens to her mind, the foolish to the mob.**
 
-Anonymous
+Chinese Proverb
