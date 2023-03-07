@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Make the most of yourself....for that is all there is of you.**
+**When you have exhausted all possibilities, remember this: you haven't.**
 
-Ralph Waldo Emerson
+Thomas Edison
