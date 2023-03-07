@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your path you must decide.**
+**You don't find will power, you create it.**
 
-Yoda
+Anonymous
