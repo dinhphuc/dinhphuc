@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure is not the opposite of success. Its part of success.**
+**Like the morning sun, you too shall rise and continue to shine.**
 
 Anonymous
