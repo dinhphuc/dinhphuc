@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you have only one smile in you, give it to the people you love.**
+**The miracle isn't that I finished. The miracle is that I had the courage to start.**
 
-Maya Angelou
+John Bingham
