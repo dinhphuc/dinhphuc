@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Victory is always possible for the person who refuses to stop fighting.**
+**It's a good day to be happy.**
 
-Napoleon Hill
+Anonymous
