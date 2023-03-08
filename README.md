@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is made of ever so many partings welded together.**
+**Goals may give focus, but dreams give power.**
 
-Charles Dickens
+John Maxwell
