@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You will face many defeats in life, but never let yourself be defeated.**
+**Two wrongs don't make a right.**
 
-Maya Angelou
+English Proverb
