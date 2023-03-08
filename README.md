@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe in yourself. You are braver than you think, more talented than you know, and capable of more than you imagine.**
+**Shine like the whole universe is yours.**
 
-Roy T. Bennett
+Rumi
