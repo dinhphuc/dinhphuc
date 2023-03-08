@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Practice 'gratitude' each day and your relationship will last forever.**
+**If you're presenting yourself with confidence, you can pull off pretty much anything.**
 
-Anonymous
+Katy Perry
