@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Hard work beats talent when talent doesn't work hard.**
+**I am thankful for all those difficult people in my life. They have shown me exactly who I do not want to be.**
 
-Tim Notke
+Anonymous
