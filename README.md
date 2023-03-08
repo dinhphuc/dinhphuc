@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A problem is a chance for you to do your best.**
+**Believe in yourself. You are braver than you think, more talented than you know, and capable of more than you imagine.**
 
-Duke Ellington
+Roy T. Bennett
