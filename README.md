@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's important to feel good about yourself. When you feel good about yourself, nothing negative can touch you.**
+**Wanting to be someone else is a waste of the person you are.**
 
-Anonymous
+Marilyn Monroe
