@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**One of the best ways of being happy with life is to make someone happy.**
+**Failure is not the opposite of success. Its part of success.**
 
 Anonymous
