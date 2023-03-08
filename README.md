@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Two wrongs don't make a right.**
+**One often meets his destiny on the road he takes to avoid it.**
 
-English Proverb
+Master Oogway
