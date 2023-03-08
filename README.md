@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**All souls are lost until they are found.**
+**Failure is not the opposite of success. Its part of success.**
 
-Kate McGahan
+Anonymous
