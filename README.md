@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't love what you do, you won't do it with much conviction or passion.**
+**It's important to feel good about yourself. When you feel good about yourself, nothing negative can touch you.**
 
-Mia Hamm
+Anonymous
