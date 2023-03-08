@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The miracle isn't that I finished. The miracle is that I had the courage to start.**
+**Words may inspire but only action creates change.**
 
-John Bingham
+Simon Sinek
