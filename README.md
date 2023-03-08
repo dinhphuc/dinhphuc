@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Doing what you like is freedom. Liking what you do is happiness.**
+**If you have only one smile in you, give it to the people you love.**
 
-Anonymous
+Maya Angelou
