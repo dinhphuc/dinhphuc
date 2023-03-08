@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Shine like the whole universe is yours.**
+**Life is made of ever so many partings welded together.**
 
-Rumi
+Charles Dickens
