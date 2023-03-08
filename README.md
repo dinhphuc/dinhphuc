@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Words may inspire but only action creates change.**
+**A problem is a chance for you to do your best.**
 
-Simon Sinek
+Duke Ellington
