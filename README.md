@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When someone told me I lived in a fantasy land, I nearly fell off my unicorn.**
+**If you don't love what you do, you won't do it with much conviction or passion.**
 
-Anonymous
+Mia Hamm
