@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Every champion was once a contender that refused to give up.**
+**Good friends are like stars. You don't always see them, but you know they're always there.**
 
-Rocky Balboa
+Christy Evans
