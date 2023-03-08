@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's a good day to be happy.**
+**As long as we have hope, we have direction, the energy to move, and the map to move by.**
 
-Anonymous
+Lao Tzu
