@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure is not the opposite of success. Its part of success.**
+**In life, many things do not go according to plan. If you fall, get back up.**
 
 Anonymous
