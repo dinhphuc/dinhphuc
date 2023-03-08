@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Goals may give focus, but dreams give power.**
+**You will face many defeats in life, but never let yourself be defeated.**
 
-John Maxwell
+Maya Angelou
