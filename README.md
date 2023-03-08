@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The only way to do great work is to love what you do.**
+**One of the best ways of being happy with life is to make someone happy.**
 
-Steve Jobs
+Anonymous
