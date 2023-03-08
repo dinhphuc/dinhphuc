@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I am thankful for all those difficult people in my life. They have shown me exactly who I do not want to be.**
+**Your positive action combined with positive thinking results in success.**
 
 Anonymous
