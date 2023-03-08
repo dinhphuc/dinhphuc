@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Like the morning sun, you too shall rise and continue to shine.**
+**Love has no age, no limit; and no death.**
 
-Anonymous
+John Galsworthy
