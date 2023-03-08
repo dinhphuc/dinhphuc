@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Love has no age, no limit; and no death.**
+**The only way to do great work is to love what you do.**
 
-John Galsworthy
+Steve Jobs
