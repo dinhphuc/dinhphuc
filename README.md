@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No marathon gets easier later. The halfway point only marks the end of the beginning.**
+**The pessimist sees difficulty in every opportunity. The optimist sees opportunity in every difficulty.**
 
-Joe Henderson
+Winston Churchill
