@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The trick is to enjoy life. Don't wish away your days, waiting for better ones ahead.**
+**Every champion was once a contender that refused to give up.**
 
-Marjorie Pay Hinckley
+Rocky Balboa
