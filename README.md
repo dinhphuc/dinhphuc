@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**One often meets his destiny on the road he takes to avoid it.**
+**All souls are lost until they are found.**
 
-Master Oogway
+Kate McGahan
