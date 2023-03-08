@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The pessimist sees difficulty in every opportunity. The optimist sees opportunity in every difficulty.**
+**Don't waste a minute not being happy. If one door closes, run to the next window - or break down a door.**
 
-Winston Churchill
+Brooke Shields
