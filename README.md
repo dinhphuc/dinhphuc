@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The reason we race isn't so much to beat each other,... but to be with each other.**
+**When someone told me I lived in a fantasy land, I nearly fell off my unicorn.**
 
-Christopher McDougall
+Anonymous
