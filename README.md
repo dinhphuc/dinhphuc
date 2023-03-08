@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't waste a minute not being happy. If one door closes, run to the next window - or break down a door.**
+**Doing what you like is freedom. Liking what you do is happiness.**
 
-Brooke Shields
+Anonymous
