@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're presenting yourself with confidence, you can pull off pretty much anything.**
+**No marathon gets easier later. The halfway point only marks the end of the beginning.**
 
-Katy Perry
+Joe Henderson
