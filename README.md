@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Wanting to be someone else is a waste of the person you are.**
+**Hard work beats talent when talent doesn't work hard.**
 
-Marilyn Monroe
+Tim Notke
