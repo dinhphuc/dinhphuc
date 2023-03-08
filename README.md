@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your positive action combined with positive thinking results in success.**
+**Practice 'gratitude' each day and your relationship will last forever.**
 
 Anonymous
