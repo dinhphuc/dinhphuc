@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Tough times don't last. Tough people do.**
+**Your positive action combined with positive thinking results in success.**
 
-Robert H. Schuller
+Anonymous
