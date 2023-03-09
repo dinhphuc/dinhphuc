@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Every strike brings me closer to the next home run.**
+**Tough times don't last. Tough people do.**
 
-Babe Ruth
+Robert H. Schuller
