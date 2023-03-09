@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Great works are performed, not by strength, but by perseverance.**
+**Throw kindness around like confetti.**
 
-Samuel Johnson
+Anonymous
