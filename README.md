@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be strong enough to let go and patient enough to wait for what you deserve.**
+**Throw kindness around like confetti.**
 
 Anonymous
