@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When obstacles arise, you change your direction to reach your goal, you do not change your decision to get there.**
+**You should never give up. No matter how hard the situation is, always believe that something beautiful is going to happen.**
 
-Zig Ziglar
+Anonymous
