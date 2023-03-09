@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's going to be hard. But hard is not impossible.**
+**When obstacles arise, you change your direction to reach your goal, you do not change your decision to get there.**
 
-Anonymous
+Zig Ziglar
