@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your positive action combined with positive thinking results in success.**
+**Great works are performed, not by strength, but by perseverance.**
 
-Anonymous
+Samuel Johnson
