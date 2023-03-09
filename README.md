@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I can and I will. Watch me.**
+**Make the mind tougher by exposing it to adversity.**
 
-Carrie Green
+Robert Greene
