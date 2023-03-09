@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I have learned over the years that when one's mind is made up, this diminishes fear.**
+**Nobody who ever gave their best regretted it.**
 
-Rosa Parks
+George Halas
