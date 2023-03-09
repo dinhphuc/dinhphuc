@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Make the mind tougher by exposing it to adversity.**
+**Good things come to those who believe. Better things come to those who are patient. The best things come to those who never give up.**
 
-Robert Greene
+Anonymous
