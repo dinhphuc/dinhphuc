@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No beauty shines brighter than that of a good heart.**
+**I'm not telling you it is going to be easy, I'm telling you it's going to be worth it.**
 
-Anonymous
+Art Williams
