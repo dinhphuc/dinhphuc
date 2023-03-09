@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm not telling you it is going to be easy, I'm telling you it's going to be worth it.**
+**Every strike brings me closer to the next home run.**
 
-Art Williams
+Babe Ruth
