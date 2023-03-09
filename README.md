@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Every champion was once a contender that refused to give up.**
+**You may be disappointed if you fail, but you are doomed if you don't try.**
 
-Rocky Balboa
+Beverly Sills
