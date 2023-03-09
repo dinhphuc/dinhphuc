@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Limitations live only in our minds. But if we use our imaginations, our possibilities become limitless.**
+**When you are enthusiastic about what you do, you feel this positive energy. It's very simple.**
 
-Jamie Paolinetti
+Paulo Coelho
