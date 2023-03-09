@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**An attitude of positive expectation is the mark of the superior personality.**
+**Whoever gossips to you will gossip about you.**
 
-Brian Tracy
+Spanish Proverb
