@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**As long as we have hope, we have direction, the energy to move, and the map to move by.**
+**Life chips away at us all. Some play the victim. Some choose to be a survivor. And then there are those who choose to conquer.**
 
-Lao Tzu
+Anonymous
