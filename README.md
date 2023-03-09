@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Work hard in silence. Let success make the noise.**
+**An attitude of positive expectation is the mark of the superior personality.**
 
-Anonymous
+Brian Tracy
