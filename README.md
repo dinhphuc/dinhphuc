@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**One conquers the world by conquering himself.**
+**Every champion was once a contender that refused to give up.**
 
-Zeno of Citium
+Rocky Balboa
