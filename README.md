@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Before you score, you first must have a goal.**
+**No beauty shines brighter than that of a good heart.**
 
-Greek Proverb
+Anonymous
