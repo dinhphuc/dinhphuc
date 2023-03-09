@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whoever gossips to you will gossip about you.**
+**Before you score, you first must have a goal.**
 
-Spanish Proverb
+Greek Proverb
