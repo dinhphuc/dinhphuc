@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success consists of getting up just one more time than you fall.**
+**If you don't like something, change it. If you can't change it, change your attitude.**
 
-Oliver Goldsmith
+Maya Angelou
