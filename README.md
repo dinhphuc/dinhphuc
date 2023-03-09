@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Throw kindness around like confetti.**
+**I can and I will. Watch me.**
 
-Anonymous
+Carrie Green
