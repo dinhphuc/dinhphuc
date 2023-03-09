@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happens to every guy sometimes this does.**
+**Success consists of getting up just one more time than you fall.**
 
-Yoda
+Oliver Goldsmith
