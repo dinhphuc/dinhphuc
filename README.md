@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You should never give up. No matter how hard the situation is, always believe that something beautiful is going to happen.**
+**The greatest discovery of all time is that a person can change their future by merely changing their attitude.**
 
-Anonymous
+Oprah Winfrey
