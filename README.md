@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't like something, change it. If you can't change it, change your attitude.**
+**Limitations live only in our minds. But if we use our imaginations, our possibilities become limitless.**
 
-Maya Angelou
+Jamie Paolinetti
