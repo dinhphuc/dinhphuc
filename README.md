@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You may be disappointed if you fail, but you are doomed if you don't try.**
+**Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.**
 
-Beverly Sills
+Napoleon Hill
