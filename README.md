@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you are enthusiastic about what you do, you feel this positive energy. It's very simple.**
+**One conquers the world by conquering himself.**
 
-Paulo Coelho
+Zeno of Citium
