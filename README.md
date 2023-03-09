@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest discovery of all time is that a person can change their future by merely changing their attitude.**
+**Winners make a habit of manufacturing their own positive expectations in advance of the event.**
 
-Oprah Winfrey
+Brian Tracy
