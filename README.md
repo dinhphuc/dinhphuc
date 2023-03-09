@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.**
+**I have learned over the years that when one's mind is made up, this diminishes fear.**
 
-Napoleon Hill
+Rosa Parks
