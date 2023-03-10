@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be who you are and say what you feel because those who mind don't matter and those who matter don't mind.**
+**The only person you are destined to become is the person you decide to be.**
 
-Dr. Seuss
+Ralph Waldo Emerson
