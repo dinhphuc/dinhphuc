@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Every next level of your life will demand a different version of you.**
+**It matters not what someone is born, but what they grow to be.**
 
-Anonymous
+Master Oogway
