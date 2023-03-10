@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Some people dream of success... while others wake up and work hard at it.**
+**Nobody can make you to feel inferior without your consent.**
 
-Anonymous
+Eleanor Roosevelt
