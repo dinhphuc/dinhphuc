@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happy are those who take life day by day, complain very little, and are thankful for the little things in life.**
+**Better than a thousand days of diligent study is one day with a great teacher.**
 
-Anonymous
+Jim Afremow
