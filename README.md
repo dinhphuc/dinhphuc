@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody can make you to feel inferior without your consent.**
+**Life becomes easier and more beautiful when we can see the good in other people.**
 
-Eleanor Roosevelt
+Roy T. Bennett
