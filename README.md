@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Good friends are like stars. You don't always see them, but you know they're always there.**
+**Success is what happens after you have survived all of your disappointments.**
 
-Christy Evans
+Anonymous
