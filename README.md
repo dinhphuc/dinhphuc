@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are what you do, not what you say you'll do.**
+**A gentle word, a kind look, a good-natured smile can work wonders and accomplish miracles.**
 
-Anonymous
+William Hazlitt
