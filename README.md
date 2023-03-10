@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Results happen over time, not overnight. Work hard, stay consistent, and be patient.**
+**Happy are those who take life day by day, complain very little, and are thankful for the little things in life.**
 
 Anonymous
