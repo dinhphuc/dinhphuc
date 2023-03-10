@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously.**
+**Run when you can, walk if you have to, crawl if you must; just never give up.**
 
-Steve Maraboli
+Dean Karnazes
