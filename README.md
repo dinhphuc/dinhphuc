@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Surround yourself with only people who are going to lift you higher.**
+**Wisdom is knowing when you can't be wise.**
 
-Oprah
+Muhammad Ali
