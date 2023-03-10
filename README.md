@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Give up on being perfect and start working on becoming yourself.**
+**It's lack of faith that makes people afraid of meeting challenges, and I believed in myself.**
 
-Anna Quindlen
+Muhammad Ali
