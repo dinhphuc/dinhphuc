@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.**
+**In every success story, you will find someone who made a courageous decision.**
 
-Napoleon Hill
+Peter Drucker
