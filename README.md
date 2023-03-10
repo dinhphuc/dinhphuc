@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's lack of faith that makes people afraid of meeting challenges, and I believed in myself.**
+**With confidence you have won before you have started.**
 
-Muhammad Ali
+Marcus Garvey
