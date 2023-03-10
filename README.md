@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The only person you are destined to become is the person you decide to be.**
+**Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.**
 
-Ralph Waldo Emerson
+Napoleon Hill
