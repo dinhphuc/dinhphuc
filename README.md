@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I have found that if you love life, life will love you back.**
+**Results happen over time, not overnight. Work hard, stay consistent, and be patient.**
 
-Arthur Rubinstein
+Anonymous
