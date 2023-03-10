@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to go fast, go alone. If you want to go far, go together.**
+**Some people dream of success... while others wake up and work hard at it.**
 
-African Proverb
+Anonymous
