@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A gentle word, a kind look, a good-natured smile can work wonders and accomplish miracles.**
+**I have found that if you love life, life will love you back.**
 
-William Hazlitt
+Arthur Rubinstein
