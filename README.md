@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Choose kindness and laugh often.**
+**The start is what stops most people.**
 
-Anonymous
+Don Shula
