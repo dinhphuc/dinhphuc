@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When it's pouring rain and you're bowling along through the wet, there's satisfaction in knowing you're out there and the others aren't.**
+**The man who views the world at 50 the same as he did at 20 has wasted 30 years of his life.**
 
-Peter Snell
+Muhammad Ali
