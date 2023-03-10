@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Mistakes are proof that you are trying.**
+**Choose kindness and laugh often.**
 
 Anonymous
