@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It matters not what someone is born, but what they grow to be.**
+**Run when you can, walk if you have to, crawl if you must; just never give up.**
 
-Master Oogway
+Dean Karnazes
