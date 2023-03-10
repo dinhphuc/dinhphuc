@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Winners make a habit of manufacturing their own positive expectations in advance of the event.**
+**If you don't love what you do, you won't do it with much conviction or passion.**
 
-Brian Tracy
+Mia Hamm
