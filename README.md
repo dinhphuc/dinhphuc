@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Run when you can, walk if you have to, crawl if you must; just never give up.**
+**Whatever the mind can conceive and believe, it can achieve.**
 
-Dean Karnazes
+Napoleon Hill
