@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The start is what stops most people.**
+**If you want to go fast, go alone. If you want to go far, go together.**
 
-Don Shula
+African Proverb
