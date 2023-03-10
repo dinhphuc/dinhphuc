@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Wisdom is knowing when you can't be wise.**
+**I'm not telling you it is going to be easy, I'm telling you it's going to be worth it.**
 
-Muhammad Ali
+Art Williams
