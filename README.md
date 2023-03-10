@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**In every success story, you will find someone who made a courageous decision.**
+**Give up on being perfect and start working on becoming yourself.**
 
-Peter Drucker
+Anna Quindlen
