@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do or do not. There is no try.**
+**It's not who you are that holds you back, it's who you think you're not.**
 
-Yoda
+Anonymous
