@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm not telling you it is going to be easy, I'm telling you it's going to be worth it.**
+**Good friends are like stars. You don't always see them, but you know they're always there.**
 
-Art Williams
+Christy Evans
