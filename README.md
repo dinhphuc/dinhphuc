@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Find a place inside where there's joy, and the joy will burn out the pain.**
+**You cannot propel yourself forward by patting yourself on the back.**
 
-Joseph Campbell
+Steve Prefontaine
