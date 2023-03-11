@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Who begins too much accomplishes little.**
+**You are your only limit.**
 
-German Proverb
+Anonymous
