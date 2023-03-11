@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Time is an illusion, there is only the now.**
+**If you're going through hell, keep going.**
 
-Master Shifu
+Winston Churchill
