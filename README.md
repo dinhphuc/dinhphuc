@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be aware as often as possible of the great transformation process you are going through.**
+**In order to carry a positive action we must develop here a positive vision.**
 
-Anonymous
+Dalai Lama
