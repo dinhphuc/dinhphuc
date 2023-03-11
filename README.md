@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**What you see in yourself is what you see in the world.**
+**The best way to predict your future is to create it.**
 
-Afghan Proverb
+Peter F. Drucker
