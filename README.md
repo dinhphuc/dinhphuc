@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A person who never made a mistake never tried anything new.**
+**Don't wish it were easier. Wish you were better.**
 
-Albert Einstein
+Jim Rohn
