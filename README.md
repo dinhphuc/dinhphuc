@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The best way to predict your future is to create it.**
+**Happiness is not out there, it's in you.**
 
-Peter F. Drucker
+Anonymous
