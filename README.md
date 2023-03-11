@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You've never lived this day before, and you never will again. Make the most of it!**
+**Certain things catch your eye, but pursue only those that capture the heart.**
 
-Anonymous
+Ancient Indian Proverb
