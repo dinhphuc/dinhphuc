@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is not out there, it's in you.**
+**A truly rich man is one whose children run into his arms when his hands are empty.**
 
-Anonymous
+Unknown
