@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's gonna get harder before it gets easier. But it will get better, you just gotta make it through the hard stuff first.**
+**The greatest mistake you can make in life is to continually fear that you will make one.**
 
-Anonymous
+Elbert Hubbard
