@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No one is perfect - that's why pencils have erasers.**
+**What you see in yourself is what you see in the world.**
 
-Wolfgang Riebe
+Afghan Proverb
