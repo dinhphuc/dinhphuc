@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No marathon gets easier later. The halfway point only marks the end of the beginning.**
+**You are loved.**
 
-Joe Henderson
+Anonymous
