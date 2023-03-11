@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you stop chasing the wrong things you give the right things a chance to catch you.**
+**Surround yourself with only people who are going to lift you higher.**
 
-Anonymous
+Oprah
