@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't explain your philosophy. Embody it.**
+**Determination is doing what needs to be done even when you don't feel like doing it.**
 
-Epictetus
+Anonymous
