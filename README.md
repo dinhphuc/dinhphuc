@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A truly rich man is one whose children run into his arms when his hands are empty.**
+**Success usually comes to those who are too busy to be looking for it.**
 
-Unknown
+Henry David Thoreau
