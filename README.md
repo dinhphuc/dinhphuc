@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're going through hell, keep going.**
+**No marathon gets easier later. The halfway point only marks the end of the beginning.**
 
-Winston Churchill
+Joe Henderson
