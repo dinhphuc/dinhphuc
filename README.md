@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Determination is doing what needs to be done even when you don't feel like doing it.**
+**The pain you feel today will be the strength you feel tomorrow.**
 
 Anonymous
