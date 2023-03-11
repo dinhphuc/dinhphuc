@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Certain things catch your eye, but pursue only those that capture the heart.**
+**Find a place inside where there's joy, and the joy will burn out the pain.**
 
-Ancient Indian Proverb
+Joseph Campbell
