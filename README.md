@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success usually comes to those who are too busy to be looking for it.**
+**When you stop chasing the wrong things you give the right things a chance to catch you.**
 
-Henry David Thoreau
+Anonymous
