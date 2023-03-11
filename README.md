@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life becomes easier and more beautiful when we can see the good in other people.**
+**Acting on a good idea is better than just having a good idea.**
 
-Roy T. Bennett
+Robert Half
