@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest mistake you can make in life is to continually fear that you will make one.**
+**Success is no accident. It is hard work, perseverance, learning, studying, sacrifice and most of all, love of what you are doing or learning to do.**
 
-Elbert Hubbard
+Pele
