@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Acting on a good idea is better than just having a good idea.**
+**A person who never made a mistake never tried anything new.**
 
-Robert Half
+Albert Einstein
