@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are loved.**
+**Who begins too much accomplishes little.**
 
-Anonymous
+German Proverb
