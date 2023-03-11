@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are your only limit.**
+**If you want to lift yourself up, lift up someone else.**
 
-Anonymous
+Booker T. Washington
