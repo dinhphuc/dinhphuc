@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Age is whatever you think it is. You are as old as you think you are.**
+**You cannot propel yourself forward by patting yourself on the back.**
 
-Muhammad Ali
+Steve Prefontaine
