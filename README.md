@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We can't help everyone, but everyone can help someone.**
+**Time is an illusion, there is only the now.**
 
-Ronald Reagan
+Master Shifu
