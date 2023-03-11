@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to lift yourself up, lift up someone else.**
+**Trust yourself. You know more than you think you do.**
 
-Booker T. Washington
+Dr. Benjamin Spock
