@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The pain you feel today will be the strength you feel tomorrow.**
+**We must embrace pain and burn it as fuel for our journey.**
 
-Anonymous
+Kenji Miyazawa
