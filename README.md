@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Surround yourself with only people who are going to lift you higher.**
+**Be patient, good things are coming your way.**
 
-Oprah
+Anonymous
