@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot propel yourself forward by patting yourself on the back.**
+**Be aware as often as possible of the great transformation process you are going through.**
 
-Steve Prefontaine
+Anonymous
