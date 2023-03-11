@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't wish it were easier. Wish you were better.**
+**No one is perfect - that's why pencils have erasers.**
 
-Jim Rohn
+Wolfgang Riebe
