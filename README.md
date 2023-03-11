@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**An attitude of positive expectation is the mark of the superior personality.**
+**Live your life for you.**
 
-Brian Tracy
+Anonymous
