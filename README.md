@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is when what you think, what you say, and what you do are in harmony.**
+**Setting goals is the first step into turning the invisible into the visible.**
 
-Mahatma Gandhi
+Tony Robbins
