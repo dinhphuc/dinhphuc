@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest discovery of all time is that a person can change their future by merely changing their attitude.**
+**Keep smiling, because life is a beautiful thing and there's so much to smile about.**
 
-Oprah Winfrey
+Marilyn Monroe
