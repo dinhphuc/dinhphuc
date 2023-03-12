@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Acting on a good idea is better than just having a good idea.**
+**Be happy not because everything is good, but because you can see the good side of everything.**
 
-Robert Half
+Anonymous
