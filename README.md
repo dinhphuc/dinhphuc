@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between the impossible and the possible lies in a person's determination.**
+**It never gets easier. You just get better.**
 
-Tommy Lasorda
+Jordan Hoechlin
