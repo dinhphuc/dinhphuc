@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**None of us is as smart as all of us.**
+**Success is the ability to go from one failure to another with no loss of enthusiasm.**
 
-Ken Blanchard
+Winston Churchill
