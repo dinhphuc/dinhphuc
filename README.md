@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Yesterday is history, tomorrow is a mystery, today is a gift of God, which is why we call it the present.**
+**Winning doesn't always mean being first. Winning means you're doing better than you've done before.**
 
-Bill Keane
+Bonnie Blair
