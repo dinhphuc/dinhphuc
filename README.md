@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't fear moving slowly forward...fear standing still.**
+**If you believe it, the mind can achieve it.**
 
-Kathleen Harris
+Ronnie Lott
