@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you know what you want, and want it bad enough, you'll find a way to get it.**
+**The best feeling of happiness is when you're happy because you've made somebody else happy.**
 
-Jim Rohn
+Anonymous
