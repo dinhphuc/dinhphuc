@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't waste a minute not being happy. If one door closes, run to the next window - or break down a door.**
+**You know that it's a fool who plays it cool by making his world a little colder.**
 
-Brooke Shields
+The Beatles
