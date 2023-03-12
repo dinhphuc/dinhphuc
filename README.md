@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's gonna get harder before it gets easier. But it will get better, you just gotta make it through the hard stuff first.**
+**It ain't as bad as you think. It will look better in the morning.**
 
-Anonymous
+Colin Powell
