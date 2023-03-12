@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Winning doesn't always mean being first. Winning means you're doing better than you've done before.**
+**When you know what you want, and want it bad enough, you'll find a way to get it.**
 
-Bonnie Blair
+Jim Rohn
