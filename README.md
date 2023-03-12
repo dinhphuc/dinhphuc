@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Measure a thousand times and cut once.**
+**Whoever is happy will make others happy too.**
 
-Turkish Proverb
+Anonymous
