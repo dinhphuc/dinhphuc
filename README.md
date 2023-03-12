@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's gonna get harder before it gets easier. But it will get better, you just gotta make it through the hard stuff first.**
+**You have to be at your strongest when you're feeling at your weakest.**
 
 Anonymous
