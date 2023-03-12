@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up, stay focused, stay positive, stay strong.**
+**When a new day begins, dare to smile gratefully.**
 
-Anonymous
+Steve Maraboli
