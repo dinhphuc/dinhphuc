@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be happy not because everything is good, but because you can see the good side of everything.**
+**Work hard and be nice to people.**
 
 Anonymous
