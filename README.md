@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Cheerfulness is the very flower of health.**
+**Alone, we can do so little; together we can do so much.**
 
-Anonymous
+Helen Keller
