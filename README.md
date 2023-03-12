@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be you. Do you. For you.**
+**Age is whatever you think it is. You are as old as you think you are.**
 
-Anonymous
+Muhammad Ali
