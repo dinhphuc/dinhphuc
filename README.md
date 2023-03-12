@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is the ability to go from one failure to another with no loss of enthusiasm.**
+**It's gonna get harder before it gets easier. But it will get better, you just gotta make it through the hard stuff first.**
 
-Winston Churchill
+Anonymous
