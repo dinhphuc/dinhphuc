@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
+**Push yourself because no one else is going to do it for you.**
 
 Anonymous
