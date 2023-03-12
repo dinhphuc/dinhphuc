@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The best feeling of happiness is when you're happy because you've made somebody else happy.**
+**Don't waste a minute not being happy. If one door closes, run to the next window - or break down a door.**
 
-Anonymous
+Brooke Shields
