@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Train yourself to let go of everything you fear to lose.**
+**The greatest discovery of all time is that a person can change their future by merely changing their attitude.**
 
-Yoda
+Oprah Winfrey
