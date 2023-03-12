@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Age is whatever you think it is. You are as old as you think you are.**
+**Acting on a good idea is better than just having a good idea.**
 
-Muhammad Ali
+Robert Half
