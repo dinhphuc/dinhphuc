@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Trust yourself. You know more than you think you do.**
+**When will you realize, the more you take, the less you have.**
 
-Dr. Benjamin Spock
+Master Oogway
