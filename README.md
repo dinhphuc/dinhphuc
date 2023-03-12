@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If one dream should fall and break into a thousand pieces, never be afraid to pick one of those pieces up and begin again.**
+**Set a goal so big that you can't achieve it until you grow into the person who can.**
 
-Flavia Weedn
+Anonymous
