@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's the repetition of affirmations that leads to belief. And once that belief becomes a deep conviction, things begin to happen.**
+**Happiness is when what you think, what you say, and what you do are in harmony.**
 
-Muhammad Ali
+Mahatma Gandhi
