@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whoever is happy will make others happy too.**
+**It's the repetition of affirmations that leads to belief. And once that belief becomes a deep conviction, things begin to happen.**
 
-Anonymous
+Muhammad Ali
