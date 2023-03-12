@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You have to be at your strongest when you're feeling at your weakest.**
+**You will never always be motivated. You have to learn to be disciplined.**
 
 Anonymous
