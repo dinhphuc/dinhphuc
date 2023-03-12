@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When a new day begins, dare to smile gratefully.**
+**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
 
-Steve Maraboli
+Anonymous
