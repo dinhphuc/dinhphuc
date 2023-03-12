@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Work hard and be nice to people.**
+**None of us is as smart as all of us.**
 
-Anonymous
+Ken Blanchard
