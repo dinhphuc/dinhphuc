@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It never gets easier. You just get better.**
+**Never give up, stay focused, stay positive, stay strong.**
 
-Jordan Hoechlin
+Anonymous
