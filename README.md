@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It ain't as bad as you think. It will look better in the morning.**
+**The difference between the impossible and the possible lies in a person's determination.**
 
-Colin Powell
+Tommy Lasorda
