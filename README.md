@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep smiling, because life is a beautiful thing and there's so much to smile about.**
+**Be you. Do you. For you.**
 
-Marilyn Monroe
+Anonymous
