@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You will never always be motivated. You have to learn to be disciplined.**
+**Successful people have fear, successful people have doubts, and successful people have worries. They just don't let these feelings stop them.**
 
-Anonymous
+T. Harv Eker
