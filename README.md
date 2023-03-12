@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Push yourself because no one else is going to do it for you.**
+**Cheerfulness is the very flower of health.**
 
 Anonymous
