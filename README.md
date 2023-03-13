@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It ain't as bad as you think. It will look better in the morning.**
+**Deep doubts, deep wisdom; small doubts, small wisdom.**
 
-Colin Powell
+Chinese Proverb
