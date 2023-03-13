@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**In a battle between elephants, the ants get squashed.**
+**It's not so much that I began to run, but that I continued.**
 
-Thai Proverb
+Hal Higdon
