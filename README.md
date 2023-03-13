@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Attitude will always define who we are in life.**
+**The first duty of love is to listen.**
 
-Mark A. Brennan
+Paul Tillich
