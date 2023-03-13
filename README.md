@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A beautiful thing is never perfect.**
+**People who make you feel better about yourself when you're sad are so important.**
 
-Egyptian Proverb
+Anonymous
