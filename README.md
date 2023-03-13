@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Set a goal that makes you want to jump out of bed in the morning.**
+**Find a place inside where there's joy, and the joy will burn out the pain.**
 
-Anonymous
+Joseph Campbell
