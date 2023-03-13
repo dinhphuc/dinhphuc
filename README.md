@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A truly rich man is one whose children run into his arms when his hands are empty.**
+**Attitude will always define who we are in life.**
 
-Unknown
+Mark A. Brennan
