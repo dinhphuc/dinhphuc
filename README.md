@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The best way to predict your future is to create it.**
+**We know what we are, but know not what we may be.**
 
-Peter F. Drucker
+William Shakespeare
