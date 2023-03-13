@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The people who make you smile from just seeing them, those are my favorite people.**
+**The reputation of a thousand years may be determined by the conduct of one hour.**
 
-Koi Fresco
+Japanese Proverb
