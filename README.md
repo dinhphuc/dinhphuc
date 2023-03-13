@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Only a life lived for others is a life worthwhile.**
+**No one controls how I feel about myself, but me.**
 
-Albert Einstein
+Anonymous
