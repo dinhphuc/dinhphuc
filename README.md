@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I didn't come this far to only come this far.**
+**Set a goal that makes you want to jump out of bed in the morning.**
 
 Anonymous
