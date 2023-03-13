@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Working hard for something we don't care about is called stress; working hard for somthing we love is called passion.**
+**Wherever you go, no matter what the weather, always bring your own sunshine.**
 
-Simon Sinek
+Anthony J. D'Angelo
