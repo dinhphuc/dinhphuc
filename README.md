@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There are two things a person should never be angry at: what they can help, and what they cannot.**
+**Failure will never overtake me if my determination to succeed is strong enough.**
 
-Plato
+Og Mandino
