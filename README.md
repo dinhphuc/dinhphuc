@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Attitude will always define who we are in life.**
+**There's never enough time to do everything, but there's always enough time to do the most important thing.**
 
-Mark A. Brennan
+Dean Bokhari
