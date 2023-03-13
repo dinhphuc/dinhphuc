@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Who begins too much accomplishes little.**
+**It ain't as bad as you think. It will look better in the morning.**
 
-German Proverb
+Colin Powell
