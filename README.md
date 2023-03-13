@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There's never enough time to do everything, but there's always enough time to do the most important thing.**
+**The best way to predict your future is to create it.**
 
-Dean Bokhari
+Peter F. Drucker
