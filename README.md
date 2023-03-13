@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**He who always thinks it is too soon is sure to come too late.**
+**Your relationship with yourself sets the tone for every other relationship you have.**
 
-German Proverb
+Anonymous
