@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The first duty of love is to listen.**
+**The more you praise and celebrate your life, the more there is in life to celebrate.**
 
-Paul Tillich
+Oprah Winfrey
