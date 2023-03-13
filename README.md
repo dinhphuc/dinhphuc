@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not so much that I began to run, but that I continued.**
+**He who always thinks it is too soon is sure to come too late.**
 
-Hal Higdon
+German Proverb
