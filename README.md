@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your relationship with yourself sets the tone for every other relationship you have.**
+**Who begins too much accomplishes little.**
 
-Anonymous
+German Proverb
