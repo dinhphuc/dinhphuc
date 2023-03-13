@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When the sun rises, it rises for everyone.**
+**The purpose of our lives is to be happy.**
 
-Cuban Proverb
+Dalai Lama
