@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Find a place inside where there's joy, and the joy will burn out the pain.**
+**You walk through life much easier with a smile on your face.**
 
-Joseph Campbell
+Sweet Paul
