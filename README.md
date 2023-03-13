@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're going through hell, keep going.**
+**I didn't come this far to only come this far.**
 
-Winston Churchill
+Anonymous
