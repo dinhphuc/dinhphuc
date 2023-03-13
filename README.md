@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The reputation of a thousand years may be determined by the conduct of one hour.**
+**Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence.**
 
-Japanese Proverb
+Helen Keller
