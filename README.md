@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember the entrance to the sanctuary is inside you.**
+**Wherever you go, no matter what the weather, always bring your own sunshine.**
 
-Rumi
+Anthony J. D'Angelo
