@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No beauty shines brighter than that of a good heart.**
+**If you're going through hell, keep going.**
 
-Anonymous
+Winston Churchill
