@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You walk through life much easier with a smile on your face.**
+**In a battle between elephants, the ants get squashed.**
 
-Sweet Paul
+Thai Proverb
