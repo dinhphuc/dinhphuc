@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence.**
+**Remember the entrance to the sanctuary is inside you.**
 
-Helen Keller
+Rumi
