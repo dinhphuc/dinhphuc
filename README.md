@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The purpose of our lives is to be happy.**
+**There are two things a person should never be angry at: what they can help, and what they cannot.**
 
-Dalai Lama
+Plato
