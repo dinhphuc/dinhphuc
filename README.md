@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We know what we are, but know not what we may be.**
+**Remember that not getting what you want is sometimes a wonderful stroke of luck.**
 
-William Shakespeare
+Dalai Lama
