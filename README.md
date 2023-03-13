@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**People who make you feel better about yourself when you're sad are so important.**
+**Attitude will always define who we are in life.**
 
-Anonymous
+Mark A. Brennan
