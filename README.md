@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Deep doubts, deep wisdom; small doubts, small wisdom.**
+**When the sun rises, it rises for everyone.**
 
-Chinese Proverb
+Cuban Proverb
