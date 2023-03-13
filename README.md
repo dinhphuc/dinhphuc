@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure will never overtake me if my determination to succeed is strong enough.**
+**A beautiful thing is never perfect.**
 
-Og Mandino
+Egyptian Proverb
