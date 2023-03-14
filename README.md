@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be a voice not an echo.**
+**Laugh. It's free medicine you don't need insurance for.**
 
 Anonymous
