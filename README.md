@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Many of life's failures are people who did not realize how close they were to success when they gave up.**
+**Nothing is more beautiful than the smile that has struggled through the tears.**
 
-Thomas A. Edison
+Demi Lovato
