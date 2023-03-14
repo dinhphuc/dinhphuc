@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I compete only with myself, and I try to become a better human being. This is my goal.**
+**Don't regret the past, just learn from it.**
 
-Sri Chinmoy
+Ben Ipock
