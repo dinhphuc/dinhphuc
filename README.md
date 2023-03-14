@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever happens, just keep smiling and lose yourself in love.**
+**Enjoy the little things, for one day you may look back and realize they were the big things.**
 
-Rumi
+Robert Brault
