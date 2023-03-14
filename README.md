@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Change your thoughts and you change your world.**
+**A problem is a chance for you to do your best.**
 
-Norman Vincent Peale
+Duke Ellington
