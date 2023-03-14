@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Work hard in silence. Let success make the noise.**
+**There are so many beautiful reasons to be happy.**
 
 Anonymous
