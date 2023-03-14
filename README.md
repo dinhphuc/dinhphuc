@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Think gold and never settle for silver.**
+**Good friends are all that matter.**
 
-Jim Afremow
+Anonymous
