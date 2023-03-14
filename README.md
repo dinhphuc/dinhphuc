@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The supreme art of war is to subdue the enemy without fighting.**
+**You've got to find people who love like you do.**
 
-Sun Tzu
+Anonymous
