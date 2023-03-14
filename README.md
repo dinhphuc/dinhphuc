@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Laugh. It's free medicine you don't need insurance for.**
+**Work hard in silence. Let success make the noise.**
 
 Anonymous
