@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A problem is a chance for you to do your best.**
+**Life isn't about getting and having, it's about giving and being.**
 
-Duke Ellington
+Kevin Kruse
