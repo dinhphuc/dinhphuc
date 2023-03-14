@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever can happen at any time can happen today.**
+**Be a voice not an echo.**
 
-Seneca
+Anonymous
