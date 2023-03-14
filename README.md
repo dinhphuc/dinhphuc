@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Today you are you! That is truer than true! There is no one alive who is you-er than you!**
+**There is no greater miracle than our conscious efforts to become good human beings.**
 
-Dr. Seuss
+Sri Chinmoy
