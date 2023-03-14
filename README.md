@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The miracle isn't that I finished. The miracle is that I had the courage to start.**
+**Don't give up on yourself. You're worth it.**
 
-John Bingham
+Anonymous
