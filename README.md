@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Successful people have fear, successful people have doubts, and successful people have worries. They just don't let these feelings stop them.**
+**Don't give up on yourself. You're worth it.**
 
-T. Harv Eker
+Anonymous
