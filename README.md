@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no greater miracle than our conscious efforts to become good human beings.**
+**Because of your smile, you make life more beautiful.**
 
-Sri Chinmoy
+Thich Nhat Hanh
