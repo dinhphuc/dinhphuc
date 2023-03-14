@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You've got to find people who love like you do.**
+**Many of life's failures are people who did not realize how close they were to success when they gave up.**
 
-Anonymous
+Thomas A. Edison
