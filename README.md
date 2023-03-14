@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are so much more than what you are going through.**
+**Change yourself and fortune will change.**
 
-John Tew
+Portuguese Proverb
