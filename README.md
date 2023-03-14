@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't regret the past, just learn from it.**
+**A difficult time can be more readily endured if we retain the conviction that our existence holds a purpose - a cause to pursue, a person to love, a goal to achieve.**
 
-Ben Ipock
+John Maxwell
