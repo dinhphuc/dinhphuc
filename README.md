@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life isn't about getting and having, it's about giving and being.**
+**You're allowed to scream. You're allowed to cry. But don't give up.**
 
-Kevin Kruse
+Anonymous
