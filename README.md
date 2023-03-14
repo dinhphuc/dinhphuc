@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There are so many beautiful reasons to be happy.**
+**When you have exhausted all possibilities, remember this: you haven't.**
 
-Anonymous
+Thomas Edison
