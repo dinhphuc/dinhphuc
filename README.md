@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't give up on yourself. You're worth it.**
+**You are so much more than what you are going through.**
 
-Anonymous
+John Tew
