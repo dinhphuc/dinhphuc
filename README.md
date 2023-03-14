@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's lack of faith that makes people afraid of meeting challenges, and I believed in myself.**
+**Don't sail out farther than you can row back.**
 
-Muhammad Ali
+Danish Proverb
