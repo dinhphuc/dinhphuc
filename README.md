@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing is more beautiful than the smile that has struggled through the tears.**
+**It's lack of faith that makes people afraid of meeting challenges, and I believed in myself.**
 
-Demi Lovato
+Muhammad Ali
