@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You're allowed to scream. You're allowed to cry. But don't give up.**
+**You were born to win. But to be a winner, you must plan to win, prepare to win, and expect to win.**
 
-Anonymous
+Zig Ziglar
