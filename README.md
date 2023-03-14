@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't give up on yourself. You're worth it.**
+**I compete only with myself, and I try to become a better human being. This is my goal.**
 
-Anonymous
+Sri Chinmoy
