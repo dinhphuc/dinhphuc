@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Wherever you go, no matter what the weather, always bring your own sunshine.**
+**Whatever happens, just keep smiling and lose yourself in love.**
 
-Anthony J. D'Angelo
+Rumi
