@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of being happy is accepting where you are in life and making the most out of everyday.**
+**Do not dwell in the past, do not dream of the future, concentrate the mind on the present moment.**
 
-Anonymous
+Buddha
