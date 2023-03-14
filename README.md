@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You were born to win. But to be a winner, you must plan to win, prepare to win, and expect to win.**
+**The secret of being happy is accepting where you are in life and making the most out of everyday.**
 
-Zig Ziglar
+Anonymous
