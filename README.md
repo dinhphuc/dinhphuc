@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Good friends are all that matter.**
+**The miracle isn't that I finished. The miracle is that I had the courage to start.**
 
-Anonymous
+John Bingham
