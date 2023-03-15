@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Laugh. It's free medicine you don't need insurance for.**
+**I am thankful for all those difficult people in my life. They have shown me exactly who I do not want to be.**
 
 Anonymous
