@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not in the stars to hold our destiny but in ourselves.**
+**Never give up. Great things take time. Be patient.**
 
-William Shakespeare
+Anonymous
