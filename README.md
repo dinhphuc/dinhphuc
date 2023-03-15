@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Just when the caterpillar thought the world was ending, it turned into a butterfly.**
+**You don't go up to the top, you grow up to the top.**
 
-Anonymous
+John C. Maxwell
