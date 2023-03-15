@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't go up to the top, you grow up to the top.**
+**Pain is inevitable. Suffering is optional.**
 
-John C. Maxwell
+Anonymous
