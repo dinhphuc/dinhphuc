@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you find your why, you find a way to make it happen.**
+**Make the mind tougher by exposing it to adversity.**
 
-Eric Thomas
+Robert Greene
