@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Only those who risk going too far, can possibly find out how far one can go.**
+**Be helpful. When you see a person without a smile, give them yours.**
 
-T.S. Elliot
+Zig Ziglar
