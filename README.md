@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I didn't come this far to only come this far.**
+**When you find your why, you find a way to make it happen.**
 
-Anonymous
+Eric Thomas
