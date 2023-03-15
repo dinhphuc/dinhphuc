@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not bragging if you can back it up.**
+**The biggest adventure you can take is to live the life of your dreams.**
 
-Muhammed Ali
+Oprah Winfrey
