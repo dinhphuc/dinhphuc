@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up. Great things take time. Be patient.**
+**Good friends are all that matter.**
 
 Anonymous
