@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Just one smile, immensely increases the beauty, of the universe.**
+**The first place where self-esteem begins its journey is within us.**
 
-Sri Chinmoy
+Stephen Richards
