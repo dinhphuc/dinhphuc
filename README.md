@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep smiling, because life is a beautiful thing and there's so much to smile about.**
+**Better than a thousand days of diligent study is one day with a great teacher.**
 
-Marilyn Monroe
+Jim Afremow
