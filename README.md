@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You're allowed to scream. You're allowed to cry. But don't give up.**
+**Starting today, I need to forget what's gone. Appreciate what still remains and look forward to what's coming next.**
 
 Anonymous
