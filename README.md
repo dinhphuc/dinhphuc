@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**People want to do business with you because you help them get what they want. They don't do business with you to help you get what you want.**
+**How long are you going to wait before you demand the best for yourself?**
 
-Don Crowther
+Epictetus
