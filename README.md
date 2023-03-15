@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't ask what the world needs. Ask what makes you come alive and go do it. Because what the world needs is more people who have come alive.**
+**Just one smile, immensely increases the beauty, of the universe.**
 
-Howard Thurman
+Sri Chinmoy
