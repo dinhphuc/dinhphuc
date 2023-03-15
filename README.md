@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you only do what you can do, you will never be more than you are now.**
+**Only those who risk going too far, can possibly find out how far one can go.**
 
-Master Oogway
+T.S. Elliot
