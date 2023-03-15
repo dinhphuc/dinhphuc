@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Why worry? If you've done the very best you can, worrying won't make it any better.**
+**People want to do business with you because you help them get what they want. They don't do business with you to help you get what you want.**
 
-Walt Disney
+Don Crowther
