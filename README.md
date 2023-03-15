@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Make the most of yourself....for that is all there is of you.**
+**The only way to do great work is to love what you do.**
 
-Ralph Waldo Emerson
+Steve Jobs
