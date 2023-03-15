@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The critics only made me work harder.**
+**Keep smiling, because life is a beautiful thing and there's so much to smile about.**
 
-Muhammad Ali
+Marilyn Monroe
