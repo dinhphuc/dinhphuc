@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you want to succeed as bad as you want to breathe, you will be successful.**
+**Your life does not get better by chance, it gets better by change.**
 
-Eric Thomas
+Anonymous
