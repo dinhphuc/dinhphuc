@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Starting today, I need to forget what's gone. Appreciate what still remains and look forward to what's coming next.**
+**If you only do what you can do, you will never be more than you are now.**
 
-Anonymous
+Master Oogway
