@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The first duty of love is to listen.**
+**It's not bragging if you can back it up.**
 
-Paul Tillich
+Muhammed Ali
