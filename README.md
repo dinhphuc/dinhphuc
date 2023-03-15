@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The first place where self-esteem begins its journey is within us.**
+**It is not in the stars to hold our destiny but in ourselves.**
 
-Stephen Richards
+William Shakespeare
