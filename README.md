@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It is during our darkest moments that we must focus to see the light.**
+**Difficulty is what wakes up the genius.**
 
-Aristotle Onassis
+Nassim Nicholas Taleb
