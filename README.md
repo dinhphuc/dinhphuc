@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**How long are you going to wait before you demand the best for yourself?**
+**The critics only made me work harder.**
 
-Epictetus
+Muhammad Ali
