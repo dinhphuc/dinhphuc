@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be helpful. When you see a person without a smile, give them yours.**
+**Don't cry because it's over, smile because it happened.**
 
-Zig Ziglar
+Dr. Seuss
