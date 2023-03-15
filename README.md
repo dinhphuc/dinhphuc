@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life chips away at us all. Some play the victim. Some choose to be a survivor. And then there are those who choose to conquer.**
+**A house is made of bricks and beams. A home is made of hopes and dreams.**
 
 Anonymous
