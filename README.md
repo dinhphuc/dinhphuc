@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your life does not get better by chance, it gets better by change.**
+**You don't manifest dreams without taking chances.**
 
-Anonymous
+Stephen Richards
