@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot fail at being yourself.**
+**You're allowed to scream. You're allowed to cry. But don't give up.**
 
-Wayne Dyer
+Anonymous
