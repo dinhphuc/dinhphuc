@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The biggest adventure you can take is to live the life of your dreams.**
+**When you want to succeed as bad as you want to breathe, you will be successful.**
 
-Oprah Winfrey
+Eric Thomas
