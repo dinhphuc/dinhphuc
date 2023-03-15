@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Difficulty is what wakes up the genius.**
+**Make the most of yourself....for that is all there is of you.**
 
-Nassim Nicholas Taleb
+Ralph Waldo Emerson
