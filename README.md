@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A house is made of bricks and beams. A home is made of hopes and dreams.**
+**Laugh. It's free medicine you don't need insurance for.**
 
 Anonymous
