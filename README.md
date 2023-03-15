@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't cry because it's over, smile because it happened.**
+**There is a difference between giving up and knowing when you've had enough.**
 
-Dr. Seuss
+Anonymous
