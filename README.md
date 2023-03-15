@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The only way to do great work is to love what you do.**
+**The first duty of love is to listen.**
 
-Steve Jobs
+Paul Tillich
