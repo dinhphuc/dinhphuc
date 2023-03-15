@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Pain is inevitable. Suffering is optional.**
+**You cannot fail at being yourself.**
 
-Anonymous
+Wayne Dyer
