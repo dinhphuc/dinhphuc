@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't manifest dreams without taking chances.**
+**I didn't come this far to only come this far.**
 
-Stephen Richards
+Anonymous
