@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There is a difference between giving up and knowing when you've had enough.**
+**Why worry? If you've done the very best you can, worrying won't make it any better.**
 
-Anonymous
+Walt Disney
