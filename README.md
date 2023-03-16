@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When it gets difficult is often right before you succeed.**
+**It's important to feel good about yourself. When you feel good about yourself, nothing negative can touch you.**
 
-Jeffrey Walker
+Anonymous
