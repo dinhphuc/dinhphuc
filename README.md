@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Some people dream of success... while others wake up and work hard at it.**
+**You may encounter many defeats, but you must not be defeated.**
 
-Anonymous
+Maya Angelou
