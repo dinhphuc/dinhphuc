@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Where love reigns, the impossible may be attained.**
+**You have to fight through some bad days to earn the best days of your life.**
 
-Indian Proverb
+Anonymous
