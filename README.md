@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You have to fight through some bad days to earn the best days of your life.**
+**I am happy because I choose to be happy no matter what the situation is.**
 
 Anonymous
