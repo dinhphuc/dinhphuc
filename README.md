@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is no accident. It is hard work, perseverance, learning, studying, sacrifice and most of all, love of what you are doing or learning to do.**
+**Hustle until your haters ask if you are hiring.**
 
-Pele
+Anonymous
