@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Hustle until your haters ask if you are hiring.**
+**Life's most persistent and urgent question is, 'What are you doing for others?'**
 
-Anonymous
+Martin Luther King
