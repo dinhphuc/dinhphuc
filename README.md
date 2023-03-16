@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A smile is the beauty of the soul.**
+**Deep doubts, deep wisdom; small doubts, small wisdom.**
 
-Lailah Gifty
+Chinese Proverb
