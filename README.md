@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Our problems don't stem from our ignorance so much as our disobedience of that which we know to be right.**
+**Remember that not getting what you want is sometimes a wonderful stroke of luck.**
 
-Stephen Covey
+Dalai Lama
