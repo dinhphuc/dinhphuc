@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Decide what matters most to you and do it.**
+**Don't count the days, make the days count.**
 
-Anonymous
+Muhammad Ali
