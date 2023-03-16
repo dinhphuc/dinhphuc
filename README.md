@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Opportunities to find deeper powers within ourselves come when life seems most challenging.**
+**It is not the strongest of the species that survive, nor the most intelligent, but the one most responsive to change.**
 
-Joseph Campbell
+Charles Darwin
