@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up. Keep going.**
+**Some people dream of success... while others wake up and work hard at it.**
 
 Anonymous
