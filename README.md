@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The way I see it, if you want the rainbow, you gotta put up with the rain.**
+**Our problems don't stem from our ignorance so much as our disobedience of that which we know to be right.**
 
-Dolly Parton
+Stephen Covey
