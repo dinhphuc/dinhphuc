@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember that not getting what you want is sometimes a wonderful stroke of luck.**
+**Attachment leads to jealously. The shadow of greed, that is.**
 
-Dalai Lama
+Yoda
