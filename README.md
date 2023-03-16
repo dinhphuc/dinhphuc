@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You may encounter many defeats, but you must not be defeated.**
+**Opportunities to find deeper powers within ourselves come when life seems most challenging.**
 
-Maya Angelou
+Joseph Campbell
