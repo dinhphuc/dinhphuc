@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Deep doubts, deep wisdom; small doubts, small wisdom.**
+**You will never always be motivated. You have to learn to be disciplined.**
 
-Chinese Proverb
+Anonymous
