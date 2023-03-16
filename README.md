@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It is better to fail in originality than to succeed in imitation.**
+**Be yourself. An original is so much better than a copy.**
 
-Herman Melville
+Anonymous
