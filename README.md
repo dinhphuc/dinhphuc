@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**How wonderful it is that nobody need wait a single moment before starting to improve the world.**
+**Yesterday is history, tomorrow is a mystery, today is a gift of God, which is why we call it the present.**
 
-Anne Frank
+Bill Keane
