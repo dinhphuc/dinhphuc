@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**One conquers the world by conquering himself.**
+**A smile is the beauty of the soul.**
 
-Zeno of Citium
+Lailah Gifty
