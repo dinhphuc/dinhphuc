@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Train your mind to see the positive in any situation and keep going.**
+**Words should be weighed, not counted.**
 
-Anonymous
+Yiddish Proverb
