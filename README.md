@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Attachment leads to jealously. The shadow of greed, that is.**
+**I didn't fail the test. I just found 100 ways to do it wrong.**
 
-Yoda
+Benjamin Franklin
