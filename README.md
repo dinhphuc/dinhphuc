@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A person who never made a mistake never tried anything new.**
+**Where love reigns, the impossible may be attained.**
 
-Albert Einstein
+Indian Proverb
