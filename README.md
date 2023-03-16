@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life's most persistent and urgent question is, 'What are you doing for others?'**
+**Successful people build each other up. They inspire, motivate, and push each other. Unsuccessful people just hate, blame, and complain.**
 
-Martin Luther King
+Anonymous
