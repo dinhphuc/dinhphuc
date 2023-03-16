@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Better than a thousand days of diligent study is one day with a great teacher.**
+**The way I see it, if you want the rainbow, you gotta put up with the rain.**
 
-Jim Afremow
+Dolly Parton
