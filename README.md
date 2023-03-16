@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Good things come to those who believe. Better things come to those who are patient. The best things come to those who never give up.**
+**It is better to fail in originality than to succeed in imitation.**
 
-Anonymous
+Herman Melville
