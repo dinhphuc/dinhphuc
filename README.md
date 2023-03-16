@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's important to feel good about yourself. When you feel good about yourself, nothing negative can touch you.**
+**It is better to fail in originality than to succeed in imitation.**
 
-Anonymous
+Herman Melville
