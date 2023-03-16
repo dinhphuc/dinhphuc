@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't count the days, make the days count.**
+**Train your mind to see the positive in any situation and keep going.**
 
-Muhammad Ali
+Anonymous
