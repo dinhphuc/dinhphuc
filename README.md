@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I didn't fail the test. I just found 100 ways to do it wrong.**
+**A person who never made a mistake never tried anything new.**
 
-Benjamin Franklin
+Albert Einstein
