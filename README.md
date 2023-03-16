@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Words should be weighed, not counted.**
+**Never give up. Keep going.**
 
-Yiddish Proverb
+Anonymous
