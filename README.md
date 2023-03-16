@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You will never always be motivated. You have to learn to be disciplined.**
+**Decide what matters most to you and do it.**
 
 Anonymous
