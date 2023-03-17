@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**As long as we have hope, we have direction, the energy to move, and the map to move by.**
+**If you have only one smile in you, give it to the people you love.**
 
-Lao Tzu
+Maya Angelou
