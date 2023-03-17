@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The future belongs to those who believe in the beauty of their dreams.**
+**Live your life for you.**
 
-Franklin D. Roosevelt
+Anonymous
