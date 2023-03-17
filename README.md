@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Friends show their love in times of trouble, not in happiness.**
+**Before telling secrets on the road, look in the bushes.**
 
-Euripides
+Chinese Proverb
