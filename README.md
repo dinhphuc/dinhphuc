@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Being entirely honest with oneself is a good exercise.**
+**The only person you are destined to become is the person you decide to be.**
 
-Sigmund Freud
+Ralph Waldo Emerson
