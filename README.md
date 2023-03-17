@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing is more beautiful than the smile that has struggled through the tears.**
+**We either make ourselves miserable or we make ourselves strong. The amount of work is the same.**
 
-Demi Lovato
+Carlos Costaneda
