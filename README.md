@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Winning is fun, but those moments that you can touch someone's life in a very positive way are better.**
+**Move fast and break things. If you are not breaking things, you are not moving fast enough.**
 
-Tim Howard
+Mark Zuckerberg
