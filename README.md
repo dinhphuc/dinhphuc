@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Start where you are. Use what you have. Do what you can.**
+**The future belongs to those who believe in the beauty of their dreams.**
 
-Arthur Ashe
+Franklin D. Roosevelt
