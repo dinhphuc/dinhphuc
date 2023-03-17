@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When things are bad, remember: it won't always be this way. Take one day at a time.**
+**I am thankful for all those difficult people in my life. They have shown me exactly who I do not want to be.**
 
 Anonymous
