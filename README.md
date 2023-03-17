@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The only person you are destined to become is the person you decide to be.**
+**Believe you can and you're halfway there.**
 
-Ralph Waldo Emerson
+Theodore Roosevelt
