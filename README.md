@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There is only one corner of the universe you can be certain of improving, and that's your own self.**
+**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
 
-Aldous Huxley
+Anonymous
