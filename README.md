@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you decide to do, make sure it makes you happy.**
+**Winning is fun, but those moments that you can touch someone's life in a very positive way are better.**
 
-Anonymous
+Tim Howard
