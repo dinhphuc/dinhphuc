@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is the sum of small efforts repeated day-in and day-out.**
+**Nothing is more beautiful than the smile that has struggled through the tears.**
 
-Robert Collier
+Demi Lovato
