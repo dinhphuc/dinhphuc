@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you have only one smile in you, give it to the people you love.**
+**Smiling doesn't necessarily mean you're happy. Sometimes it just means you're strong.**
 
-Maya Angelou
+Anonymous
