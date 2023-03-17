@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe and act as if it were impossible to fail.**
+**Nothing is more beautiful than the smile that has struggled through the tears.**
 
-Charles Kettering
+Demi Lovato
