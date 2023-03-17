@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe you can and you're halfway there.**
+**Strength does not come from physical capacity. It comes from an indomitable will.**
 
-Theodore Roosevelt
+Mahatma Gandhi
