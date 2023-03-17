@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not so much that I began to run, but that I continued.**
+**One day you will wake up and there won't be any time to do the things you've always wanted to do. Do it now.**
 
-Hal Higdon
+Paulo Coelho
