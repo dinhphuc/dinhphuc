@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Change yourself and fortune will change.**
+**Being entirely honest with oneself is a good exercise.**
 
-Portuguese Proverb
+Sigmund Freud
