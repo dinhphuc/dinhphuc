@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The supreme art of war is to subdue the enemy without fighting.**
+**When things are bad, remember: it won't always be this way. Take one day at a time.**
 
-Sun Tzu
+Anonymous
