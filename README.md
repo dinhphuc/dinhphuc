@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Smiling doesn't necessarily mean you're happy. Sometimes it just means you're strong.**
+**Change yourself and fortune will change.**
 
-Anonymous
+Portuguese Proverb
