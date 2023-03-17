@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A little progress each day adds up to big results.**
+**Believe and act as if it were impossible to fail.**
 
-Satya Nani
+Charles Kettering
