@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not the strongest of the species that survive, nor the most intelligent, but the one most responsive to change.**
+**Start where you are. Use what you have. Do what you can.**
 
-Charles Darwin
+Arthur Ashe
