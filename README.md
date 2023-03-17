@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I am not a product of my circumstances. I am a product of my decisions.**
+**The supreme art of war is to subdue the enemy without fighting.**
 
-Stephen Covey
+Sun Tzu
