@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you don't talk, there's a lot of stuff that ends up not getting said.**
+**Confidence is the ability to feel beautiful, without needing someone to tell you.**
 
-Catherine Gilbert Murdock
+Anonymous
