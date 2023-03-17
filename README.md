@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Before telling secrets on the road, look in the bushes.**
+**Shared joy is a double joy; shared sorrow is half a sorrow.**
 
-Chinese Proverb
+Swedish Proverb
