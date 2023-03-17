@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We either make ourselves miserable or we make ourselves strong. The amount of work is the same.**
+**It's not so much that I began to run, but that I continued.**
 
-Carlos Costaneda
+Hal Higdon
