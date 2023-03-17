@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
+**When you don't talk, there's a lot of stuff that ends up not getting said.**
 
-Anonymous
+Catherine Gilbert Murdock
