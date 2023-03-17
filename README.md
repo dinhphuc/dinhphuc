@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength does not come from physical capacity. It comes from an indomitable will.**
+**Don't be afraid to give up the good to go for the great.**
 
-Mahatma Gandhi
+John D. Rockefeller
