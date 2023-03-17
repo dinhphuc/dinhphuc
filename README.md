@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing is impossible, the word itself says "I'm possible"!**
+**As long as we have hope, we have direction, the energy to move, and the map to move by.**
 
-Audrey Hepburn
+Lao Tzu
