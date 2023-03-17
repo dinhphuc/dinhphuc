@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Shared joy is a double joy; shared sorrow is half a sorrow.**
+**Once you replace negative thoughts with positive ones, you'll start having positive results.**
 
-Swedish Proverb
+Willie Nelson
