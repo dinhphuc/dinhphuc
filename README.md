@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I am thankful for all those difficult people in my life. They have shown me exactly who I do not want to be.**
+**Everything you've ever wanted is on the other side of fear.**
 
-Anonymous
+George Addair
