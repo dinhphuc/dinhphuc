@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Move fast and break things. If you are not breaking things, you are not moving fast enough.**
+**Failure is simply the opportunity to begin again. Except this time more intelligently.**
 
-Mark Zuckerberg
+Henry Ford
