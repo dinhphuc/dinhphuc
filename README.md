@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Once you replace negative thoughts with positive ones, you'll start having positive results.**
+**Whatever you decide to do, make sure it makes you happy.**
 
-Willie Nelson
+Anonymous
