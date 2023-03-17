@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything you've ever wanted is on the other side of fear.**
+**A little progress each day adds up to big results.**
 
-George Addair
+Satya Nani
