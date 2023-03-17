@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be afraid to give up the good to go for the great.**
+**Believe and act as if it were impossible to fail.**
 
-John D. Rockefeller
+Charles Kettering
