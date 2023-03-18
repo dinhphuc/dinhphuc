@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A secret to happiness is letting every situatiuon be what it is instead of what you think it should be.**
+**Nurture your mind with great thoughts, for you will never go any higher than you think.**
 
-Anonymous
+Benjamin Disraeli
