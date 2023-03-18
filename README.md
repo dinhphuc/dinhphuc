@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Fear is temporary. Regret is forever.**
+**The starting point of all achievement is desire.**
 
-Anonymous
+Napoleon Hill
