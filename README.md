@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is when what you think, what you say, and what you do are in harmony.**
+**You cannot prevent the birds of sadness from passing over your head, but you can prevent their making a nest in your hair.**
 
-Mahatma Gandhi
+Chinese Proverb
