@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Wanting to be someone else is a waste of the person you are.**
+**Happiness is when what you think, what you say, and what you do are in harmony.**
 
-Marilyn Monroe
+Mahatma Gandhi
