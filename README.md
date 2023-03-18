@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We can't be brave without fear.**
+**One conquers the world by conquering himself.**
 
-Muhammad Ali
+Zeno of Citium
