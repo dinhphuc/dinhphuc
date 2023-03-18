@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When it rains look for rainbows.**
+**What you see in yourself is what you see in the world.**
 
-Oscar Wilde
+Afghan Proverb
