@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Wanting to be someone else is a waste of the person you are.**
+**When obstacles arise, you change your direction to reach your goal, you do not change your decision to get there.**
 
-Marilyn Monroe
+Zig Ziglar
