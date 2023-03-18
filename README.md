@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**To handle yourself, use your head; to handle others, use your heart.**
+**Fear is temporary. Regret is forever.**
 
-Eleanor Roosevelt
+Anonymous
