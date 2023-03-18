@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Love who you are, embrace who you are. Love yourself.**
+**A truly rich man is one whose children run into his arms when his hands are empty.**
 
-Lilly Singh
+Unknown
