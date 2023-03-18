@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**What you see in yourself is what you see in the world.**
+**You matter.**
 
-Afghan Proverb
+Anonymous
