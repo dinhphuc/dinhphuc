@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The starting point of all achievement is desire.**
+**If you want to lift yourself up, lift up someone else.**
 
-Napoleon Hill
+Booker T. Washington
