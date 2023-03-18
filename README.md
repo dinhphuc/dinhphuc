@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nurture your mind with great thoughts, for you will never go any higher than you think.**
+**It matters not what someone is born, but what they grow to be.**
 
-Benjamin Disraeli
+Master Oogway
