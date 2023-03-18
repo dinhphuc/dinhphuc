@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No man can paddle two canoes at the same time.**
+**To handle yourself, use your head; to handle others, use your heart.**
 
-Bantu Proverb
+Eleanor Roosevelt
