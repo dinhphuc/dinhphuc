@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There will be obstacles. There will be doubters. There will be mistakes. But with hard work, there are no limits.**
+**The struggle you're in today is developing the strength you need tomorrow.**
 
-Anonymous
+Robert Tew
