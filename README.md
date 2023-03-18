@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No one is perfect - that's why pencils have erasers.**
+**No man can paddle two canoes at the same time.**
 
-Wolfgang Riebe
+Bantu Proverb
