@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You miss 100% of the shots you don't take.**
+**Take it all one day at a time and enjoy the journey.**
 
-Wayne Gretzky
+Kristi Bartlett
