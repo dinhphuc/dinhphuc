@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You matter.**
+**We can't be brave without fear.**
 
-Anonymous
+Muhammad Ali
