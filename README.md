@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Someone who is busier than you is running right now.**
+**Wanting to be someone else is a waste of the person you are.**
 
-Nike
+Marilyn Monroe
