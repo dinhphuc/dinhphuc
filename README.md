@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Take it all one day at a time and enjoy the journey.**
+**A person who never made a mistake never tried anything new.**
 
-Kristi Bartlett
+Albert Einstein
