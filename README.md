@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A person who never made a mistake never tried anything new.**
+**Be patient, good things are coming your way.**
 
-Albert Einstein
+Anonymous
