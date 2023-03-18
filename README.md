@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It matters not what someone is born, but what they grow to be.**
+**No one is perfect - that's why pencils have erasers.**
 
-Master Oogway
+Wolfgang Riebe
