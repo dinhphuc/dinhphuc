@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**What you're thinking is what you're becoming.**
+**When it rains look for rainbows.**
 
-Muhammad Ali
+Oscar Wilde
