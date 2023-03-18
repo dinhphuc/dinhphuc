@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence is the ability to feel beautiful, without needing someone to tell you.**
+**In matters of style, swim with the current; in matters of principle, stand like a rock.**
 
-Anonymous
+Thomas Jefferson
