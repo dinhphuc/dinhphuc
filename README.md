@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You have a choice. You can throw in the towel, or you can use it to wipe the sweat off of your face.**
+**There will be obstacles. There will be doubters. There will be mistakes. But with hard work, there are no limits.**
 
-Gatorade
+Anonymous
