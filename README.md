@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Many of the truths that we cling to depend on our point of view.**
+**Love who you are, embrace who you are. Love yourself.**
 
-Yoda
+Lilly Singh
