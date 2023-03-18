@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When obstacles arise, you change your direction to reach your goal, you do not change your decision to get there.**
+**Be aware as often as possible of the great transformation process you are going through.**
 
-Zig Ziglar
+Anonymous
