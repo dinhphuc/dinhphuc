@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be patient, good things are coming your way.**
+**Wanting to be someone else is a waste of the person you are.**
 
-Anonymous
+Marilyn Monroe
