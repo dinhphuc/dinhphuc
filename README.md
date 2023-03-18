@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A truly rich man is one whose children run into his arms when his hands are empty.**
+**You miss 100% of the shots you don't take.**
 
-Unknown
+Wayne Gretzky
