@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The struggle you're in today is developing the strength you need tomorrow.**
+**Many of the truths that we cling to depend on our point of view.**
 
-Robert Tew
+Yoda
