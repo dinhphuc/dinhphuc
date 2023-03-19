@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Good things come to those who believe. Better things come to those who are patient. The best things come to those who never give up.**
+**Our greatest weakness lies in giving up. The most certain way to succeed is to just try one more time.**
 
-Anonymous
+Thomas Edison
