@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to lift yourself up, lift up someone else.**
+**The best feeling of happiness is when you're happy because you've made somebody else happy.**
 
-Booker T. Washington
+Anonymous
