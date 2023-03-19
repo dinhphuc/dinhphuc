@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Action is the foundational key to all success.**
+**Everyone is breakable, but not everyone is aware that it's a choice to stay broken.**
 
-Pablo Picasso
+Stanley Behrman
