@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Words should be weighed, not counted.**
+**You have to fight through some bad days to earn the best days of your life.**
 
-Yiddish Proverb
+Anonymous
