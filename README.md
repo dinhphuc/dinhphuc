@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Every accomplishment begins with the decision to try.**
+**Hustle until your haters ask if you are hiring.**
 
 Anonymous
