@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Work on being in love with the person in the mirror who has been through so much but is still standing.**
+**Good things come to those who believe. Better things come to those who are patient. The best things come to those who never give up.**
 
 Anonymous
