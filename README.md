@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The best feeling of happiness is when you're happy because you've made somebody else happy.**
+**Love who you are, embrace who you are. Love yourself.**
 
-Anonymous
+Lilly Singh
