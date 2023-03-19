@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you have exhausted all possibilities, remember this: you haven't.**
+**The sweat. The time. The devotion. It pays off.**
 
-Thomas Edison
+Anonymous
