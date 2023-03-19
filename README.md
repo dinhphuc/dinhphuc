@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of success is to do the common thing uncommonly well.**
+**Don't wait around for other people to be happy for you. Any happiness you get, you've got to make yourself.**
 
-John D. Rockefeller Jr
+Alice Walker
