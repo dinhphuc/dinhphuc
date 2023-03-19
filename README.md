@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Make the mind tougher by exposing it to adversity.**
+**The greatest glory in living lies not in never falling, but in rising every time we fall.**
 
-Robert Greene
+Nelson Mandela
