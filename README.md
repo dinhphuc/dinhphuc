@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**One often meets his destiny on the road he takes to avoid it.**
+**The secret of success is to do the common thing uncommonly well.**
 
-Master Oogway
+John D. Rockefeller Jr
