@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life without love is like a tree without blossoms or fruit.**
+**Make the mind tougher by exposing it to adversity.**
 
-Khalil Gibran
+Robert Greene
