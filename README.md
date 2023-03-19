@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest weakness lies in giving up. The most certain way to succeed is to just try one more time.**
+**Because of your smile, you make life more beautiful.**
 
-Thomas Edison
+Thich Nhat Hanh
