@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Because of your smile, you make life more beautiful.**
+**Action is the foundational key to all success.**
 
-Thich Nhat Hanh
+Pablo Picasso
