@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When we point to obstacles we inhibit progress. When we offer solutions we advance.**
+**Every accomplishment begins with the decision to try.**
 
-Simon Sinek
+Anonymous
