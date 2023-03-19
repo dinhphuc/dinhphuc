@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's lack of faith that makes people afraid of meeting challenges, and I believed in myself.**
+**Always remember you are braver than you believe, stronger than you seem, and smarter than you think.**
 
-Muhammad Ali
+Christopher Robin
