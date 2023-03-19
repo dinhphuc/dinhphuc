@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Make the mind tougher by exposing it to adversity.**
+**If you're going through hell, keep going.**
 
-Robert Greene
+Winston Churchill
