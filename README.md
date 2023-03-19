@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be so good they can't ignore you.**
+**Always dream and shoot higher than you know you can do. Do not bother just to be better than your contemporaries or predecessors. Try to be better than yourself.**
 
-Steve Martin
+William Faulkner
