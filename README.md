@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Hustle until your haters ask if you are hiring.**
+**Being entirely honest with oneself is a good exercise.**
 
-Anonymous
+Sigmund Freud
