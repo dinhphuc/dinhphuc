@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**One often meets his destiny on the road he takes to avoid it.**
+**Nothing builds self-esteem and self-confidence like accomplishment.**
 
-Master Oogway
+Thomas Carlyle
