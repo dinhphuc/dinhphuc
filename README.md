@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The sweat. The time. The devotion. It pays off.**
+**I alone cannot change the world, but I can cast a stone across the water to create many ripples.**
 
-Anonymous
+Mother Teresa
