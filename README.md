@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Everyone is breakable, but not everyone is aware that it's a choice to stay broken.**
+**Life without love is like a tree without blossoms or fruit.**
 
-Stanley Behrman
+Khalil Gibran
