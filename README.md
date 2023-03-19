@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**This a wonderful day. I've never seen this one before.**
+**If you're going through hell, keep going.**
 
-Maya Angelou
+Winston Churchill
