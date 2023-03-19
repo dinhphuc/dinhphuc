@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You have to fight through some bad days to earn the best days of your life.**
+**This a wonderful day. I've never seen this one before.**
 
-Anonymous
+Maya Angelou
