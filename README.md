@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep your face always toward the sunshine - and shadows will fall behind you.**
+**Work on being in love with the person in the mirror who has been through so much but is still standing.**
 
-Walt Whitman
+Anonymous
