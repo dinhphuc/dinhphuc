@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I alone cannot change the world, but I can cast a stone across the water to create many ripples.**
+**One often meets his destiny on the road he takes to avoid it.**
 
-Mother Teresa
+Master Oogway
