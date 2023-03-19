@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest glory in living lies not in never falling, but in rising every time we fall.**
+**When we point to obstacles we inhibit progress. When we offer solutions we advance.**
 
-Nelson Mandela
+Simon Sinek
