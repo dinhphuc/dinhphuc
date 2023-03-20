@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Some people dream of success... while others wake up and work hard at it.**
+**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
 
 Anonymous
