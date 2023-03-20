@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Always remember you are braver than you believe, stronger than you seem, and smarter than you think.**
+**Don't dream of winning, train for it!**
 
-Christopher Robin
+Mo Farah
