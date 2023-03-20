@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**People are just as happy as they make up their minds to be.**
+**Simple to open a shop; another thing to keep it open.**
 
-Abraham Lincoln
+Chinese Proverb
