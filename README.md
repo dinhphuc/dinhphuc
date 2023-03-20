@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Some people dream of success... while others wake up and work hard at it.**
+**The purpose of our lives is to be happy.**
 
-Anonymous
+Dalai Lama
