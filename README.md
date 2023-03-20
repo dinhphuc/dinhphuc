@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Positive thinking will let you do everything better than negative thinking will.**
+**When I hear somebody sigh, 'Life is hard,' I am always tempted to ask, 'Compared to what?'**
 
-Zig Ziglar
+Sydney Harris
