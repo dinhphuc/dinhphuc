@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Words should be weighed, not counted.**
+**The very best thing you can do for the whole world is to make the best of yourself.**
 
-Yiddish Proverb
+Anonymous
