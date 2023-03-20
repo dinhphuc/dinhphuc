@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't dream of winning, train for it!**
+**When you depersonalize abrasive behavior and see it as a call for help you become a catalyst for the best kind of change.**
 
-Mo Farah
+Marilyn Suttle
