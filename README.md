@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can dream it, then you can achieve it.**
+**It's not whether you get knocked down. It's whether you get back up.**
 
-Zig Ziglar
+Vince Lombardi
