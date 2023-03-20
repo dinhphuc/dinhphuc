@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't have to control your thoughts; you just have to stop letting them control you.**
+**Life is a magical ride. Enjoy every moment.**
 
-Dan Millman
+Anonymous
