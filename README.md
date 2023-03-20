@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You alone are enough. You have nothing to prove to anybody.**
+**Words should be weighed, not counted.**
 
-Maya Angelou
+Yiddish Proverb
