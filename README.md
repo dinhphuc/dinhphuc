@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**To be willing is only half the task.**
+**Everything will work out in the end. You don't need to know how. You just have to trust that it will.**
 
-Armenian Proverb
+Anonymous
