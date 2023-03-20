@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to change the world, start with yourself.**
+**Are your excuses more important than your dreams?**
 
-Mahatma Gandhi
+Anonymous
