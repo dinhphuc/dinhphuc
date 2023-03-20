@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't love what you do, you won't do it with much conviction or passion.**
+**Let your unique awesomeness and positive energy inspire confidence in others.**
 
-Mia Hamm
+Anonymous
