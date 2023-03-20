@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is a magical ride. Enjoy every moment.**
+**If you don't love what you do, you won't do it with much conviction or passion.**
 
-Anonymous
+Mia Hamm
