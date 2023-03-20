@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is too short to spend it at war with yourself.**
+**People are just as happy as they make up their minds to be.**
 
-Anonymous
+Abraham Lincoln
