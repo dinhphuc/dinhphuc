@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A successful man is one who can lay a firm foundation with the bricks others have thrown at him.**
+**Be not afraid of life. Believe that life is worth living, and your belief will help create the fact.**
 
-David Brinkley
+William James
