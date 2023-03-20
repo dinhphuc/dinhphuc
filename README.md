@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be not afraid of life. Believe that life is worth living, and your belief will help create the fact.**
+**You don't have to control your thoughts; you just have to stop letting them control you.**
 
-William James
+Dan Millman
