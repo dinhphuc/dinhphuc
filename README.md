@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything will work out in the end. You don't need to know how. You just have to trust that it will.**
+**Life is not a problem to be solved, but a reality to be experienced.**
 
-Anonymous
+Soren Kierkegaard
