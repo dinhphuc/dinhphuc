@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest teacher, failure is.**
+**Attitude is everything. New day, new strength, new thoughts.**
 
-Yoda
+Anonymous
