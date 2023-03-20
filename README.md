@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You came into the world to do something; So... do something!**
+**My heart is always open to love.**
 
-Johnnie Dent Jr
+Anonymous
