@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The very best thing you can do for the whole world is to make the best of yourself.**
+**One conquers the world by conquering himself.**
 
-Anonymous
+Zeno of Citium
