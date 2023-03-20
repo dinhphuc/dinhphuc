@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**My heart is always open to love.**
+**The greatest teacher, failure is.**
 
-Anonymous
+Yoda
