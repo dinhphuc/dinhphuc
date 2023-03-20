@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**May the Force be with you.**
+**You came into the world to do something; So... do something!**
 
-Yoda
+Johnnie Dent Jr
