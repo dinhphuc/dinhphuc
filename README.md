@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not whether you get knocked down. It's whether you get back up.**
+**A successful man is one who can lay a firm foundation with the bricks others have thrown at him.**
 
-Vince Lombardi
+David Brinkley
