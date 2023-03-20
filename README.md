@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The beginning is the most important part of the work.**
+**Some people dream of success... while others wake up and work hard at it.**
 
-Plato
+Anonymous
