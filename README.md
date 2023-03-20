@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between ordinary and extraordinary is that little extra.**
+**If you're going through hell, keep going.**
 
-Jimmy Johnson
+Winston Churchill
