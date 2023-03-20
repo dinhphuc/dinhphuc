@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Are your excuses more important than your dreams?**
+**May the Force be with you.**
 
-Anonymous
+Yoda
