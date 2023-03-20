@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The purpose of our lives is to be happy.**
+**Surround yourself with people who get you.**
 
-Dalai Lama
+Anonymous
