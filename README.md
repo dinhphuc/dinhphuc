@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When I hear somebody sigh, 'Life is hard,' I am always tempted to ask, 'Compared to what?'**
+**The beginning is the most important part of the work.**
 
-Sydney Harris
+Plato
