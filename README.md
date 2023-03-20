@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**One conquers the world by conquering himself.**
+**To be willing is only half the task.**
 
-Zeno of Citium
+Armenian Proverb
