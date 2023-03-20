@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're going through hell, keep going.**
+**Are your excuses more important than your dreams?**
 
-Winston Churchill
+Anonymous
