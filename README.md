@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Simple to open a shop; another thing to keep it open.**
+**You are wonderfully made.**
 
-Chinese Proverb
+Anonymous
