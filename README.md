@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your problem isn't the problem, it's your attitude about the problem.**
+**Hard times don't create heroes. It is during the hard times when the 'hero' within us is revealed.**
 
-Ann Brashares
+Bob Riley
