@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We last longer if we compete against ourselves for the good of others instead of competing against others for the good of ourselves.**
+**Often it isn't the mountains ahead that wear you out, it's the little pebble in your shoe.**
 
-Simon Sinek
+Muhammad Ali
