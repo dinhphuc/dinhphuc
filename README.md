@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Often it isn't the mountains ahead that wear you out, it's the little pebble in your shoe.**
+**Love who you are, embrace who you are. Love yourself.**
 
-Muhammad Ali
+Lilly Singh
