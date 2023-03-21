@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's lack of faith that makes people afraid of meeting challenges, and I believed in myself.**
+**Spend more of your time on what gives you energy and less of your time on what takes it away.**
 
-Muhammad Ali
+Anonymous
