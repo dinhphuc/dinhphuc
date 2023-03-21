@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever the mind can conceive and believe, it can achieve.**
+**If it doesn't challenge you, it won't change you.**
 
-Napoleon Hill
+Anonymous
