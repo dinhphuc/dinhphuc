@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The hardest thing to find in life is happiness - money is only hard to find because it gets wasted trying to find happiness.**
+**With virtue, you can't be completely poor; without it, you can't be truly rich.**
 
-Unknown
+Chinese Proverb
