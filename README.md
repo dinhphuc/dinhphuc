@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't fall, how are you going to know what getting up feels like?**
+**The good life is a process, not a state of being. It is a direction, not a destination.**
 
-Stephen Curry
+Carl Rogers
