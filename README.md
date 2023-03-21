@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Laugh. It's free medicine you don't need insurance for.**
+**When the 'why' is clear, the 'how' is easy.**
 
 Anonymous
