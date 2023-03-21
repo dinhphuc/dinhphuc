@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Winning is fun, but those moments that you can touch someone's life in a very positive way are better.**
+**When it rains look for rainbows.**
 
-Tim Howard
+Oscar Wilde
