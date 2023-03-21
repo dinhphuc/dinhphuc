@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is not a problem to be solved, but a reality to be experienced.**
+**The more positive thoughts you have, the better you feel, which causes you to have more positive thoughts, then you feel even better.**
 
-Soren Kierkegaard
+James Borg
