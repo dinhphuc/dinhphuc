@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're offered a seat on a rocket ship, don't ask what seat! Just get on.**
+**Pain is temporary. Quitting lasts forever.**
 
-Sheryl Sandberg
+Lance Armstrong
