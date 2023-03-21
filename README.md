@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When it rains look for rainbows.**
+**Whatever you are, be a good one.**
 
-Oscar Wilde
+Abraham Lincoln
