@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Pain is temporary. Quitting lasts forever.**
+**Your problem isn't the problem, it's your attitude about the problem.**
 
-Lance Armstrong
+Ann Brashares
