@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to lift yourself up, lift up someone else.**
+**Spend more of your time on what gives you energy and less of your time on what takes it away.**
 
-Booker T. Washington
+Anonymous
