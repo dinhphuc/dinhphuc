@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you are, be a good one.**
+**Laugh. It's free medicine you don't need insurance for.**
 
-Abraham Lincoln
+Anonymous
