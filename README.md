@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's easy to stand in the crowd but it takes courage to stand alone.**
+**Never let the fear of striking out keep you from playing the game.**
 
-Mahatma Gandhi
+Babe Ruth
