@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be afraid of your fears. They're not there to scare you. They're there to let you know that something is worth it.**
+**If you look at what you have in life, you'll always have more. If you look at what you don't have in life, you'll never have enough.**
 
-C. JoyBell C
+Oprah Winfrey
