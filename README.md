@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you look the right way, you can see that the whole world is a garden.**
+**It's easy to stand in the crowd but it takes courage to stand alone.**
 
-Frances Hodgson Burnett
+Mahatma Gandhi
