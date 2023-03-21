@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you look the right way, you can see that the whole world is a garden.**
+**The supreme art of war is to subdue the enemy without fighting.**
 
-Frances Hodgson Burnett
+Sun Tzu
