@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Love who you are, embrace who you are. Love yourself.**
+**Don't be afraid of your fears. They're not there to scare you. They're there to let you know that something is worth it.**
 
-Lilly Singh
+C. JoyBell C
