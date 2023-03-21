@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**With virtue, you can't be completely poor; without it, you can't be truly rich.**
+**If you don't fall, how are you going to know what getting up feels like?**
 
-Chinese Proverb
+Stephen Curry
