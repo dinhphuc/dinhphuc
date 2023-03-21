@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**People are just as happy as they make up their minds to be.**
+**Whatever you do, be different. If you're different, you will stand out.**
 
-Abraham Lincoln
+Anita Roddick
