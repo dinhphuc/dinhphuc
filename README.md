@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Spend more of your time on what gives you energy and less of your time on what takes it away.**
+**Winning is fun, but those moments that you can touch someone's life in a very positive way are better.**
 
-Anonymous
+Tim Howard
