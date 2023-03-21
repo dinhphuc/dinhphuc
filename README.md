@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Hard times don't create heroes. It is during the hard times when the 'hero' within us is revealed.**
+**When a new day begins, dare to smile gratefully.**
 
-Bob Riley
+Steve Maraboli
