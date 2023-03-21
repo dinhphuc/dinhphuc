@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Never let the fear of striking out keep you from playing the game.**
+**Courage is the birthplace of confidence.**
 
-Babe Ruth
+Debbie Millman
