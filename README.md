@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Courage is the birthplace of confidence.**
+**People are just as happy as they make up their minds to be.**
 
-Debbie Millman
+Abraham Lincoln
