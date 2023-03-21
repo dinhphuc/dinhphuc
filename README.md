@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Choosing to be positive and having a grateful attitude is going to determine how you're going to live your life.**
+**The key to being happy is knowing you have the power to choose what to accept and what to let go.**
 
-Joel Osteen
+Anonymous
