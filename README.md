@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The key to being happy is knowing you have the power to choose what to accept and what to let go.**
+**You don't gain anything from stressing. Remember that.**
 
 Anonymous
