@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't gain anything from stressing. Remember that.**
+**A truly happy person is one who can enjoy the scenery when they have made a wrong turn.**
 
 Anonymous
