@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When the 'why' is clear, the 'how' is easy.**
+**If you're offered a seat on a rocket ship, don't ask what seat! Just get on.**
 
-Anonymous
+Sheryl Sandberg
