@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When a new day begins, dare to smile gratefully.**
+**Whatever the mind can conceive and believe, it can achieve.**
 
-Steve Maraboli
+Napoleon Hill
