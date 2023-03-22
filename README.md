@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I attribute my success to this: I never gave or took any excuse.**
+**It is far better to be alone, than to be in bad company.**
 
-Florence Nightingale
+George Washington
