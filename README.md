@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you set your goals ridiculously high and it's a failure, you will fail above everyone else's success.**
+**Leadership is not about being in charge. Leadership is about taking care of those in your charge.**
 
-James Cameron
+Simon Sinek
