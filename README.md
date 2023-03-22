@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Goals may give focus, but dreams give power.**
+**You're allowed to scream. You're allowed to cry. But don't give up.**
 
-John Maxwell
+Anonymous
