@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Relationships are based on four principles: respect, understanding, acceptance and appreciation.**
+**The sweat. The time. The devotion. It pays off.**
 
-Mahatma Gandhi
+Anonymous
