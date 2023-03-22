@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Only in the darkness can you see the stars.**
+**Winning isn't everything, but wanting to win is.**
 
-Martin Luther King, Jr.
+Vince Lombardi
