@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength is the product of struggle. You must do what others don't to achieve what others wont.**
+**Goals may give focus, but dreams give power.**
 
-Henry Rollins
+John Maxwell
