@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You will find only what you bring in.**
+**Difficulty is what wakes up the genius.**
 
-Yoda
+Nassim Nicholas Taleb
