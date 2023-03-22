@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When someone told me I lived in a fantasy land, I nearly fell off my unicorn.**
+**Blessed are they who see beautiful things in humble places where other people see nothing.**
 
-Anonymous
+Camille Pissaro
