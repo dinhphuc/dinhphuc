@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You're allowed to scream. You're allowed to cry. But don't give up.**
+**To fall in love with yourself is the first secret to happiness.**
 
-Anonymous
+Robert Morley
