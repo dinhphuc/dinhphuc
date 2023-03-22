@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not what you look at that matters, it's what you see.**
+**The difference between the impossible and the possible lies in a person's determination.**
 
-Henry David Thoreau
+Tommy Lasorda
