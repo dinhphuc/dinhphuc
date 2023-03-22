@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**To fall in love with yourself is the first secret to happiness.**
+**As long as we have hope, we have direction, the energy to move, and the map to move by.**
 
-Robert Morley
+Lao Tzu
