@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A truly happy person is one who can enjoy the scenery when they have made a wrong turn.**
+**A champion is someone who gets up when they can't.**
 
-Anonymous
+Jack Dempsey
