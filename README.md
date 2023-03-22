@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It is only possible to live happily ever after on a daily basis.**
+**You are never too old to set another goal or dream a new dream.**
 
-Anonymous
+Les Brown
