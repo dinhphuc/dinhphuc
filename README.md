@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We can be who we are without the pleasures but we could not be who we are not without the hardships.**
+**The will to win means nothing without the will to prepare.**
 
-Anonymous
+Juma Ikangaa
