@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Leadership is not about being in charge. Leadership is about taking care of those in your charge.**
+**Only in the darkness can you see the stars.**
 
-Simon Sinek
+Martin Luther King, Jr.
