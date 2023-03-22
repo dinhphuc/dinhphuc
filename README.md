@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success seems to be connected with action. Successful people keep moving. They make mistakes, but they don't quit.**
+**The struggle you're in today is developing the strength you need tomorrow.**
 
-Conrad Hilton
+Robert Tew
