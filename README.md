@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Winning isn't everything, but wanting to win is.**
+**Cheerfulness is the very flower of health.**
 
-Vince Lombardi
+Anonymous
