@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Blessings sometimes show up in unrecognizable disguises.**
+**Strength is the product of struggle. You must do what others don't to achieve what others wont.**
 
-Janette Oke
+Henry Rollins
