@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Simple to open a shop; another thing to keep it open.**
+**Relationships are based on four principles: respect, understanding, acceptance and appreciation.**
 
-Chinese Proverb
+Mahatma Gandhi
