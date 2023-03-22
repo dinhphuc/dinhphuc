@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The struggle you're in today is developing the strength you need tomorrow.**
+**In a dark place we find ourselves, and a little more knowledge lights our way.**
 
-Robert Tew
+Yoda
