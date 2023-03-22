@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The sweat. The time. The devotion. It pays off.**
+**It is only possible to live happily ever after on a daily basis.**
 
 Anonymous
