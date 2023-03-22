@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**As long as we have hope, we have direction, the energy to move, and the map to move by.**
+**Success seems to be connected with action. Successful people keep moving. They make mistakes, but they don't quit.**
 
-Lao Tzu
+Conrad Hilton
