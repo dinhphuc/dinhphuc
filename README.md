@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Certain things catch your eye, but pursue only those that capture the heart.**
+**I can and I will. Watch me.**
 
-Ancient Indian Proverb
+Carrie Green
