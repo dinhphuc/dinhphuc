@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are never too old to set another goal or dream a new dream.**
+**Life is about making an impact, not making an income.**
 
-Les Brown
+Kevin Kruse
