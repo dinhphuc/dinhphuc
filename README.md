@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is about making an impact, not making an income.**
+**Good friends are all that matter.**
 
-Kevin Kruse
+Anonymous
