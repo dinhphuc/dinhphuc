@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Blessed are they who see beautiful things in humble places where other people see nothing.**
+**Our greatest glory is not in never falling, but in rising every time we fall.**
 
-Camille Pissaro
+Confucius
