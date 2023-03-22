@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Find a place inside where there's joy, and the joy will burn out the pain.**
+**When someone told me I lived in a fantasy land, I nearly fell off my unicorn.**
 
-Joseph Campbell
+Anonymous
