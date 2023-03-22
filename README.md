@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**In a dark place we find ourselves, and a little more knowledge lights our way.**
+**Find a place inside where there's joy, and the joy will burn out the pain.**
 
-Yoda
+Joseph Campbell
