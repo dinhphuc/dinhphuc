@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest glory is not in never falling, but in rising every time we fall.**
+**Simple to open a shop; another thing to keep it open.**
 
-Confucius
+Chinese Proverb
