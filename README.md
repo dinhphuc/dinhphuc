@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't love what you do, you won't do it with much conviction or passion.**
+**If you set your goals ridiculously high and it's a failure, you will fail above everyone else's success.**
 
-Mia Hamm
+James Cameron
