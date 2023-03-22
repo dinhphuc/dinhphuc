@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between the impossible and the possible lies in a person's determination.**
+**Blessings sometimes show up in unrecognizable disguises.**
 
-Tommy Lasorda
+Janette Oke
