@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are not willing to risk the usual, you will have to settle for the ordinary.**
+**If you don't love what you do, you won't do it with much conviction or passion.**
 
-Jim Rohn
+Mia Hamm
