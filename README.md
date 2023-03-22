@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Difficulty is what wakes up the genius.**
+**You don't have to control your thoughts; you just have to stop letting them control you.**
 
-Nassim Nicholas Taleb
+Dan Millman
