@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The will to win means nothing without the will to prepare.**
+**I attribute my success to this: I never gave or took any excuse.**
 
-Juma Ikangaa
+Florence Nightingale
