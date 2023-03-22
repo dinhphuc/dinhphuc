@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't have to control your thoughts; you just have to stop letting them control you.**
+**It's not what you look at that matters, it's what you see.**
 
-Dan Millman
+Henry David Thoreau
