@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It is far better to be alone, than to be in bad company.**
+**You will find only what you bring in.**
 
-George Washington
+Yoda
