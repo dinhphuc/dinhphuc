@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A champion is someone who gets up when they can't.**
+**We can be who we are without the pleasures but we could not be who we are not without the hardships.**
 
-Jack Dempsey
+Anonymous
