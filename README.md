@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life's most persistent and urgent question is, 'What are you doing for others?'**
+**It takes courage to grow up and become who you really are.**
 
-Martin Luther King
+E.E. Cummings
