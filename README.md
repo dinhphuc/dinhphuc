@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Start by doing what's necessary; then do what's possible; and suddenly you are doing the impossible.**
+**Work hard in silence. Let success make the noise.**
 
-Francis of Assisi
+Anonymous
