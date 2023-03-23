@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The best feeling of happiness is when you're happy because you've made somebody else happy.**
+**Only in the darkness can you see the stars.**
 
-Anonymous
+Martin Luther King, Jr.
