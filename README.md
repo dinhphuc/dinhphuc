@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Work hard in silence. Let success make the noise.**
+**We know what we are, but know not what we may be.**
 
-Anonymous
+William Shakespeare
