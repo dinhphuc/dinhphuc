@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**My attitude is if you push me towards a weakness, I will turn that weakness into a strength.**
+**Change yourself and fortune will change.**
 
-Michael Jordan
+Portuguese Proverb
