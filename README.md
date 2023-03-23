@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Think gold and never settle for silver.**
+**If you don't fall, how are you going to know what getting up feels like?**
 
-Jim Afremow
+Stephen Curry
