@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to go fast, go alone. If you want to go far, go together.**
+**Nothing is more beautiful than the smile that has struggled through the tears.**
 
-African Proverb
+Demi Lovato
