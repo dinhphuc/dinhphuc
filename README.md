@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Only in the darkness can you see the stars.**
+**It never gets easier. You just get better.**
 
-Martin Luther King, Jr.
+Jordan Hoechlin
