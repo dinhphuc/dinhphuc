@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are enough, just as you are.**
+**Simple to open a shop; another thing to keep it open.**
 
-Anonymous
+Chinese Proverb
