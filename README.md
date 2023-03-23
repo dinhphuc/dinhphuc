@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The very best thing you can do for the whole world is to make the best of yourself.**
+**When you depersonalize abrasive behavior and see it as a call for help you become a catalyst for the best kind of change.**
 
-Anonymous
+Marilyn Suttle
