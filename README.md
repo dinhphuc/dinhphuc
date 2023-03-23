@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Great minds discuss ideas; average minds discuss events; small minds discuss people.**
+**Laugh. It's free medicine you don't need insurance for.**
 
-Eleanor Roosevelt
+Anonymous
