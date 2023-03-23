@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Dream without fear. Love without limits.**
+**If you can dream it, then you can achieve it.**
 
-Dilip Bathija
+Zig Ziglar
