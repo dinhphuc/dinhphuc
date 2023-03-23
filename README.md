@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Fall seven times, stand up eight.**
+**I've never let anyone talk me into not believing in myself.**
 
-Japanese Proverb
+Muhammad Ali
