@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Simple to open a shop; another thing to keep it open.**
+**If it doesn't challenge you, it won't change you.**
 
-Chinese Proverb
+Anonymous
