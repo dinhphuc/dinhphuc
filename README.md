@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success usually comes to those who are too busy to be looking for it.**
+**The best feeling of happiness is when you're happy because you've made somebody else happy.**
 
-Henry David Thoreau
+Anonymous
