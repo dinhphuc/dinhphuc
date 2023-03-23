@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Inhale confidence. Exhale doubt.**
+**Success usually comes to those who are too busy to be looking for it.**
 
-Anonymous
+Henry David Thoreau
