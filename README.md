@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you only do what you can do, you will never be more than you are now.**
+**My attitude is if you push me towards a weakness, I will turn that weakness into a strength.**
 
-Master Oogway
+Michael Jordan
