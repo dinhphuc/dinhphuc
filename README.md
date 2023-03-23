@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are not willing to risk the usual, you will have to settle for the ordinary.**
+**Be happy, be yourself, and if others don't like it, let them be. Your happiness is a choice. Life isn't about pleasing everybody, so do you.**
 
-Jim Rohn
+Anonymous
