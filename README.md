@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Change yourself and fortune will change.**
+**You are enough, just as you are.**
 
-Portuguese Proverb
+Anonymous
