@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Walk on with hope in your heart, and you'll never walk alone.**
+**Dream without fear. Love without limits.**
 
-Shah Rukh Khan
+Dilip Bathija
