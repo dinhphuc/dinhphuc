@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can dream it, then you can achieve it.**
+**If you want to go fast, go alone. If you want to go far, go together.**
 
-Zig Ziglar
+African Proverb
