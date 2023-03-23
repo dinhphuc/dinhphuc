@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing is more beautiful than the smile that has struggled through the tears.**
+**The very best thing you can do for the whole world is to make the best of yourself.**
 
-Demi Lovato
+Anonymous
