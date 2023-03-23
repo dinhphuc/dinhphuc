@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I am happy because I choose to be happy no matter what the situation is.**
+**If you are not willing to risk the usual, you will have to settle for the ordinary.**
 
-Anonymous
+Jim Rohn
