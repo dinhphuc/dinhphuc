@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It takes courage to grow up and become who you really are.**
+**I am happy because I choose to be happy no matter what the situation is.**
 
-E.E. Cummings
+Anonymous
