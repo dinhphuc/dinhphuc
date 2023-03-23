@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The real opportunity for success lies within the person and not in the job.**
+**If you only do what you can do, you will never be more than you are now.**
 
-Zig Ziglar
+Master Oogway
