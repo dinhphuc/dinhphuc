@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The only person you are destined to become is the person you decide to be.**
+**Walk on with hope in your heart, and you'll never walk alone.**
 
-Ralph Waldo Emerson
+Shah Rukh Khan
