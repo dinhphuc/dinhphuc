@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Ask yourself: Can I give more? The answer is usually: Yes.**
+**The real opportunity for success lies within the person and not in the job.**
 
-Paul Tergat
+Zig Ziglar
