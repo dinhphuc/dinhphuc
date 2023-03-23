@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We know what we are, but know not what we may be.**
+**The only person you are destined to become is the person you decide to be.**
 
-William Shakespeare
+Ralph Waldo Emerson
