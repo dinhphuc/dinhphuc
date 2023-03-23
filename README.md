@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Certain things catch your eye, but pursue only those that capture the heart.**
+**Life's most persistent and urgent question is, 'What are you doing for others?'**
 
-Ancient Indian Proverb
+Martin Luther King
