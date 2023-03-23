@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**In a dark place we find ourselves, and a little more knowledge lights our way.**
+**Great minds discuss ideas; average minds discuss events; small minds discuss people.**
 
-Yoda
+Eleanor Roosevelt
