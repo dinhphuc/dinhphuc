@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you depersonalize abrasive behavior and see it as a call for help you become a catalyst for the best kind of change.**
+**Strength doesn't come from what you can do. It comes from overcoming the things you once thought you couldn't.**
 
-Marilyn Suttle
+Rikki Rogers
