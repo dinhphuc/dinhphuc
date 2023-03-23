@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It never gets easier. You just get better.**
+**Think gold and never settle for silver.**
 
-Jordan Hoechlin
+Jim Afremow
