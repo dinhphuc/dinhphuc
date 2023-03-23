@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**One conquers the world by conquering himself.**
+**Certain things catch your eye, but pursue only those that capture the heart.**
 
-Zeno of Citium
+Ancient Indian Proverb
