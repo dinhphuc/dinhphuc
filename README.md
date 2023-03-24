@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be tolerant with others and strict with yourself.**
+**You are a masterpiece.**
 
-Marcus Aurelius
+Anonymous
