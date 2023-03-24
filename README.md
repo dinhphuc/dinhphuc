@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up. Great things take time. Be patient.**
+**Be crazy. Be stupid. Be silly. Be weird. Be whatever. Because life is too short to be anything but happy.**
 
 Anonymous
