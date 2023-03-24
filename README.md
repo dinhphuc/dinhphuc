@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The way to get started is to quit talking and begin doing.**
+**Climb the mountains to see lowlands.**
 
-Walt Disney
+Chinese Proverb
