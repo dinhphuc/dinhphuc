@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest teacher, failure is.**
+**Believe with all of your heart that you will do what you were made to do.**
 
-Yoda
+Orison Swett Marden
