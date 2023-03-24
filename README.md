@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**At first they'll ask you why you're doing it. Later they'll ask how you did it.**
+**The beginning is the most important part of the work.**
 
-Anonymous
+Plato
