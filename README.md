@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you get tired, learn to rest, not quit.**
+**Never give up. Great things take time. Be patient.**
 
 Anonymous
