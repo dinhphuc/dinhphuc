@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't find will power, you create it.**
+**Hard times don't create heroes. It is during the hard times when the 'hero' within us is revealed.**
 
-Anonymous
+Bob Riley
