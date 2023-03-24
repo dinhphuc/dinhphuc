@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I've failed over and over and over again in my life and that is why I succeed.**
+**Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.**
 
-Michael Jordan
+Napoleon Hill
