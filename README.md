@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**What you choose to focus on expands and grows.**
+**Be tolerant with others and strict with yourself.**
 
-Anonymous
+Marcus Aurelius
