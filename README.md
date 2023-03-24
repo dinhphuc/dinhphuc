@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Everywhere you go, take a smile with you.**
+**I compete only with myself, and I try to become a better human being. This is my goal.**
 
-Sasha Azevedo
+Sri Chinmoy
