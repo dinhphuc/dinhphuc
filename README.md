@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness resides not in possessions, and not in gold, happiness dwells in the soul.**
+**Never give up. You only get one life. Go for it.**
 
-Democritus
+Richard E. Grant
