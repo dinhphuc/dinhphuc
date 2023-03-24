@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You have purpose.**
+**What you choose to focus on expands and grows.**
 
 Anonymous
