@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up. You only get one life. Go for it.**
+**Good friends are like stars. You don't always see them, but you know they're always there.**
 
-Richard E. Grant
+Christy Evans
