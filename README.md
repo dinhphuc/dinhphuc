@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Kindness is free. Sprinkle that stuff everywhere.**
+**The greatest teacher, failure is.**
 
-Anonymous
+Yoda
