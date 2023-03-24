@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We don't develop courage by being happy every day. We develop it by surviving difficult times and challenging adversity.**
+**It's not what you look at that matters, it's what you see.**
 
-Barbara De Angelis
+Henry David Thoreau
