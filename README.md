@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Never let the fear of striking out keep you from playing the game.**
+**Dream without fear. Love without limits.**
 
-Babe Ruth
+Dilip Bathija
