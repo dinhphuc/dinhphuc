@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe with all of your heart that you will do what you were made to do.**
+**He who sweats more in training bleeds less in war.**
 
-Orison Swett Marden
+Greek Proverb
