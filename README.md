@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't let the silly little things steal your happiness.**
+**If you get tired, learn to rest, not quit.**
 
 Anonymous
