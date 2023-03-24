@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not what you look at that matters, it's what you see.**
+**Happiness resides not in possessions, and not in gold, happiness dwells in the soul.**
 
-Henry David Thoreau
+Democritus
