@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**How you do anything is how you do everything.**
+**Hard times don't create heroes. It is during the hard times when the 'hero' within us is revealed.**
 
-T. Harv Eker
+Bob Riley
