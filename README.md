@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Hard times don't create heroes. It is during the hard times when the 'hero' within us is revealed.**
+**The way to get started is to quit talking and begin doing.**
 
-Bob Riley
+Walt Disney
