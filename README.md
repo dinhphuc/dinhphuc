@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The beginning is the most important part of the work.**
+**I've failed over and over and over again in my life and that is why I succeed.**
 
-Plato
+Michael Jordan
