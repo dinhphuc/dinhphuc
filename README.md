@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I compete only with myself, and I try to become a better human being. This is my goal.**
+**It's better to light a candle than curse the darkness.**
 
-Sri Chinmoy
+Chinese Proverb
