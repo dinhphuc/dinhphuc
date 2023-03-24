@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**All that matters is how you see yourself.**
+**At the end of the day, you can either focus on what's tearing you apart, or you can focus on what's keeping you together.**
 
-Conor McGregor
+Anonymous
