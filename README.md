@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you look the right way, you can see that the whole world is a garden.**
+**The greatest teacher, failure is.**
 
-Frances Hodgson Burnett
+Yoda
