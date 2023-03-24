@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be crazy. Be stupid. Be silly. Be weird. Be whatever. Because life is too short to be anything but happy.**
+**At first they'll ask you why you're doing it. Later they'll ask how you did it.**
 
 Anonymous
