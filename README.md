@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Dream without fear. Love without limits.**
+**You have purpose.**
 
-Dilip Bathija
+Anonymous
