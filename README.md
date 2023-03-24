@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's better to light a candle than curse the darkness.**
+**How you do anything is how you do everything.**
 
-Chinese Proverb
+T. Harv Eker
