@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Someone who is busier than you is running right now.**
+**Kindness is free. Sprinkle that stuff everywhere.**
 
-Nike
+Anonymous
