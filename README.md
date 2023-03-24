@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.**
+**Someone who is busier than you is running right now.**
 
-Napoleon Hill
+Nike
