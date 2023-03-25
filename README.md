@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Replace those thoughts of worry with thoughts of hope, faith, and victory.**
+**The difference between the impossible and the possible lies in a person's determination.**
 
-Joel Osteen
+Tommy Lasorda
