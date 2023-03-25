@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Instead of worrying about what you cannot control, shift your energy to what you can create.**
+**Everything has beauty, but not everyone can see.**
 
-Roy T. Bennett
+Confucius
