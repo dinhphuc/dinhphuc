@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.**
+**Replace those thoughts of worry with thoughts of hope, faith, and victory.**
 
-Henry Ford
+Joel Osteen
