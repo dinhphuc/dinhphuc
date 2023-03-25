@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are a masterpiece.**
+**Teachers open the door; you enter by yourself.**
 
-Anonymous
+Chinese Proverb
