@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter where you are on your journey, that's exactly where you need to be.**
+**Every champion was once a contender that refused to give up.**
 
-Oprah Winfrey
+Rocky Balboa
