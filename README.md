@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The way to get started is to quit talking and begin doing.**
+**Always two there are, no more, no less. A master and an apprentice.**
 
-Walt Disney
+Yoda
