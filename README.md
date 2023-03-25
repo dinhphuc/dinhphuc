@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile at strangers and you just might change a life.**
+**Don't be afraid to give up the good to go for the great.**
 
-Steve Maraboli
+John D. Rockefeller
