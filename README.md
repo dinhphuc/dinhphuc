@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Optimism is a happiness magnet. If you stay positive, good things and good people will be drawn to you.**
+**Believe in yourself, take on your challenges, dig deep within yourself to conquer fears. Never let anyone bring you down. You got to keep going.**
 
-Mary Lou Retton
+Chantal Sutherland
