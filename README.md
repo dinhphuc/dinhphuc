@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't have to be great to start. But you do have to start to be great.**
+**Whatever can happen at any time can happen today.**
 
-Zig Ziglar
+Seneca
