@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Teachers open the door; you enter by yourself.**
+**Patience you must have, my young padawan.**
 
-Chinese Proverb
+Yoda
