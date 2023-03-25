@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Every champion was once a contender that refused to give up.**
+**Everything you can imagine is real.**
 
-Rocky Balboa
+Pablo Picasso
