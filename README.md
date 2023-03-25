@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do all things with love.**
+**The supreme art of war is to subdue the enemy without fighting.**
 
-Og Mandino
+Sun Tzu
