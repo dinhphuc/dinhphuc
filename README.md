@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Control, control, you must learn control!**
+**I have not failed. I've just found 10,000 ways that won't work.**
 
-Yoda
+Thomas Edison
