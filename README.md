@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between the impossible and the possible lies in a person's determination.**
+**When you find an idea that you just can't stop thinking about, that's probably a good one to pursue.**
 
-Tommy Lasorda
+Josh James
