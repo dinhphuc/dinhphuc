@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Patience you must have, my young padawan.**
+**One conquers the world by conquering himself.**
 
-Yoda
+Zeno of Citium
