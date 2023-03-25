@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't fall, how are you going to know what getting up feels like?**
+**When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.**
 
-Stephen Curry
+Henry Ford
