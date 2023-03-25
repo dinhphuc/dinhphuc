@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When a new day begins, dare to smile gratefully.**
+**Optimism is a happiness magnet. If you stay positive, good things and good people will be drawn to you.**
 
-Steve Maraboli
+Mary Lou Retton
