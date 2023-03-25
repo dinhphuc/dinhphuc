@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**One conquers the world by conquering himself.**
+**Instead of worrying about what you cannot control, shift your energy to what you can create.**
 
-Zeno of Citium
+Roy T. Bennett
