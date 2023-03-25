@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Mistakes are proof that you are trying.**
+**The way to get started is to quit talking and begin doing.**
 
-Anonymous
+Walt Disney
