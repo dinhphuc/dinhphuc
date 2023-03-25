@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I am an ordinary man who worked hard to develop the talent I was given. I believed in myself, and I believe in the goodness of others.**
+**The sweat. The time. The devotion. It pays off.**
 
-Muhammad Ali
+Anonymous
