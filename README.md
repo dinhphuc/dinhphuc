@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you find an idea that you just can't stop thinking about, that's probably a good one to pursue.**
+**No matter where you are on your journey, that's exactly where you need to be.**
 
-Josh James
+Oprah Winfrey
