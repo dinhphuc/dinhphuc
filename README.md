@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do all things with love.**
+**It is not the strongest of the species that survive, nor the most intelligent, but the one most responsive to change.**
 
-Og Mandino
+Charles Darwin
