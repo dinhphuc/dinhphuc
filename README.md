@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be afraid to give up the good to go for the great.**
+**Mistakes are proof that you are trying.**
 
-John D. Rockefeller
+Anonymous
