@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Once you replace negative thoughts with positive ones, you'll start having positive results.**
+**You don't have to be great to start. But you do have to start to be great.**
 
-Willie Nelson
+Zig Ziglar
