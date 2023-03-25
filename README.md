@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Every champion was once a contender that refused to give up.**
+**Do all things with love.**
 
-Rocky Balboa
+Og Mandino
