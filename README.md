@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you love what you have, you have everything you need.**
+**If you don't fall, how are you going to know what getting up feels like?**
 
-Anonymous
+Stephen Curry
