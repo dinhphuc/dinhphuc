@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There will be obstacles. There will be doubters. There will be mistakes. But with hard work, there are no limits.**
+**Be yourself. An original is so much better than a copy.**
 
 Anonymous
