@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The supreme art of war is to subdue the enemy without fighting.**
+**When a new day begins, dare to smile gratefully.**
 
-Sun Tzu
+Steve Maraboli
