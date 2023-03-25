@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I have not failed. I've just found 10,000 ways that won't work.**
+**Every champion was once a contender that refused to give up.**
 
-Thomas Edison
+Rocky Balboa
