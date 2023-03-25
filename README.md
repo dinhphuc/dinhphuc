@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The sweat. The time. The devotion. It pays off.**
+**Control, control, you must learn control!**
 
-Anonymous
+Yoda
