@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The first and greatest victory is to conquer self.**
+**When you love what you have, you have everything you need.**
 
-Plato
+Anonymous
