@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Are your excuses more important than your dreams?**
+**Deep doubts, deep wisdom; small doubts, small wisdom.**
 
-Anonymous
+Chinese Proverb
