@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of success is to do the common thing uncommonly well.**
+**Do or do not. There is no try.**
 
-John D. Rockefeller Jr
+Yoda
