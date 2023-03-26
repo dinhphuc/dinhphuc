@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how old I get, the race remains one of life's most rewarding experiences.**
+**Your time is limited, so don't waste it living someone else's life.**
 
-George Sheehan
+Steve Jobs
