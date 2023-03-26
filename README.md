@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile in the mirror. Do that every morning and you'll start to see a big difference in your life.**
+**The journey of a thousand miles begins with one step.**
 
-Yoko Ono
+Lao Tzu
