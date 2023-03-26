@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are somebody's reason to smile.**
+**Love cures people - both the ones who give it and the ones who receive it.**
 
-Anonymous
+Karl A. Menninger
