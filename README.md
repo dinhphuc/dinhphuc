@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want it, you'll find a way. If you don't, you'll find an excuse.**
+**Life's most persistent and urgent question is, 'What are you doing for others?'**
 
-Anonymous
+Martin Luther King
