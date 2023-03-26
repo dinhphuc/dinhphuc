@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**All things equal, people will do business with, and refer business to, people they know trust and like.**
+**Where there is love there is life.**
 
-Bob Burg
+Mahatma Gandhi
