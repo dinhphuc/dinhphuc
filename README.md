@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest mistake you can make in life is to continually fear that you will make one.**
+**You are somebody's reason to smile.**
 
-Elbert Hubbard
+Anonymous
