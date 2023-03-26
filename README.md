@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The journey of a thousand miles begins with one step.**
+**If you don't like something, change it. If you can't change it, change your attitude.**
 
-Lao Tzu
+Maya Angelou
