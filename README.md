@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Accept yourself, love yourself, and keep moving forward.**
+**Stop doubting yourself. Work hard and make it happen.**
 
-Roy T. Bennett
+Anonymous
