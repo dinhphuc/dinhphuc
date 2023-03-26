@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whoever is happy will make others happy too.**
+**Happiness can be found, even in the darkest of times, if one only remembers to turn on the light.**
 
 Anonymous
