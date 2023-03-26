@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Deep doubts, deep wisdom; small doubts, small wisdom.**
+**No matter how old I get, the race remains one of life's most rewarding experiences.**
 
-Chinese Proverb
+George Sheehan
