@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Victory is always possible for the person who refuses to stop fighting.**
+**Who begins too much accomplishes little.**
 
-Napoleon Hill
+German Proverb
