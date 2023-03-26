@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not the strongest of the species that survive, nor the most intelligent, but the one most responsive to change.**
+**All things equal, people will do business with, and refer business to, people they know trust and like.**
 
-Charles Darwin
+Bob Burg
