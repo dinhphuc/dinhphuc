@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your time is limited, so don't waste it living someone else's life.**
+**Accept yourself, love yourself, and keep moving forward.**
 
-Steve Jobs
+Roy T. Bennett
