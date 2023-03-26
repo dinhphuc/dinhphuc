@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I have learned over the years that when one's mind is made up, this diminishes fear.**
+**The greatest mistake you can make in life is to continually fear that you will make one.**
 
-Rosa Parks
+Elbert Hubbard
