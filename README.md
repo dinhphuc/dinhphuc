@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success doesn't just come and find you, you have to go out and get it.**
+**With confidence you have won before you have started.**
 
-Anonymous
+Marcus Garvey
