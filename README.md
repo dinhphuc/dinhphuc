@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No one who can rise before dawn three hundred sixty days a year fails to make his family rich.**
+**You cannot shake hands with a clenched fist.**
 
-Malcolm Gladwell
+Indira Gandhi
