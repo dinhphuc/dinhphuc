@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot change the direction of the wind - only alter the angle of your sails.**
+**How you do anything is how you do everything.**
 
-Anonymous
+T. Harv Eker
