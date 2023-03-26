@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Stop doubting yourself. Work hard and make it happen.**
+**Nurture your mind with great thoughts, for you will never go any higher than you think.**
 
-Anonymous
+Benjamin Disraeli
