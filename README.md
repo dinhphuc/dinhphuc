@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There will be obstacles. There will be doubters. There will be mistakes. But with hard work, there are no limits.**
+**In life, many things do not go according to plan. If you fall, get back up.**
 
 Anonymous
