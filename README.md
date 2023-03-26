@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.**
+**Whoever is happy will make others happy too.**
 
-William Arthur Ward
+Anonymous
