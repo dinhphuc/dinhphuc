@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**In life, many things do not go according to plan. If you fall, get back up.**
+**No one who can rise before dawn three hundred sixty days a year fails to make his family rich.**
 
-Anonymous
+Malcolm Gladwell
