@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I never dreamed about success. I worked for it.**
+**When you feel like giving up, that's when you need to dig deep and push through your self doubt and weaknesses.**
 
-Estee Lauder
+Anonymous
