@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nurture your mind with great thoughts, for you will never go any higher than you think.**
+**Every accomplishment begins with the decision to try.**
 
-Benjamin Disraeli
+Anonymous
