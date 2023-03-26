@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't like something, change it. If you can't change it, change your attitude.**
+**I never dreamed about success. I worked for it.**
 
-Maya Angelou
+Estee Lauder
