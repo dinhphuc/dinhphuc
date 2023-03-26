@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**With confidence you have won before you have started.**
+**The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.**
 
-Marcus Garvey
+William Arthur Ward
