@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot shake hands with a clenched fist.**
+**Victory is always possible for the person who refuses to stop fighting.**
 
-Indira Gandhi
+Napoleon Hill
