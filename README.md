@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Who begins too much accomplishes little.**
+**You cannot change the direction of the wind - only alter the angle of your sails.**
 
-German Proverb
+Anonymous
