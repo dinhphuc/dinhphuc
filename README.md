@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A dream does not become reality through magic; it takes sweat, determination and hard work.**
+**There will be obstacles. There will be doubters. There will be mistakes. But with hard work, there are no limits.**
 
-Colin Powell
+Anonymous
