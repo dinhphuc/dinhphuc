@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Where there is love there is life.**
+**Success doesn't just come and find you, you have to go out and get it.**
 
-Mahatma Gandhi
+Anonymous
