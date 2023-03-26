@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you feel like giving up, that's when you need to dig deep and push through your self doubt and weaknesses.**
+**I have learned over the years that when one's mind is made up, this diminishes fear.**
 
-Anonymous
+Rosa Parks
