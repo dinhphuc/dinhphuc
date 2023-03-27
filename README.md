@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is only real when shared.**
+**Love the life you live. Live the life you love.**
 
-Jon Krakauer
+Bob Marley
