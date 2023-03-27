@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Positive anything is better than negative nothing.**
+**The journey of a thousand miles begins with one step.**
 
-Elbert Hubbard
+Lao Tzu
