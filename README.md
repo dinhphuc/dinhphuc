@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you do, do with all your might.**
+**You know that it's a fool who plays it cool by making his world a little colder.**
 
-Marcus Tullius Cicero
+The Beatles
