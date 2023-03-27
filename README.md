@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life's most persistent and urgent question is, 'What are you doing for others?'**
+**I alone cannot change the world, but I can cast a stone across the water to create many ripples.**
 
-Martin Luther King
+Mother Teresa
