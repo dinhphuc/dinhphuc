@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The best way to gain self-confidence is to do what you are afraid to do.**
+**Do not blame the world. Find a solution.**
 
-Swati Sharma
+Sri Chinmoy
