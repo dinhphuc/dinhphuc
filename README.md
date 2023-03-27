@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The journey of a thousand miles begins with one step.**
+**Don't regret the past, just learn from it.**
 
-Lao Tzu
+Ben Ipock
