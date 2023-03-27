@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you believe it, the mind can achieve it.**
+**Happiness is only real when shared.**
 
-Ronnie Lott
+Jon Krakauer
