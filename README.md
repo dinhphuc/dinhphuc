@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**100% commitment is easier than 98% commitment.**
+**All that matters is how you see yourself.**
 
-Harvard Business School
+Conor McGregor
