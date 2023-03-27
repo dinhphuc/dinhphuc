@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are somebody's reason to smile.**
+**Relationships are based on four principles: respect, understanding, acceptance and appreciation.**
 
-Anonymous
+Mahatma Gandhi
