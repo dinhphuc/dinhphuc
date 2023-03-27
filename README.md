@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**All that matters is how you see yourself.**
+**Always find opportunities to make someone smile, and to offer random acts of kindness in everyday life.**
 
-Conor McGregor
+Roy T. Bennett
