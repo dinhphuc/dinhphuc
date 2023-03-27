@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're presenting yourself with confidence, you can pull off pretty much anything.**
+**If you believe it, the mind can achieve it.**
 
-Katy Perry
+Ronnie Lott
