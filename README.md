@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Always find opportunities to make someone smile, and to offer random acts of kindness in everyday life.**
+**Many of the truths that we cling to depend on our point of view.**
 
-Roy T. Bennett
+Yoda
