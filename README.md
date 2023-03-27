@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Many of the truths that we cling to depend on our point of view.**
+**There are two things a person should never be angry at: what they can help, and what they cannot.**
 
-Yoda
+Plato
