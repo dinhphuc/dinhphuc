@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything you've ever wanted is on the other side of fear.**
+**You should never give up. No matter how hard the situation is, always believe that something beautiful is going to happen.**
 
-George Addair
+Anonymous
