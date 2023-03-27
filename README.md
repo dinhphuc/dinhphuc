@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do not blame the world. Find a solution.**
+**You are enough, just as you are.**
 
-Sri Chinmoy
+Anonymous
