@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Beauty lies in the eye of the beholder.**
+**The reason we race isn't so much to beat each other,... but to be with each other.**
 
-English Proverb
+Christopher McDougall
