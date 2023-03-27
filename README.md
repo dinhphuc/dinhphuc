@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If it is not right, do not do it, if it is not true, do not say it.**
+**I didn't fail the test. I just found 100 ways to do it wrong.**
 
-Marcus Aurelius
+Benjamin Franklin
