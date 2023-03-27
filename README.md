@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You should never give up. No matter how hard the situation is, always believe that something beautiful is going to happen.**
+**If you're presenting yourself with confidence, you can pull off pretty much anything.**
 
-Anonymous
+Katy Perry
