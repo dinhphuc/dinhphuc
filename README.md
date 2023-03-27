@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It always seems impossible until it's done.**
+**Everything you've ever wanted is on the other side of fear.**
 
-Nelson Mandela
+George Addair
