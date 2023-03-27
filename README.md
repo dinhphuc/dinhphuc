@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are enough, just as you are.**
+**100% commitment is easier than 98% commitment.**
 
-Anonymous
+Harvard Business School
