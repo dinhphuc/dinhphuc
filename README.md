@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't regret the past, just learn from it.**
+**It always seems impossible until it's done.**
 
-Ben Ipock
+Nelson Mandela
