@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The reason we race isn't so much to beat each other,... but to be with each other.**
+**You are somebody's reason to smile.**
 
-Christopher McDougall
+Anonymous
