@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Relationships are based on four principles: respect, understanding, acceptance and appreciation.**
+**To know the road ahead, ask those coming back.**
 
-Mahatma Gandhi
+Chinese Proverb
