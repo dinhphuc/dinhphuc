@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
+**Always two there are, no more, no less. A master and an apprentice.**
 
-Anonymous
+Yoda
