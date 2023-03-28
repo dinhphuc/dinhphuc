@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There are so many beautiful reasons to be happy.**
+**Mistakes are proof that you are trying.**
 
 Anonymous
