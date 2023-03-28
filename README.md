@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is not out there, it's in you.**
+**One of the best ways of being happy with life is to make someone happy.**
 
 Anonymous
