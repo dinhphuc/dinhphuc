@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Mistakes are proof that you are trying.**
+**Our greatest glory is not in never falling, but in rising every time we fall.**
 
-Anonymous
+Confucius
