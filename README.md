@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Cry. Forgive. Learn. Move on. Let your tears water the seeds of your future happiness.**
+**Happiness is not out there, it's in you.**
 
-Steve Maraboli
+Anonymous
