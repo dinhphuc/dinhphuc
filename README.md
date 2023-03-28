@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Words should be weighed, not counted.**
+**When will you realize, the more you take, the less you have.**
 
-Yiddish Proverb
+Master Oogway
