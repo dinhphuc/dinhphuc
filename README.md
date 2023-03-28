@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**One of the best ways of being happy with life is to make someone happy.**
+**Always two there are, no more, no less. A master and an apprentice.**
 
-Anonymous
+Yoda
