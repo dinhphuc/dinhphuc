@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The biggest adventure you can take is to live the life of your dreams.**
+**Education is the most powerful weapon which you can use to change the world.**
 
-Oprah Winfrey
+Nelson Mandela
