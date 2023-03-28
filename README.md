@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no hope at all.**
+**You've never lived this day before, and you never will again. Make the most of it!**
 
-Dale Carnegie
+Anonymous
