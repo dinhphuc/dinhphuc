@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Change yourself and fortune will change.**
+**Everywhere you go, take a smile with you.**
 
-Portuguese Proverb
+Sasha Azevedo
