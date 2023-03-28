@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you are enthusiastic about what you do, you feel this positive energy. It's very simple.**
+**Don't give up on yourself. You're worth it.**
 
-Paulo Coelho
+Anonymous
