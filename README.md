@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You've never lived this day before, and you never will again. Make the most of it!**
+**Life is a magical ride. Enjoy every moment.**
 
 Anonymous
