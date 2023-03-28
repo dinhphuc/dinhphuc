@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your hardest times often lead to the greatest moments of your life. Keep going. Tough situations build strong people in the end.**
+**You are loved.**
 
-Roy T. Bennett
+Anonymous
