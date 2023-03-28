@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't give up on yourself. You're worth it.**
+**The biggest adventure you can take is to live the life of your dreams.**
 
-Anonymous
+Oprah Winfrey
