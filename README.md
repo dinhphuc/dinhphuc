@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Change yourself and fortune will change.**
+**Be you. Do you. For you.**
 
-Portuguese Proverb
+Anonymous
