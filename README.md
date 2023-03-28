@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Everywhere you go, take a smile with you.**
+**Sometimes you face difficulties not because you're doing something wrong but because you're doing something right.**
 
-Sasha Azevedo
+Anonymous
