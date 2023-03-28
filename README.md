@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The marathon can humble you.**
+**Change yourself and fortune will change.**
 
-Bill Rodgers
+Portuguese Proverb
