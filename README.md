@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest glory is not in never falling, but in rising every time we fall.**
+**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
 
-Confucius
+Anonymous
