@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be you. Do you. For you.**
+**Look for something positive in each day, even if some days you have to look a little harder.**
 
 Anonymous
