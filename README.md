@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Education is the most powerful weapon which you can use to change the world.**
+**There are so many beautiful reasons to be happy.**
 
-Nelson Mandela
+Anonymous
