@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is a magical ride. Enjoy every moment.**
+**Good friends are like stars. You don't always see them, but you know they're always there.**
 
-Anonymous
+Christy Evans
