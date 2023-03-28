@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Always two there are, no more, no less. A master and an apprentice.**
+**Words should be weighed, not counted.**
 
-Yoda
+Yiddish Proverb
