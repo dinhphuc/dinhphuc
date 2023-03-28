@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you have only one smile in you, give it to the people you love.**
+**Always two there are, no more, no less. A master and an apprentice.**
 
-Maya Angelou
+Yoda
