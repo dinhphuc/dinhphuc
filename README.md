@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you look at what you have in life, you'll always have more. If you look at what you don't have in life, you'll never have enough.**
+**Hard times don't create heroes. It is during the hard times when the 'hero' within us is revealed.**
 
-Oprah Winfrey
+Bob Riley
