@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Good friends are like stars. You don't always see them, but you know they're always there.**
+**It ain't as bad as you think. It will look better in the morning.**
 
-Christy Evans
+Colin Powell
