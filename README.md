@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Stay strong. You never know who you are inspiring.**
+**Our greatest weakness lies in giving up. The most certain way to succeed is to just try one more time.**
 
-Anonymous
+Thomas Edison
