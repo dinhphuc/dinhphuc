@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No one who can rise before dawn three hundred sixty days a year fails to make his family rich.**
+**Being entirely honest with oneself is a good exercise.**
 
-Malcolm Gladwell
+Sigmund Freud
