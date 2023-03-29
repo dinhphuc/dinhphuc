@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Every champion was once a contender that refused to give up.**
+**Don't waste a minute not being happy. If one door closes, run to the next window - or break down a door.**
 
-Rocky Balboa
+Brooke Shields
