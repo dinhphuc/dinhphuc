@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be helpful. When you see a person without a smile, give them yours.**
+**No one who can rise before dawn three hundred sixty days a year fails to make his family rich.**
 
-Zig Ziglar
+Malcolm Gladwell
