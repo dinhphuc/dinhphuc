@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Even the greatest were beginners. Don't be afraid to take that first step.**
+**Be who you are and say what you feel because those who mind don't matter and those who matter don't mind.**
 
-Anonymous
+Dr. Seuss
