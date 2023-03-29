@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We last longer if we compete against ourselves for the good of others instead of competing against others for the good of ourselves.**
+**The will to win means nothing without the will to prepare.**
 
-Simon Sinek
+Juma Ikangaa
