@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Rise up. Start fresh. See the bright opportunity in each new day.**
+**Setting goals is the first step into turning the invisible into the visible.**
 
-Anonymous
+Tony Robbins
