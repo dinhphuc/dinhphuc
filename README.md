@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is what comes after you stop making excuses.**
+**Stay strong. You never know who you are inspiring.**
 
-Luis Galarza
+Anonymous
