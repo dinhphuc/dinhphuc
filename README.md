@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When a new day begins, dare to smile gratefully.**
+**The only impossible journey is the one you never begin.**
 
-Steve Maraboli
+Tony Robbins
