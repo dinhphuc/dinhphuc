@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your time is limited, so don't waste it living someone else's life.**
+**Success is what comes after you stop making excuses.**
 
-Steve Jobs
+Luis Galarza
