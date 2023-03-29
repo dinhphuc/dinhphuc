@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe in yourself and you can be anything.**
+**Rise up. Start fresh. See the bright opportunity in each new day.**
 
-Katy Perry
+Anonymous
