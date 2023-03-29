@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Setting goals is the first step into turning the invisible into the visible.**
+**Your time is limited, so don't waste it living someone else's life.**
 
-Tony Robbins
+Steve Jobs
