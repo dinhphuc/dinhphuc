@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When will you realize, the more you take, the less you have.**
+**It does not matter how slowly you go as long as you do not stop.**
 
-Master Oogway
+Confucius
