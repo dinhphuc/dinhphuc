@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The only impossible journey is the one you never begin.**
+**Believe in yourself and you can be anything.**
 
-Tony Robbins
+Katy Perry
