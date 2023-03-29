@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't waste a minute not being happy. If one door closes, run to the next window - or break down a door.**
+**Even the greatest were beginners. Don't be afraid to take that first step.**
 
-Brooke Shields
+Anonymous
