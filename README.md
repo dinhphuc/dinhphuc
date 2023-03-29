@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be who you are and say what you feel because those who mind don't matter and those who matter don't mind.**
+**Why worry? If you've done the very best you can, worrying won't make it any better.**
 
-Dr. Seuss
+Walt Disney
