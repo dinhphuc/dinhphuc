@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Why worry? If you've done the very best you can, worrying won't make it any better.**
+**Life without love is like a tree without blossoms or fruit.**
 
-Walt Disney
+Khalil Gibran
