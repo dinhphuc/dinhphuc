@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You came into the world to do something; So... do something!**
+**Every champion was once a contender that refused to give up.**
 
-Johnnie Dent Jr
+Rocky Balboa
