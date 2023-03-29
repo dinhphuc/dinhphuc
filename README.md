@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Being entirely honest with oneself is a good exercise.**
+**We are what we repeatedly do. Excellence, then, is not an act, but a habit.**
 
-Sigmund Freud
+Aristotle
