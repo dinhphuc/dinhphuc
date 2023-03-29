@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Set a goal so big that you can't achieve it until you grow into the person who can.**
+**Every champion was once a contender that refused to give up.**
 
-Anonymous
+Rocky Balboa
