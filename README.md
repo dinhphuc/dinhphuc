@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The will to win means nothing without the will to prepare.**
+**Set a goal so big that you can't achieve it until you grow into the person who can.**
 
-Juma Ikangaa
+Anonymous
