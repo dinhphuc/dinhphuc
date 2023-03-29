@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Accept yourself, love yourself, and keep moving forward.**
+**Be helpful. When you see a person without a smile, give them yours.**
 
-Roy T. Bennett
+Zig Ziglar
