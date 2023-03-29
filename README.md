@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We last longer if we compete against ourselves for the good of others instead of competing against others for the good of ourselves.**
+**People are just as happy as they make up their minds to be.**
 
-Simon Sinek
+Abraham Lincoln
