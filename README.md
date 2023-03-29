@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Focus on your goal. Don't look in any direction but ahead.**
+**Accept yourself, love yourself, and keep moving forward.**
 
-Anonymous
+Roy T. Bennett
