@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing will work unless you do.**
+**You are so much more than what you are going through.**
 
-Maya Angelou
+John Tew
