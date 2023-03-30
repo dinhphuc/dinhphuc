@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is too short to spend it at war with yourself.**
+**Be strong when you are weak, brave when you are scared, and humble when you are victorious.**
 
 Anonymous
