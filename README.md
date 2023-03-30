@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**In a dark place we find ourselves, and a little more knowledge lights our way.**
+**When you don't talk, there's a lot of stuff that ends up not getting said.**
 
-Yoda
+Catherine Gilbert Murdock
