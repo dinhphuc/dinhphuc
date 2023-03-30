@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody who ever gave their best regretted it.**
+**Train your mind to see the positive in any situation and keep going.**
 
-George Halas
+Anonymous
