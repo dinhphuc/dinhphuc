@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is ours to be spent, not to be saved.**
+**I'm not here to be average, I'm here to be awesome.**
 
-D. H. Lawrence
+Anonymous
