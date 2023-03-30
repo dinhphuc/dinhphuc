@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It only takes one person to make you happy and change your life: YOU.**
+**The only impossible journey is the one you never begin.**
 
-Charles Orlando
+Tony Robbins
