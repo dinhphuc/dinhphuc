@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Spread love everywhere you go. Let no one ever come to you without leaving happier.**
+**The absence of adversity is an indicator that my goals aren't significant enough.**
 
-Mother Teresa
+Clint Bruce
