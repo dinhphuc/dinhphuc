@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Train your mind to see the positive in any situation and keep going.**
+**Today is a beautiful day and I will attract good things into my life.**
 
 Anonymous
