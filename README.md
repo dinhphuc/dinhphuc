@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are so much more than what you are going through.**
+**Life is too short to spend it at war with yourself.**
 
-John Tew
+Anonymous
