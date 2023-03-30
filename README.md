@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I hated every minute of training, but I said, 'Don't quit. Suffer now and live the rest of your life as a champion'.**
+**Failure is not the falling down but the staying down.**
 
-Muhammad Ali
+Anonymous
