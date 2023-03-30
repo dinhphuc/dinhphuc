@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Measure a thousand times and cut once.**
+**Hardships often prepare ordinary people for an extraordinary destiny.**
 
-Turkish Proverb
+C.S. Lewis
