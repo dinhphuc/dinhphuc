@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When the 'why' is clear, the 'how' is easy.**
+**Opportunities don't happen. You create them.**
 
-Anonymous
+Chris Grosser
