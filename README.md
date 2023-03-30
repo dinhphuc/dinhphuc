@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm not here to be average, I'm here to be awesome.**
+**Don't criticize, condemn or complain.**
 
-Anonymous
+Dale Carnegie
