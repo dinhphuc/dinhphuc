@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The things you regret most in life are the risks you didn't take.**
+**I don't count my sit-ups; I only start counting when it starts hurting because they're the only ones that count.**
 
-Anonymous
+Muhammad Ali
