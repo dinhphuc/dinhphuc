@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are so much more than what you are going through.**
+**Measure a thousand times and cut once.**
 
-John Tew
+Turkish Proverb
