@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Think well of all, be patient with all, and try to find the good in all.**
+**It is not the strongest of the species that survive, nor the most intelligent, but the one most responsive to change.**
 
-Muhammad Ali
+Charles Darwin
