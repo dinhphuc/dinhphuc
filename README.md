@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There are two ways of spreading light: to be the candle, or the mirror that reflects it.**
+**I've failed over and over and over again in my life and that is why I succeed.**
 
-Edith Wharton
+Michael Jordan
