@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The absence of adversity is an indicator that my goals aren't significant enough.**
+**It only takes one person to make you happy and change your life: YOU.**
 
-Clint Bruce
+Charles Orlando
