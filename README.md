@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**One of the best ways of being happy with life is to make someone happy.**
+**Spread love everywhere you go. Let no one ever come to you without leaving happier.**
 
-Anonymous
+Mother Teresa
