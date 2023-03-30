@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**As we express our gratitude, we must never forget that the highest appreciation is not to utter words, but to live by them.**
+**One of the best ways of being happy with life is to make someone happy.**
 
-John F. Kennedy
+Anonymous
