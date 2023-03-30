@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Opportunities don't happen. You create them.**
+**Think well of all, be patient with all, and try to find the good in all.**
 
-Chris Grosser
+Muhammad Ali
