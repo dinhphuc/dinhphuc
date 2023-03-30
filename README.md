@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything will work out in the end. You don't need to know how. You just have to trust that it will.**
+**Nobody can make you to feel inferior without your consent.**
 
-Anonymous
+Eleanor Roosevelt
