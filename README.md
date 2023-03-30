@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The only impossible journey is the one you never begin.**
+**Nobody who ever gave their best regretted it.**
 
-Tony Robbins
+George Halas
