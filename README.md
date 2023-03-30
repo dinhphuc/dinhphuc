@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Hardships often prepare ordinary people for an extraordinary destiny.**
+**There are two ways of spreading light: to be the candle, or the mirror that reflects it.**
 
-C.S. Lewis
+Edith Wharton
