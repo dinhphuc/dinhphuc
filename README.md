@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Optimism is a happiness magnet. If you stay positive, good things and good people will be drawn to you.**
+**Life is ours to be spent, not to be saved.**
 
-Mary Lou Retton
+D. H. Lawrence
