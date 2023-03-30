@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not the strongest of the species that survive, nor the most intelligent, but the one most responsive to change.**
+**Everything will work out in the end. You don't need to know how. You just have to trust that it will.**
 
-Charles Darwin
+Anonymous
