@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody can make you to feel inferior without your consent.**
+**Nothing will work unless you do.**
 
-Eleanor Roosevelt
+Maya Angelou
