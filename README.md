@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I don't count my sit-ups; I only start counting when it starts hurting because they're the only ones that count.**
+**In a dark place we find ourselves, and a little more knowledge lights our way.**
 
-Muhammad Ali
+Yoda
