@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Today is a beautiful day and I will attract good things into my life.**
+**The things you regret most in life are the risks you didn't take.**
 
 Anonymous
