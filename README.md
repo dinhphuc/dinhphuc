@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you don't talk, there's a lot of stuff that ends up not getting said.**
+**It's a good day to be happy.**
 
-Catherine Gilbert Murdock
+Anonymous
