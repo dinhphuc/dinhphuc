@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't criticize, condemn or complain.**
+**When the 'why' is clear, the 'how' is easy.**
 
-Dale Carnegie
+Anonymous
