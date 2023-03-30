@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A good life is doing what you love as much as you can and doing what you must as much as you should.**
+**Optimism is a happiness magnet. If you stay positive, good things and good people will be drawn to you.**
 
-Savania China
+Mary Lou Retton
