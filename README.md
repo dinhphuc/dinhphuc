@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I don't count my sit-ups; I only start counting when it starts hurting because they're the only ones that count.**
+**And in the end, the love you take, is equal to the love you make.**
 
-Muhammad Ali
+The Beatles
