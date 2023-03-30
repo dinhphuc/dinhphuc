@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success trains. Failure complains.**
+**You are so much more than what you are going through.**
 
-Anonymous
+John Tew
