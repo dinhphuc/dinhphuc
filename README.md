@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to find happiness, find gratitude.**
+**Give up on being perfect and start working on becoming yourself.**
 
-Steve Maraboli
+Anna Quindlen
