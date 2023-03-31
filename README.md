@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Run when you can, walk if you have to, crawl if you must; just never give up.**
+**What you're thinking is what you're becoming.**
 
-Dean Karnazes
+Muhammad Ali
