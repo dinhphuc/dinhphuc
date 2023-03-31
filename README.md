@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The positive thinker sees the invisible, feels the intangible, and achieves the impossible.**
+**Certain things catch your eye, but pursue only those that capture the heart.**
 
-Winston Churchill
+Ancient Indian Proverb
