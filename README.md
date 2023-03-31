@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Certain things catch your eye, but pursue only those that capture the heart.**
+**If you are willing to do more than you are paid to do, eventually you will be paid to do more than you do.**
 
-Ancient Indian Proverb
+Anonymous
