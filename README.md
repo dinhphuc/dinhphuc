@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be not afraid of life. Believe that life is worth living, and your belief will help create the fact.**
+**There are two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle.**
 
-William James
+Albert Einstein
