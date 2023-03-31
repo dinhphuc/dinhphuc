@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If I have the belief that I can do it, I shall surely acquire the capacity to do it even if I may not have it at the beginning.**
+**It's not whether you get knocked down. It's whether you get back up.**
 
-Gandhi
+Vince Lombardi
