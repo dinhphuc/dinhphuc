@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When it gets difficult is often right before you succeed.**
+**Love is not running away or giving up, it is standing and fighting for every moment.**
 
-Jeffrey Walker
+M.F. Moonzajer
