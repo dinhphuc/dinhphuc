@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If it doesn't challenge you, it won't change you.**
+**Many of the truths that we cling to depend on our point of view.**
 
-Anonymous
+Yoda
