@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There are two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle.**
+**If you can't live longer, live deeper.**
 
-Albert Einstein
+Italian Proverb
