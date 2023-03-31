@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I've failed over and over and over again in my life and that is why I succeed.**
+**Smile, it is the key that fits the lock of everybody's heart.**
 
-Michael Jordan
+Anthony J D'Angelo
