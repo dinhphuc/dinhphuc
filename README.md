@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything you've ever wanted is on the other side of fear.**
+**Doing what you like is freedom. Liking what you do is happiness.**
 
-George Addair
+Anonymous
