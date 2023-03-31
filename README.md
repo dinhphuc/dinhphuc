@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Losers quit when they're tired. Winners quit when they've won.**
+**When it gets difficult is often right before you succeed.**
 
-Anonymous
+Jeffrey Walker
