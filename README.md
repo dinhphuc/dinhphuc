@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you want to succeed as bad as you want to breathe, you will be successful.**
+**The best feeling of happiness is when you're happy because you've made somebody else happy.**
 
-Eric Thomas
+Anonymous
