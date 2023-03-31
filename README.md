@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Many of the truths that we cling to depend on our point of view.**
+**Happiness resides not in possessions, and not in gold, happiness dwells in the soul.**
 
-Yoda
+Democritus
