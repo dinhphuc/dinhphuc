@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of getting ahead is getting started.**
+**Beat the drum inside the house to spare the neighbors.**
 
-Mark Twain
+Chinese Proverb
