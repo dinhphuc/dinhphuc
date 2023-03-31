@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no charm equal to tenderness of heart.**
+**Losers quit when they're tired. Winners quit when they've won.**
 
-Jane Austen
+Anonymous
