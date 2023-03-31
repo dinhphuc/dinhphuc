@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Beat the drum inside the house to spare the neighbors.**
+**The positive thinker sees the invisible, feels the intangible, and achieves the impossible.**
 
-Chinese Proverb
+Winston Churchill
