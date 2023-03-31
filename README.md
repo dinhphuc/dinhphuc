@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are willing to do more than you are paid to do, eventually you will be paid to do more than you do.**
+**Everything you've ever wanted is on the other side of fear.**
 
-Anonymous
+George Addair
