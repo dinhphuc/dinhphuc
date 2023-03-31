@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can't live longer, live deeper.**
+**Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.**
 
-Italian Proverb
+Samuel Beckett
