@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Learn to value yourself, which means: fight for your happiness.**
+**Make the most of yourself....for that is all there is of you.**
 
-Ayn Rand
+Ralph Waldo Emerson
