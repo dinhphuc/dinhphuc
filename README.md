@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Give up on being perfect and start working on becoming yourself.**
+**Keep smiling. It makes people wonder what you are up to.**
 
-Anna Quindlen
+Anonymous
