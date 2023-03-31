@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The best feeling of happiness is when you're happy because you've made somebody else happy.**
+**If I have the belief that I can do it, I shall surely acquire the capacity to do it even if I may not have it at the beginning.**
 
-Anonymous
+Gandhi
