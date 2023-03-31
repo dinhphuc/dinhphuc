@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep smiling. It makes people wonder what you are up to.**
+**When you want to succeed as bad as you want to breathe, you will be successful.**
 
-Anonymous
+Eric Thomas
