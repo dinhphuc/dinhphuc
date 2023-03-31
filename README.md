@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.**
+**Learn to value yourself, which means: fight for your happiness.**
 
-Samuel Beckett
+Ayn Rand
