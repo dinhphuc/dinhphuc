@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Make the most of yourself....for that is all there is of you.**
+**Go confidently in the direction of your dreams! Live the life you've imagined.**
 
-Ralph Waldo Emerson
+Henry David Thoreau
