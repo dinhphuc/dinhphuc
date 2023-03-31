@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**What you're thinking is what you're becoming.**
+**If it doesn't challenge you, it won't change you.**
 
-Muhammad Ali
+Anonymous
