@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I knew that if I failed I wouldn't regret that. But I would regret not trying.**
+**There is no charm equal to tenderness of heart.**
 
-Jeff Bezos
+Jane Austen
