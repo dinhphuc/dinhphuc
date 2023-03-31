@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Many of the truths that we cling to depend on our point of view.**
+**It's important to feel good about yourself. When you feel good about yourself, nothing negative can touch you.**
 
-Yoda
+Anonymous
