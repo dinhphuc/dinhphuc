@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of getting ahead is getting started.**
+**Be helpful. When you see a person without a smile, give them yours.**
 
-Mark Twain
+Zig Ziglar
