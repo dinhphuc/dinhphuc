@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be a voice not an echo.**
+**There's nothing that you can do that can't be done.**
 
-Anonymous
+The Beatles
