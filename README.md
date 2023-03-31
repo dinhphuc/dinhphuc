@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Love is not running away or giving up, it is standing and fighting for every moment.**
+**If you want to find happiness, find gratitude.**
 
-M.F. Moonzajer
+Steve Maraboli
