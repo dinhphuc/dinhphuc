@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The harder the struggle, the more glorious the triumph.**
+**It's going to be hard. But hard is not impossible.**
 
 Anonymous
