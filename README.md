@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Coming together is a beginning; keeping together is progress; working together is success.**
+**There's no shortage of remarkable ideas, what's missing is the will to execute them.**
 
-Edward Everett Hale
+Seth Godin
