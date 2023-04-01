@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**How wonderful it is that nobody need wait a single moment before starting to improve the world.**
+**In every success story, you will find someone who made a courageous decision.**
 
-Anne Frank
+Peter Drucker
