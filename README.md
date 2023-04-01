@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Once you're beat mentally, you might as well not even go to the starting line.**
+**Anyone who has grown mentally, physically or spiritually knows that growth is not found in comfort.**
 
-Todd Williams
+Anonymous
