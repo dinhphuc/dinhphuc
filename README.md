@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Find a place inside where there's joy, and the joy will burn out the pain.**
+**Always plan for the fact that no plan ever goes according to plan.**
 
-Joseph Campbell
+Simon Sinek
