@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**How you do anything is how you do everything.**
+**The key to being happy is knowing you have the power to choose what to accept and what to let go.**
 
-T. Harv Eker
+Anonymous
