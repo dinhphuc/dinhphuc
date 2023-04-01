@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest.**
+**It is only possible to live happily ever after on a daily basis.**
 
-Sri Chinmoy
+Anonymous
