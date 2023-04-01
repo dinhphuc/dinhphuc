@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness resides not in possessions, and not in gold, happiness dwells in the soul.**
+**I didn't come this far to only come this far.**
 
-Democritus
+Anonymous
