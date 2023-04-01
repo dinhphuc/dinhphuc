@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**In every success story, you will find someone who made a courageous decision.**
+**Continuous effort - not strength or intelligence - is the key to unlocking our potential.**
 
-Peter Drucker
+Liane Cardes
