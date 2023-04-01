@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Someone who is busier than you is running right now.**
+**You don't want to look back and know you could have done better.**
 
-Nike
+Anonymous
