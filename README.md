@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your path you must decide.**
+**The harder the struggle, the more glorious the triumph.**
 
-Yoda
+Anonymous
