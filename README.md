@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A truly happy person is one who can enjoy the scenery when they have made a wrong turn.**
+**Yesterday is not ours to recover, but tomorrow is ours to win or lose.**
 
-Anonymous
+Lyndon B. Johnson
