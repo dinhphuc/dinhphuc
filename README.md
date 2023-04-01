@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Words may inspire but only action creates change.**
+**There are two things a person should never be angry at: what they can help, and what they cannot.**
 
-Simon Sinek
+Plato
