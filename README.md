@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Yesterday is not ours to recover, but tomorrow is ours to win or lose.**
+**Accept yourself, love yourself, and keep moving forward.**
 
-Lyndon B. Johnson
+Roy T. Bennett
