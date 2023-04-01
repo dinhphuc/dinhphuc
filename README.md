@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody who ever gave their best regretted it.**
+**Someone who is busier than you is running right now.**
 
-George Halas
+Nike
