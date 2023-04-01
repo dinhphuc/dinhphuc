@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Wherever you go, no matter what the weather, always bring your own sunshine.**
+**How you do anything is how you do everything.**
 
-Anthony J. D'Angelo
+T. Harv Eker
