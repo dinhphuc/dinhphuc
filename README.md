@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Very little is needed to make a happy life; it is all within yourself, in your way of thinking.**
+**Hard work beats talent when talent doesn't work hard.**
 
-Marcus Aurelius
+Tim Notke
