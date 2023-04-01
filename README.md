@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Always plan for the fact that no plan ever goes according to plan.**
+**Once you're beat mentally, you might as well not even go to the starting line.**
 
-Simon Sinek
+Todd Williams
