@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Alone, we can do so little; together we can do so much.**
+**Happens to every guy sometimes this does.**
 
-Helen Keller
+Yoda
