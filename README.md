@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't want to look back and know you could have done better.**
+**Your path you must decide.**
 
-Anonymous
+Yoda
