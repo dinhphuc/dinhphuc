@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I didn't come this far to only come this far.**
+**I am thankful for all those difficult people in my life. They have shown me exactly who I do not want to be.**
 
 Anonymous
