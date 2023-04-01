@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It is only possible to live happily ever after on a daily basis.**
+**Wherever you go, no matter what the weather, always bring your own sunshine.**
 
-Anonymous
+Anthony J. D'Angelo
