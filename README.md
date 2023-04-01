@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Continuous effort - not strength or intelligence - is the key to unlocking our potential.**
+**Always plan for the fact that no plan ever goes according to plan.**
 
-Liane Cardes
+Simon Sinek
