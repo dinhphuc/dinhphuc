@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's going to be hard. But hard is not impossible.**
+**Nobody who ever gave their best regretted it.**
 
-Anonymous
+George Halas
