@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's going to be hard. But hard is not impossible.**
+**Alone, we can do so little; together we can do so much.**
 
-Anonymous
+Helen Keller
