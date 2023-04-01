@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There's no shortage of remarkable ideas, what's missing is the will to execute them.**
+**A truly happy person is one who can enjoy the scenery when they have made a wrong turn.**
 
-Seth Godin
+Anonymous
