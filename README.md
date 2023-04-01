@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Accept yourself, love yourself, and keep moving forward.**
+**The greatest teacher, failure is.**
 
-Roy T. Bennett
+Yoda
