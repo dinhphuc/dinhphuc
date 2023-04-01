@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Hard work beats talent when talent doesn't work hard.**
+**Coming together is a beginning; keeping together is progress; working together is success.**
 
-Tim Notke
+Edward Everett Hale
