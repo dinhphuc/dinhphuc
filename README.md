@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot fail at being yourself.**
+**Be the change you are trying to create.**
 
-Wayne Dyer
+Mahatma Gandhi
