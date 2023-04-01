@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success trains. Failure complains.**
+**Very little is needed to make a happy life; it is all within yourself, in your way of thinking.**
 
-Anonymous
+Marcus Aurelius
