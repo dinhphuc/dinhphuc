@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There are two things a person should never be angry at: what they can help, and what they cannot.**
+**Find a place inside where there's joy, and the joy will burn out the pain.**
 
-Plato
+Joseph Campbell
