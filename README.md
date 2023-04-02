@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Beauty begins the moment you decide to be yourself.**
+**When a new day begins, dare to smile gratefully.**
 
-Coco Chanel
+Steve Maraboli
