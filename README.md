@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No man can paddle two canoes at the same time.**
+**A winner never stops trying.**
 
-Bantu Proverb
+Tom Landry
