@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A winner never stops trying.**
+**Hustle until your haters ask if you are hiring.**
 
-Tom Landry
+Anonymous
