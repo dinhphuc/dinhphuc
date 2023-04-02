@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not about perfect. It's about effort.**
+**May the Force be with you.**
 
-Jillian Michaels
+Yoda
