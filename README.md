@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're presenting yourself with confidence, you can pull off pretty much anything.**
+**And in the end, the love you take, is equal to the love you make.**
 
-Katy Perry
+The Beatles
