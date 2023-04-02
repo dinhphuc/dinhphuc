@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I am an ordinary man who worked hard to develop the talent I was given. I believed in myself, and I believe in the goodness of others.**
+**It is not in the stars to hold our destiny but in ourselves.**
 
-Muhammad Ali
+William Shakespeare
