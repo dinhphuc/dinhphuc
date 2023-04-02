@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When the 'why' is clear, the 'how' is easy.**
+**It matters not what someone is born, but what they grow to be.**
 
-Anonymous
+Master Oogway
