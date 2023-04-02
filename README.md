@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A teacher is better than two books.**
+**Ask yourself: Can I give more? The answer is usually: Yes.**
 
-German Proverb
+Paul Tergat
