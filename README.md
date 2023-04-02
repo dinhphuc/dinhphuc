@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Give up on being perfect and start working on becoming yourself.**
+**If you have only one smile in you, give it to the people you love.**
 
-Anna Quindlen
+Maya Angelou
