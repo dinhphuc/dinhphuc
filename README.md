@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you have only one smile in you, give it to the people you love.**
+**Practice 'gratitude' each day and your relationship will last forever.**
 
-Maya Angelou
+Anonymous
