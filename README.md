@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Practice 'gratitude' each day and your relationship will last forever.**
+**Fear is temporary. Regret is forever.**
 
 Anonymous
