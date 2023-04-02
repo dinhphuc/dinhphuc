@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe in yourself. You are braver than you think, more talented than you know, and capable of more than you imagine.**
+**If you're presenting yourself with confidence, you can pull off pretty much anything.**
 
-Roy T. Bennett
+Katy Perry
