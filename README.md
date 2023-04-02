@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**And in the end, the love you take, is equal to the love you make.**
+**Beauty begins the moment you decide to be yourself.**
 
-The Beatles
+Coco Chanel
