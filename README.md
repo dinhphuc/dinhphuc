@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When a new day begins, dare to smile gratefully.**
+**Don't stop until you're proud.**
 
-Steve Maraboli
+Anonymous
