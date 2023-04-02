@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You alone are enough. You have nothing to prove to anybody.**
+**No man can paddle two canoes at the same time.**
 
-Maya Angelou
+Bantu Proverb
