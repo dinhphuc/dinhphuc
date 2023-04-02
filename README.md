@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not in the stars to hold our destiny but in ourselves.**
+**When the 'why' is clear, the 'how' is easy.**
 
-William Shakespeare
+Anonymous
