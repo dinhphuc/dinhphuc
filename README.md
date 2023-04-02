@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't stop until you're proud.**
+**You alone are enough. You have nothing to prove to anybody.**
 
-Anonymous
+Maya Angelou
