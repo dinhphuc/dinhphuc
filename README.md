@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your task is not to seek for love, but merely to seek and find all the barriers within yourself that you have built against it.**
+**Well I am here to tell you that one of the best ways to make a difference, is by sharing a smile and radiating good positive energy.**
 
-Rumi
+Anonymous
