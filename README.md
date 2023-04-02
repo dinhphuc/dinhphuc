@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**May the Force be with you.**
+**If you're presenting yourself with confidence, you can pull off pretty much anything.**
 
-Yoda
+Katy Perry
