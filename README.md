@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Throw kindness around like confetti.**
+**If you have only one smile in you, give it to the people you love.**
 
-Anonymous
+Maya Angelou
