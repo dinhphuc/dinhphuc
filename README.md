@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Some people ask me 'How to be happy' and my answer is always the same: just be happy!**
+**Whether you think you can or can't, you're right.**
 
-Anonymous
+Henry Ford
