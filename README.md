@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Until you're broken, you don't know what you're made of.**
+**Don't be afraid to give up the good to go for the great.**
 
-Anonymous
+John D. Rockefeller
