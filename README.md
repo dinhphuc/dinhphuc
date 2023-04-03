@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There are only two mistakes one can make along the road to truth; not going all the way, and not starting.**
+**Simple to open a shop; another thing to keep it open.**
 
-Buddha
+Chinese Proverb
