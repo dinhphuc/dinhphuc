@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We either make ourselves miserable or we make ourselves strong. The amount of work is the same.**
+**Love has no age, no limit; and no death.**
 
-Carlos Costaneda
+John Galsworthy
