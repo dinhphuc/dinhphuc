@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Through challenge and difficulty, we learn to see life differently than before.**
+**Shared joy is a double joy; shared sorrow is half a sorrow.**
 
-Auliq-Ice
+Swedish Proverb
