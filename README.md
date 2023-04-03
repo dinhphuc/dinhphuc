@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember, most of your stress comes from the way you respond, not the way life is.**
+**Just think how happy you would be if you lost everything you have right now, and then got it back again.**
 
-Anonymous
+Frances Rodman
