@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Love has no age, no limit; and no death.**
+**People are just as happy as they make up their minds to be.**
 
-John Galsworthy
+Abraham Lincoln
