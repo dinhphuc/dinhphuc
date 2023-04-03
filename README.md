@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Simple to open a shop; another thing to keep it open.**
+**We either make ourselves miserable or we make ourselves strong. The amount of work is the same.**
 
-Chinese Proverb
+Carlos Costaneda
