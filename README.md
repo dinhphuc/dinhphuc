@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When the 'why' is clear, the 'how' is easy.**
+**Anyone who has grown mentally, physically or spiritually knows that growth is not found in comfort.**
 
 Anonymous
