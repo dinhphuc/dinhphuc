@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Before telling secrets on the road, look in the bushes.**
+**Some people ask me 'How to be happy' and my answer is always the same: just be happy!**
 
-Chinese Proverb
+Anonymous
