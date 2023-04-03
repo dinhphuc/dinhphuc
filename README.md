@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Enjoy the little things, for one day you may look back and realize they were the big things.**
+**I am thankful for all those difficult people in my life. They have shown me exactly who I do not want to be.**
 
-Robert Brault
+Anonymous
