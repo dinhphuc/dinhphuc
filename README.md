@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**So certain were you. Go back and closer you must look.**
+**Remember, most of your stress comes from the way you respond, not the way life is.**
 
-Yoda
+Anonymous
