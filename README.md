@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Well I am here to tell you that one of the best ways to make a difference, is by sharing a smile and radiating good positive energy.**
+**I am in charge of how I feel and today I am choosing happiness.**
 
 Anonymous
