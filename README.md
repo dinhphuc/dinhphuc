@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Shared joy is a double joy; shared sorrow is half a sorrow.**
+**Rise up. Start fresh. See the bright opportunity in each new day.**
 
-Swedish Proverb
+Anonymous
