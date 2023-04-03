@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**People are just as happy as they make up their minds to be.**
+**Until you're broken, you don't know what you're made of.**
 
-Abraham Lincoln
+Anonymous
