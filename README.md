@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Just think how happy you would be if you lost everything you have right now, and then got it back again.**
+**With virtue, you can't be completely poor; without it, you can't be truly rich.**
 
-Frances Rodman
+Chinese Proverb
