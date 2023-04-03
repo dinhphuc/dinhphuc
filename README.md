@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**To know the road ahead, ask those coming back.**
+**Enjoy the little things, for one day you may look back and realize they were the big things.**
 
-Chinese Proverb
+Robert Brault
