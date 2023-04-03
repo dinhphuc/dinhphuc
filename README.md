@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**With virtue, you can't be completely poor; without it, you can't be truly rich.**
+**A fault confessed is half redressed.**
 
-Chinese Proverb
+Zulu Proverb
