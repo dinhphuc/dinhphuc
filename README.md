@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Rise up. Start fresh. See the bright opportunity in each new day.**
+**Some people dream of success... while others wake up and work hard at it.**
 
 Anonymous
