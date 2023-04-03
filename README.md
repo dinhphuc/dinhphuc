@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't waste a minute not being happy. If one door closes, run to the next window - or break down a door.**
+**You don't have to be great to start. But you do have to start to be great.**
 
-Brooke Shields
+Zig Ziglar
