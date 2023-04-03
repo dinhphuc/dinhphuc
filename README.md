@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I am in charge of how I feel and today I am choosing happiness.**
+**There are only two mistakes one can make along the road to truth; not going all the way, and not starting.**
 
-Anonymous
+Buddha
