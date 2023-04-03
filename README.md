@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Until you're broken, you don't know what you're made of.**
+**Education is the most powerful weapon which you can use to change the world.**
 
-Anonymous
+Nelson Mandela
