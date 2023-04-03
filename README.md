@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Some people dream of success... while others wake up and work hard at it.**
+**When you know what you want, and want it bad enough, you'll find a way to get it.**
 
-Anonymous
+Jim Rohn
