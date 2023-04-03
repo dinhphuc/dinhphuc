@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whoever gossips to you will gossip about you.**
+**Your life does not get better by chance, it gets better by change.**
 
-Spanish Proverb
+Anonymous
