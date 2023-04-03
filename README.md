@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Train yourself to let go of everything you fear to lose.**
+**Through challenge and difficulty, we learn to see life differently than before.**
 
-Yoda
+Auliq-Ice
