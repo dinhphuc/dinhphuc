@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A fault confessed is half redressed.**
+**You can't use up creativity. The more you use, the more you have.**
 
-Zulu Proverb
+Maya Angelou
