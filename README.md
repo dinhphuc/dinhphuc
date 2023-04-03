@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whether you think you can or can't, you're right.**
+**Don't give up on yourself. You're worth it.**
 
-Henry Ford
+Anonymous
