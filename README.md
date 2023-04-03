@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't have to be great to start. But you do have to start to be great.**
+**So certain were you. Go back and closer you must look.**
 
-Zig Ziglar
+Yoda
