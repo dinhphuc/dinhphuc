@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe and act as if it were impossible to fail.**
+**When you dare to dream, dare to follow that dream; dare to suffer through the pain, sacrifice, self-doubts and friction from the world.**
 
-Charles Kettering
+Laura Schlessinger
