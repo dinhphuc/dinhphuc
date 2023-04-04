@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember that not getting what you want is sometimes a wonderful stroke of luck.**
+**I can't change the direction of the wind, but I can adjust my sails to always reach my destination.**
 
-Dalai Lama
+Jimmy Dean
