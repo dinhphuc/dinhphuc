@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Before telling secrets on the road, look in the bushes.**
+**The only easy day was yesterday.**
 
-Chinese Proverb
+Navy Seals
