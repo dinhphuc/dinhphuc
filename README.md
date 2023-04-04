@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Once you're beat mentally, you might as well not even go to the starting line.**
+**When you know what you want, and want it bad enough, you'll find a way to get it.**
 
-Todd Williams
+Jim Rohn
