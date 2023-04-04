@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The best way to gain self-confidence is to do what you are afraid to do.**
+**We love life, not because we are used to living but because we are used to loving.**
 
-Swati Sharma
+Friedrich Nietzsche
