@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's a good day to be happy.**
+**Happiness is only real when shared.**
 
-Anonymous
+Jon Krakauer
