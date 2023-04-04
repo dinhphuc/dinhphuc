@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Like the morning sun, you too shall rise and continue to shine.**
+**If it doesn't challenge you, it won't change you.**
 
 Anonymous
