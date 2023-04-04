@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Teachers open the door; you enter by yourself.**
+**We either make ourselves miserable or we make ourselves strong. The amount of work is the same.**
 
-Chinese Proverb
+Carlos Costaneda
