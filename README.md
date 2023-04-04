@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The only thing necessary for the triumph of evil is for good men to do nothing.**
+**Believe and act as if it were impossible to fail.**
 
-Edmund Burke
+Charles Kettering
