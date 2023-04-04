@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe in yourself, take on your challenges, dig deep within yourself to conquer fears. Never let anyone bring you down. You got to keep going.**
+**The only person who can pull me down is myself, and I'm not going to let myself pull me down anymore.**
 
-Chantal Sutherland
+C. JoyBell C
