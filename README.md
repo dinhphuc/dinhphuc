@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**To be a great champion you must believe you are the best. If you're not, pretend you are.**
+**You don't manifest dreams without taking chances.**
 
-Muhammad Ali
+Stephen Richards
