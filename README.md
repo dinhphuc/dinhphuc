@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be happy. It really annoys negative people.**
+**When you are enthusiastic about what you do, you feel this positive energy. It's very simple.**
 
-Ricky Gervais
+Paulo Coelho
