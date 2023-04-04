@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your task is not to seek for love, but merely to seek and find all the barriers within yourself that you have built against it.**
+**Like the morning sun, you too shall rise and continue to shine.**
 
-Rumi
+Anonymous
