@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Why worry? If you've done the very best you can, worrying won't make it any better.**
+**Teachers open the door; you enter by yourself.**
 
-Walt Disney
+Chinese Proverb
