@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are enough, just as you are.**
+**Why worry? If you've done the very best you can, worrying won't make it any better.**
 
-Anonymous
+Walt Disney
