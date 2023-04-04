@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No man can paddle two canoes at the same time.**
+**You are enough, just as you are.**
 
-Bantu Proverb
+Anonymous
