@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do or do not. There is no try.**
+**The pain you feel today will be the strength you feel tomorrow.**
 
-Yoda
+Anonymous
