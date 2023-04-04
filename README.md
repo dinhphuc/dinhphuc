@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't manifest dreams without taking chances.**
+**Remember that not getting what you want is sometimes a wonderful stroke of luck.**
 
-Stephen Richards
+Dalai Lama
