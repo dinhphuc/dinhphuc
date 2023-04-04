@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Running is therapy anyone can afford.**
+**The best way to gain self-confidence is to do what you are afraid to do.**
 
-Toni Sorenson
+Swati Sharma
