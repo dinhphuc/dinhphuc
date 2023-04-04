@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We either make ourselves miserable or we make ourselves strong. The amount of work is the same.**
+**Running is therapy anyone can afford.**
 
-Carlos Costaneda
+Toni Sorenson
