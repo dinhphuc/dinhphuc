@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't explain your philosophy. Embody it.**
+**Examine what is said, not who speaks.**
 
-Epictetus
+Arab Proverb
