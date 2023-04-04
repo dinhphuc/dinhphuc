@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your problem isn't the problem, it's your attitude about the problem.**
+**Your task is not to seek for love, but merely to seek and find all the barriers within yourself that you have built against it.**
 
-Ann Brashares
+Rumi
