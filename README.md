@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The pain you feel today will be the strength you feel tomorrow.**
+**To be a great champion you must believe you are the best. If you're not, pretend you are.**
 
-Anonymous
+Muhammad Ali
