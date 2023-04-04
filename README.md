@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The only person who can pull me down is myself, and I'm not going to let myself pull me down anymore.**
+**You are what you do, not what you say you'll do.**
 
-C. JoyBell C
+Anonymous
