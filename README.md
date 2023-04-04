@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Examine what is said, not who speaks.**
+**No man can paddle two canoes at the same time.**
 
-Arab Proverb
+Bantu Proverb
