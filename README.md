@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We love life, not because we are used to living but because we are used to loving.**
+**The supreme art of war is to subdue the enemy without fighting.**
 
-Friedrich Nietzsche
+Sun Tzu
