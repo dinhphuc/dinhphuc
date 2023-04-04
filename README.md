@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Two wrongs don't make a right.**
+**Be happy. It really annoys negative people.**
 
-English Proverb
+Ricky Gervais
