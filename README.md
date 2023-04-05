@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Go after the things you want.**
+**The best way to make your dreams come true is to wake up.**
 
-Simon Sinek
+Paul Valery
