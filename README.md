@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When the sun rises, it rises for everyone.**
+**Life only comes around once, so do whatever makes you happy, and be with whoever makes you smile.**
 
-Cuban Proverb
+Anonymous
