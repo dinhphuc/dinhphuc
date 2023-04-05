@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't worry about failure; you only have to be right once.**
+**You don't get what you wish for. You get what you work for.**
 
-Drew Houston
+Anonymous
