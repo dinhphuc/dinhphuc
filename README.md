@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Make sure your worst enemy doesn't live between your own two ears.**
+**Success is not final, failure is not fatal: it is the courage to continue that counts.**
 
-Laird Hamilton
+Winston Churchill
