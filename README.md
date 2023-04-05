@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The more grateful I am, the more beauty I see.**
+**Don't sail out farther than you can row back.**
 
-Mary Davis
+Danish Proverb
