@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't miss out on something that could be great just because it could also be difficult.**
+**It only takes one person to make you happy and change your life: YOU.**
 
-Anonymous
+Charles Orlando
