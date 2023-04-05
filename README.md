@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Positive anything is better than negative nothing.**
+**Whether you think you can or can't, you're right.**
 
-Elbert Hubbard
+Henry Ford
