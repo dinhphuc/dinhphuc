@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't get what you wish for. You get what you work for.**
+**Success seems to be connected with action. Successful people keep moving. They make mistakes, but they don't quit.**
 
-Anonymous
+Conrad Hilton
