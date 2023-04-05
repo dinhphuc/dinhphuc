@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Always find opportunities to make someone smile, and to offer random acts of kindness in everyday life.**
+**Go after the things you want.**
 
-Roy T. Bennett
+Simon Sinek
