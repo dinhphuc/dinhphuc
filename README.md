@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life only comes around once, so do whatever makes you happy, and be with whoever makes you smile.**
+**Successful people have fear, successful people have doubts, and successful people have worries. They just don't let these feelings stop them.**
 
-Anonymous
+T. Harv Eker
