@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is not final, failure is not fatal: it is the courage to continue that counts.**
+**A secret to happiness is letting every situatiuon be what it is instead of what you think it should be.**
 
-Winston Churchill
+Anonymous
