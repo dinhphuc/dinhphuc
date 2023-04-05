@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not bragging if you can back it up.**
+**Gratitude turns what we have into enough.**
 
-Muhammed Ali
+Anonymous
