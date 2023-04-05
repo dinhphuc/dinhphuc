@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is only real when shared.**
+**It's the repetition of affirmations that leads to belief. And once that belief becomes a deep conviction, things begin to happen.**
 
-Jon Krakauer
+Muhammad Ali
