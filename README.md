@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Choosing to be positive and having a grateful attitude is going to determine how you're going to live your life.**
+**It never gets easier. You just get better.**
 
-Joel Osteen
+Jordan Hoechlin
