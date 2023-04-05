@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A good life is doing what you love as much as you can and doing what you must as much as you should.**
+**Choosing to be positive and having a grateful attitude is going to determine how you're going to live your life.**
 
-Savania China
+Joel Osteen
