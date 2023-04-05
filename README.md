@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing is impossible, the word itself says "I'm possible"!**
+**A runner must run with dreams in his heart.**
 
-Audrey Hepburn
+Emil Zatopek
