@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success seems to be connected with action. Successful people keep moving. They make mistakes, but they don't quit.**
+**A good life is doing what you love as much as you can and doing what you must as much as you should.**
 
-Conrad Hilton
+Savania China
