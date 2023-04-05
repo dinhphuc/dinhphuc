@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A runner must run with dreams in his heart.**
+**When the sun rises, it rises for everyone.**
 
-Emil Zatopek
+Cuban Proverb
