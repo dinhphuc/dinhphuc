@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A warm smile is the universal language of kindness.**
+**Find a place inside where there's joy, and the joy will burn out the pain.**
 
-William Arthur Ward
+Joseph Campbell
