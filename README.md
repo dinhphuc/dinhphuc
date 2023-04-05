@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep smiling. It makes people wonder what you are up to.**
+**The more grateful I am, the more beauty I see.**
 
-Anonymous
+Mary Davis
