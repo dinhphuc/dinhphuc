@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Coming together is a beginning; keeping together is progress; working together is success.**
+**Positive anything is better than negative nothing.**
 
-Edward Everett Hale
+Elbert Hubbard
