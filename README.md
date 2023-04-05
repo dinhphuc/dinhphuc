@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happens to every guy sometimes this does.**
+**It's not bragging if you can back it up.**
 
-Yoda
+Muhammed Ali
