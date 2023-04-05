@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whether you think you can or can't, you're right.**
+**Don't worry about failure; you only have to be right once.**
 
-Henry Ford
+Drew Houston
