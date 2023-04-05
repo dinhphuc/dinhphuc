@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You alone are enough. You have nothing to prove to anybody.**
+**Always find opportunities to make someone smile, and to offer random acts of kindness in everyday life.**
 
-Maya Angelou
+Roy T. Bennett
