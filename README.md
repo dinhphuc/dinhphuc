@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success doesn't just come and find you, you have to go out and get it.**
+**Nothing is impossible, the word itself says "I'm possible"!**
 
-Anonymous
+Audrey Hepburn
