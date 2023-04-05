@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It never gets easier. You just get better.**
+**You alone are enough. You have nothing to prove to anybody.**
 
-Jordan Hoechlin
+Maya Angelou
