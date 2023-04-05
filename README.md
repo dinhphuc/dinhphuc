@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It only takes one person to make you happy and change your life: YOU.**
+**Make sure your worst enemy doesn't live between your own two ears.**
 
-Charles Orlando
+Laird Hamilton
