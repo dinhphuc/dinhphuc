@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't sail out farther than you can row back.**
+**Happens to every guy sometimes this does.**
 
-Danish Proverb
+Yoda
