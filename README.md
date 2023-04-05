@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever happens, just keep smiling and lose yourself in love.**
+**Keep smiling. It makes people wonder what you are up to.**
 
-Rumi
+Anonymous
