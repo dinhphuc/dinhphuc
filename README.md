@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Successful people have fear, successful people have doubts, and successful people have worries. They just don't let these feelings stop them.**
+**A warm smile is the universal language of kindness.**
 
-T. Harv Eker
+William Arthur Ward
