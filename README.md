@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Find a place inside where there's joy, and the joy will burn out the pain.**
+**Don't miss out on something that could be great just because it could also be difficult.**
 
-Joseph Campbell
+Anonymous
