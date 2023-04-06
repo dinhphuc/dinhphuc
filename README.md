@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I've failed over and over and over again in my life and that is why I succeed.**
+**A positive attitude causes a chain reaction of positive thoughts, events, and outcomes. It is a catalyst, and it sparks extraordinary results.**
 
-Michael Jordan
+Wade Boggs
