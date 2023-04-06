@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no cosmetic for beauty like happiness.**
+**Anyone who has grown mentally, physically or spiritually knows that growth is not found in comfort.**
 
-Maria Mitchell
+Anonymous
