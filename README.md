@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success isn't just about what you accomplish in life. It's about what you inspire others to do.**
+**Often it isn't the mountains ahead that wear you out, it's the little pebble in your shoe.**
 
-Anonymous
+Muhammad Ali
