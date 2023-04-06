@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how much it hurts, hold your head up and keep going.**
+**How long are you going to wait before you demand the best for yourself?**
 
-Anonymous
+Epictetus
