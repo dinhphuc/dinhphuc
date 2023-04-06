@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Feel the force!**
+**Positive anything is better than negative nothing.**
 
-Yoda
+Elbert Hubbard
