@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A secret to happiness is letting every situatiuon be what it is instead of what you think it should be.**
+**There's nothing that you can do that can't be done.**
 
-Anonymous
+The Beatles
