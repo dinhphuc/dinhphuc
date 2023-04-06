@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are so much more than what you are going through.**
+**There is no cosmetic for beauty like happiness.**
 
-John Tew
+Maria Mitchell
