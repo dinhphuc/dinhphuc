@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Passion first and everything will fall into place.**
+**Go fast enough to get there, but slow enough to see.**
 
-Holly Holm
+Jimmy Buffett
