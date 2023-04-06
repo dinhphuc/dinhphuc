@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**How long are you going to wait before you demand the best for yourself?**
+**The greatest teacher, failure is.**
 
-Epictetus
+Yoda
