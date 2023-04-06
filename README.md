@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I didn't come this far to only come this far.**
+**Never let the fear of striking out keep you from playing the game.**
 
-Anonymous
+Babe Ruth
