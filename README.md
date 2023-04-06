@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are what you do, not what you say you'll do.**
+**In a battle between elephants, the ants get squashed.**
 
-Anonymous
+Thai Proverb
