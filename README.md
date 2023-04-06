@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Always believe that something wonderful is about to happen.**
+**Work hard and be nice to people.**
 
 Anonymous
