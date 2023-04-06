@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Instead of worrying about what you cannot control, shift your energy to what you can create.**
+**No matter how much it hurts, hold your head up and keep going.**
 
-Roy T. Bennett
+Anonymous
