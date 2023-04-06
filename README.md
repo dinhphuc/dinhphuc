@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you stumble, make it part of the dance.**
+**Smile at strangers and you just might change a life.**
 
-Anonymous
+Steve Maraboli
