@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are wonderfully made.**
+**Instead of worrying about what you cannot control, shift your energy to what you can create.**
 
-Anonymous
+Roy T. Bennett
