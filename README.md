@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**That is bad news... if you do not believe in yourself.**
+**You are wonderfully made.**
 
-Master Oogway
+Anonymous
