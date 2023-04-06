@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile at strangers and you just might change a life.**
+**You're braver than you believe, and stronger than you seem, and smarter than you think.**
 
-Steve Maraboli
+A.A. Mine
