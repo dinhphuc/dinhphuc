@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest teacher, failure is.**
+**It's not who you are that holds you back, it's who you think you're not.**
 
-Yoda
+Anonymous
