@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not who you are that holds you back, it's who you think you're not.**
+**Every strike brings me closer to the next home run.**
 
-Anonymous
+Babe Ruth
