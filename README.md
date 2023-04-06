@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Every strike brings me closer to the next home run.**
+**Feel the force!**
 
-Babe Ruth
+Yoda
