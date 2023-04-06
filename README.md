@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A positive attitude causes a chain reaction of positive thoughts, events, and outcomes. It is a catalyst, and it sparks extraordinary results.**
+**I didn't come this far to only come this far.**
 
-Wade Boggs
+Anonymous
