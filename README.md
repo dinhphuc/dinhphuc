@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Good people are like candles; they burn themselves up to give others light.**
+**The biggest adventure you can take is to live the life of your dreams.**
 
-Anonymous
+Oprah Winfrey
