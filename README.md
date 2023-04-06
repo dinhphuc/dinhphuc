@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The best way to gain self-confidence is to do what you are afraid to do.**
+**No one is perfect - that's why pencils have erasers.**
 
-Swati Sharma
+Wolfgang Riebe
