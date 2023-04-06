@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to achieve greatness, stop asking for permission.**
+**I've failed over and over and over again in my life and that is why I succeed.**
 
-Anonymous
+Michael Jordan
