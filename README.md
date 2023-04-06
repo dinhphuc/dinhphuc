@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Never let the fear of striking out keep you from playing the game.**
+**Champions play to win. Failure is just feedback. There's everything to gain by trying your best.**
 
-Babe Ruth
+Jim Afremow
