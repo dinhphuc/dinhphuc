@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Positive anything is better than negative nothing.**
+**Passion first and everything will fall into place.**
 
-Elbert Hubbard
+Holly Holm
