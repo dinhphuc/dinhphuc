@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You're braver than you believe, and stronger than you seem, and smarter than you think.**
+**I've failed over and over and over again in my life and that is why I succeed.**
 
-A.A. Mine
+Michael Jordan
