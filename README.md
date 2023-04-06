@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Forgiving yourself, believing in yourself and choosing to love yourself are the best gifts one could receive.**
+**If you're presenting yourself with confidence, you can pull off pretty much anything.**
 
-Brittany Burgunder
+Katy Perry
