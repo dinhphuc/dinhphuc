@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No one is perfect - that's why pencils have erasers.**
+**Always believe that something wonderful is about to happen.**
 
-Wolfgang Riebe
+Anonymous
