@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Go fast enough to get there, but slow enough to see.**
+**You are so much more than what you are going through.**
 
-Jimmy Buffett
+John Tew
