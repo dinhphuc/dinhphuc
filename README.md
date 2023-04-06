@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**In a battle between elephants, the ants get squashed.**
+**The best way to gain self-confidence is to do what you are afraid to do.**
 
-Thai Proverb
+Swati Sharma
