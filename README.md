@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There's nothing that you can do that can't be done.**
+**Good people are like candles; they burn themselves up to give others light.**
 
-The Beatles
+Anonymous
