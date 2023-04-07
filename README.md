@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Always two there are, no more, no less. A master and an apprentice.**
+**Never stop believing in hope because miracles happen everyday.**
 
-Yoda
+Anonymous
