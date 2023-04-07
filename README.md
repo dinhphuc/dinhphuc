@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're presenting yourself with confidence, you can pull off pretty much anything.**
+**If you really look closely, most overnight successes took a long time.**
 
-Katy Perry
+Steve Jobs
