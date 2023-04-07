@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you look at what you have in life, you'll always have more. If you look at what you don't have in life, you'll never have enough.**
+**Always two there are, no more, no less. A master and an apprentice.**
 
-Oprah Winfrey
+Yoda
