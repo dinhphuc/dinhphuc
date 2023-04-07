@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is trying things to see if they work.**
+**We must embrace pain and burn it as fuel for our journey.**
 
-Ray Bradbury
+Kenji Miyazawa
