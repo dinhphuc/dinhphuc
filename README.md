@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Good things come to those who believe. Better things come to those who are patient. The best things come to those who never give up.**
+**Never underestimate the power you have to take your life in a new direction.**
 
-Anonymous
+Germany Kent
