@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**One of the simplest ways to be happy is letting go of the things that make you sad.**
+**The difference between the impossible and the possible lies in a person's determination.**
 
-Anonymous
+Tommy Lasorda
