@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Spend more of your time on what gives you energy and less of your time on what takes it away.**
+**All souls are lost until they are found.**
 
-Anonymous
+Kate McGahan
