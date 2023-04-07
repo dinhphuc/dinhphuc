@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no shame in not knowing; the shame lies in not finding out.**
+**Some people dream of success... while others wake up and work hard at it.**
 
-Russian Proverb
+Anonymous
