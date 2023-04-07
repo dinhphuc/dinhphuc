@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life's a journey not a race.**
+**Go fast enough to get there, but slow enough to see.**
 
-Meir Ezra
+Jimmy Buffett
