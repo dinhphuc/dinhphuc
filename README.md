@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The reputation of a thousand years may be determined by the conduct of one hour.**
+**Spend more of your time on what gives you energy and less of your time on what takes it away.**
 
-Japanese Proverb
+Anonymous
