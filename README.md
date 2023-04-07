@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is letting go of what you think your life is supposed to look like and enjoying it for everything that it is.**
+**Life is trying things to see if they work.**
 
-Mandy Hale
+Ray Bradbury
