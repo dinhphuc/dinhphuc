@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**All souls are lost until they are found.**
+**Let your unique awesomeness and positive energy inspire confidence in others.**
 
-Kate McGahan
+Anonymous
