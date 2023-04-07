@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not in the stars to hold our destiny but in ourselves.**
+**There is no shame in not knowing; the shame lies in not finding out.**
 
-William Shakespeare
+Russian Proverb
