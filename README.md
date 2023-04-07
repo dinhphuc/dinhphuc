@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The more grateful I am, the more beauty I see.**
+**Your life does not get better by chance, it gets better by change.**
 
-Mary Davis
+Anonymous
