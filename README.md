@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Some people dream of success... while others wake up and work hard at it.**
+**Positive thinking will let you do everything better than negative thinking will.**
 
-Anonymous
+Zig Ziglar
