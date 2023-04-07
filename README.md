@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Positive thinking will let you do everything better than negative thinking will.**
+**When the 'why' is clear, the 'how' is easy.**
 
-Zig Ziglar
+Anonymous
