@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Never underestimate the power you have to take your life in a new direction.**
+**Instead of worrying about what you cannot control, shift your energy to what you can create.**
 
-Germany Kent
+Roy T. Bennett
