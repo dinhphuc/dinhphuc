@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Where there is love there is life.**
+**The only way to do great work is to love what you do.**
 
-Mahatma Gandhi
+Steve Jobs
