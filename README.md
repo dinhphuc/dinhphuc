@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**All things equal, people will do business with, and refer business to, people they know trust and like.**
+**No man can paddle two canoes at the same time.**
 
-Bob Burg
+Bantu Proverb
