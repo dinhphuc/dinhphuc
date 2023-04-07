@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I don't aspire to be like other driver. I aspire to be unique.**
+**The reputation of a thousand years may be determined by the conduct of one hour.**
 
-Lewis Hamilton
+Japanese Proverb
