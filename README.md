@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Instead of worrying about what you cannot control, shift your energy to what you can create.**
+**Peace begins When expectation ends.**
 
-Roy T. Bennett
+Sri Chinmoy
