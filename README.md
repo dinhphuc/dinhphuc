@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No man can paddle two canoes at the same time.**
+**Life's a journey not a race.**
 
-Bantu Proverb
+Meir Ezra
