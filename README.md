@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The only way to do great work is to love what you do.**
+**Good things come to those who believe. Better things come to those who are patient. The best things come to those who never give up.**
 
-Steve Jobs
+Anonymous
