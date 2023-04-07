@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The future belongs to those who believe in the beauty of their dreams.**
+**No matter how you feel, get up, dress up, show up and never give up.**
 
-Franklin D. Roosevelt
+Anonymous
