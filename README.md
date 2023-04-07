@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We must embrace pain and burn it as fuel for our journey.**
+**The future belongs to those who believe in the beauty of their dreams.**
 
-Kenji Miyazawa
+Franklin D. Roosevelt
