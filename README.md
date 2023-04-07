@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The marathon can humble you.**
+**Laugh. It's free medicine you don't need insurance for.**
 
-Bill Rodgers
+Anonymous
