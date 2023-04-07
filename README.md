@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Peace begins When expectation ends.**
+**It is not in the stars to hold our destiny but in ourselves.**
 
-Sri Chinmoy
+William Shakespeare
