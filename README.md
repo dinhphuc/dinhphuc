@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Never stop believing in hope because miracles happen everyday.**
+**The reputation of a thousand years may be determined by the conduct of one hour.**
 
-Anonymous
+Japanese Proverb
