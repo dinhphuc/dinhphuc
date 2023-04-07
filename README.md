@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how you feel, get up, dress up, show up and never give up.**
+**All things equal, people will do business with, and refer business to, people they know trust and like.**
 
-Anonymous
+Bob Burg
