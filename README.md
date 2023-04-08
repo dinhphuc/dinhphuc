@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be so good they can't ignore you.**
+**Passion first and everything will fall into place.**
 
-Steve Martin
+Holly Holm
