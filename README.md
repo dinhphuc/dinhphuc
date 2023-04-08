@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Everyone is breakable, but not everyone is aware that it's a choice to stay broken.**
+**It ain't as bad as you think. It will look better in the morning.**
 
-Stanley Behrman
+Colin Powell
