@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Like the morning sun, you too shall rise and continue to shine.**
+**You are your only limit.**
 
 Anonymous
