@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are your only limit.**
+**Often it isn't the mountains ahead that wear you out, it's the little pebble in your shoe.**
 
-Anonymous
+Muhammad Ali
