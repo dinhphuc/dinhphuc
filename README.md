@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Often it isn't the mountains ahead that wear you out, it's the little pebble in your shoe.**
+**You can't blame gravity for falling in love.**
 
-Muhammad Ali
+Albert Einstein
