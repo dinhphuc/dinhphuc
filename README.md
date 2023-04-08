@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There's never enough time to do everything, but there's always enough time to do the most important thing.**
+**Working hard for something we don't care about is called stress; working hard for somthing we love is called passion.**
 
-Dean Bokhari
+Simon Sinek
