@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's lack of faith that makes people afraid of meeting challenges, and I believed in myself.**
+**Once we accept our limits, we go beyond them.**
 
-Muhammad Ali
+Albert Einstein
