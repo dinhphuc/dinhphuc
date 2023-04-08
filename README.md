@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The trophy is earned in the hours that no one is watching.**
+**Don't be frightened by difficulties.**
 
-Anonymous
+Ryan Holiday
