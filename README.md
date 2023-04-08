@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not so much that I began to run, but that I continued.**
+**Everyone is breakable, but not everyone is aware that it's a choice to stay broken.**
 
-Hal Higdon
+Stanley Behrman
