@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be humble in your confidence yet courageous in your character.**
+**Like the morning sun, you too shall rise and continue to shine.**
 
-Melanie Koulouris
+Anonymous
