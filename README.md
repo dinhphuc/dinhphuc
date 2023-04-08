@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Once we accept our limits, we go beyond them.**
+**It's not so much that I began to run, but that I continued.**
 
-Albert Einstein
+Hal Higdon
