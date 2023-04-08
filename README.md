@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It ain't as bad as you think. It will look better in the morning.**
+**Be so good they can't ignore you.**
 
-Colin Powell
+Steve Martin
