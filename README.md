@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your problem isn't the problem, it's your attitude about the problem.**
+**No one controls how I feel about myself, but me.**
 
-Ann Brashares
+Anonymous
