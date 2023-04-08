@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**To be a great champion you must believe you are the best. If you're not, pretend you are.**
+**Gratitude is the sweetest thing in a seeker's life- in all human life. If there is gratitude in your heart, then there will be tremendous sweetness in your eyes.**
 
-Muhammad Ali
+Sri Chinmoy
