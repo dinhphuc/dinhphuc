@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be frightened by difficulties.**
+**When I hear somebody sigh, 'Life is hard,' I am always tempted to ask, 'Compared to what?'**
 
-Ryan Holiday
+Sydney Harris
