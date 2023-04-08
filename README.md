@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When I hear somebody sigh, 'Life is hard,' I am always tempted to ask, 'Compared to what?'**
+**May the Force be with you.**
 
-Sydney Harris
+Yoda
