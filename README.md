@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Shared joy is a double joy; shared sorrow is half a sorrow.**
+**Be humble in your confidence yet courageous in your character.**
 
-Swedish Proverb
+Melanie Koulouris
