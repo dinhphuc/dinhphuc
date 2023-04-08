@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to change the world, start with yourself.**
+**You can't use up creativity. The more you use, the more you have.**
 
-Mahatma Gandhi
+Maya Angelou
