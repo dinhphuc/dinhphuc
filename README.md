@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When the 'why' is clear, the 'how' is easy.**
+**Easy choices, hard life. Hard choices, easy life.**
 
-Anonymous
+Jerzy Gregorek
