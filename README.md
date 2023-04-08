@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You yourself, as much as anybody in the entire universe, deserve your love and affection.**
+**There's never enough time to do everything, but there's always enough time to do the most important thing.**
 
-Buddha
+Dean Bokhari
