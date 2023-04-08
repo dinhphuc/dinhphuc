@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The more positive thoughts you have, the better you feel, which causes you to have more positive thoughts, then you feel even better.**
+**Shared joy is a double joy; shared sorrow is half a sorrow.**
 
-James Borg
+Swedish Proverb
