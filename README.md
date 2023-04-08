@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence is not 'They will like me'. Confidence is 'I'll be fine if they don't'.**
+**It's not whether you get knocked down. It's whether you get back up.**
 
-Anonymous
+Vince Lombardi
