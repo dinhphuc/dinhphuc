@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's better to light a candle than curse the darkness.**
+**Confidence is not 'They will like me'. Confidence is 'I'll be fine if they don't'.**
 
-Chinese Proverb
+Anonymous
