@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't use up creativity. The more you use, the more you have.**
+**It's better to light a candle than curse the darkness.**
 
-Maya Angelou
+Chinese Proverb
