@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Live your life for you.**
+**Your problem isn't the problem, it's your attitude about the problem.**
 
-Anonymous
+Ann Brashares
