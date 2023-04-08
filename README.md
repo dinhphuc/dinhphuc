@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Easy choices, hard life. Hard choices, easy life.**
+**The trophy is earned in the hours that no one is watching.**
 
-Jerzy Gregorek
+Anonymous
