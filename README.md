@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**All that matters is how you see yourself.**
+**Determination is doing what needs to be done even when you don't feel like doing it.**
 
-Conor McGregor
+Anonymous
