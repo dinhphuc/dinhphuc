@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No one controls how I feel about myself, but me.**
+**It's lack of faith that makes people afraid of meeting challenges, and I believed in myself.**
 
-Anonymous
+Muhammad Ali
