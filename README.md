@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Replace those thoughts of worry with thoughts of hope, faith, and victory.**
+**The people who make you smile from just seeing them, those are my favorite people.**
 
-Joel Osteen
+Koi Fresco
