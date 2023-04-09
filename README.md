@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Virtually nothing is impossible in this world if you just put your mind to it and maintain a positive attitude.**
+**No matter how you feel, get up, dress up, show up and never give up.**
 
-Lou Holtz
+Anonymous
