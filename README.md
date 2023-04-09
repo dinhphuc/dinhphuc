@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Wherever you go, go with all your heart.**
+**One day I'll be at the place I always wanted to be.**
 
-Confucius
+Anonymous
