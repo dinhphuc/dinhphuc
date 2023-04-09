@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You walk through life much easier with a smile on your face.**
+**Open your eyes and notice the beauty of this wonderful world.**
 
-Sweet Paul
+Anonymous
