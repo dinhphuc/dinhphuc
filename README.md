@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**How long are you going to wait before you demand the best for yourself?**
+**You may never know what results come of your actions, but if you do nothing, there will be no results.**
 
-Epictetus
+Mahatma Gandhi
