@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is ours to be spent, not to be saved.**
+**Ask yourself: Can I give more? The answer is usually: Yes.**
 
-D. H. Lawrence
+Paul Tergat
