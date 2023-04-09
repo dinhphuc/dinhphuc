@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness can be found, even in the darkest of times, if one only remembers to turn on the light.**
+**Always plan for the fact that no plan ever goes according to plan.**
 
-Anonymous
+Simon Sinek
