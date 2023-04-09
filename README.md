@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The best way to predict your future is to create it.**
+**As we express our gratitude, we must never forget that the highest appreciation is not to utter words, but to live by them.**
 
-Peter F. Drucker
+John F. Kennedy
