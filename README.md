@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Virtually nothing is impossible in this world if you just put your mind to it and maintain a positive attitude.**
+**Replace those thoughts of worry with thoughts of hope, faith, and victory.**
 
-Lou Holtz
+Joel Osteen
