@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If one dream should fall and break into a thousand pieces, never be afraid to pick one of those pieces up and begin again.**
+**Life is ours to be spent, not to be saved.**
 
-Flavia Weedn
+D. H. Lawrence
