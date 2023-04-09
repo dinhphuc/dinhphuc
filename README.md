@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be strong enough to let go and patient enough to wait for what you deserve.**
+**You walk through life much easier with a smile on your face.**
 
-Anonymous
+Sweet Paul
