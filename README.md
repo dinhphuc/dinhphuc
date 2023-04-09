@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**As we express our gratitude, we must never forget that the highest appreciation is not to utter words, but to live by them.**
+**Be strong enough to let go and patient enough to wait for what you deserve.**
 
-John F. Kennedy
+Anonymous
