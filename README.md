@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The vision of a champion is someone who is bent over, drenched in sweat, at the point of exhaustion when no one else is watching.**
+**The best feeling of happiness is when you're happy because you've made somebody else happy.**
 
-Jim Afremow
+Anonymous
