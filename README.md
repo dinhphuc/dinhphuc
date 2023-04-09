@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Always be yourself and have faith in yourself. Do not go out and look for a successful personality and try to duplicate it.**
+**Never let the fear of striking out keep you from playing the game.**
 
-Bruce Lee
+Babe Ruth
