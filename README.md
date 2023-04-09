@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Never let the fear of striking out keep you from playing the game.**
+**Attitude will always define who we are in life.**
 
-Babe Ruth
+Mark A. Brennan
