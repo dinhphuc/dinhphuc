@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be afraid to start over. It's a brand new opportunity to rebuild what you truly want.**
+**Whether you think you can or can't, you're right.**
 
-Anonymous
+Henry Ford
