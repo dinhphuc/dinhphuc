@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want it, you'll find a way. If you don't, you'll find an excuse.**
+**Blessed are they who see beautiful things in humble places where other people see nothing.**
 
-Anonymous
+Camille Pissaro
