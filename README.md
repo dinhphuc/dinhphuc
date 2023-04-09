@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There is a difference between giving up and knowing when you've had enough.**
+**Build your own dreams, or someone else will hire you to build theirs.**
 
-Anonymous
+Farrah Gray
