@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Fear is temporary. Regret is forever.**
+**When you want to succeed as bad as you want to breathe, you will be successful.**
 
-Anonymous
+Eric Thomas
