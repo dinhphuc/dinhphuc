@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Blessed are they who see beautiful things in humble places where other people see nothing.**
+**There is a difference between giving up and knowing when you've had enough.**
 
-Camille Pissaro
+Anonymous
