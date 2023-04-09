@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Attitude will always define who we are in life.**
+**Before you score, you first must have a goal.**
 
-Mark A. Brennan
+Greek Proverb
