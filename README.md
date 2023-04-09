@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Open your eyes and notice the beauty of this wonderful world.**
+**Don't be afraid to start over. It's a brand new opportunity to rebuild what you truly want.**
 
 Anonymous
