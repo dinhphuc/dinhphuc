@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Ask yourself: Can I give more? The answer is usually: Yes.**
+**Virtually nothing is impossible in this world if you just put your mind to it and maintain a positive attitude.**
 
-Paul Tergat
+Lou Holtz
