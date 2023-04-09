@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Fear is temporary. Regret is forever.**
+**The best way to predict your future is to create it.**
 
-Anonymous
+Peter F. Drucker
