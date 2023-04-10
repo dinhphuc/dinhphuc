@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Sometimes the bravest thing you can do is to keep going when you really feel like giving up.**
+**Friends show their love in times of trouble, not in happiness.**
 
-Anonymous
+Euripides
