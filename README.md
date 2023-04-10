@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A runner must run with dreams in his heart.**
+**Sometimes the bravest thing you can do is to keep going when you really feel like giving up.**
 
-Emil Zatopek
+Anonymous
