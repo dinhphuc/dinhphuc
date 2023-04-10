@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I alone cannot change the world, but I can cast a stone across the water to create many ripples.**
+**Strength grows in the moments when you think you can't go on but you keep going anyway.**
 
-Mother Teresa
+Anonymous
