@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Every accomplishment begins with the decision to try.**
+**The happiness of your life depends upon the quality of your thoughts.**
 
-Anonymous
+Marcus Aurelius
