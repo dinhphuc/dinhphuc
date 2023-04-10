@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Mistakes are proof that you are trying.**
+**Every accomplishment begins with the decision to try.**
 
 Anonymous
