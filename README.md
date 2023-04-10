@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Skill is only developed by hours and hours of work.**
+**Always two there are, no more, no less. A master and an apprentice.**
 
-Usain Bolt
+Yoda
