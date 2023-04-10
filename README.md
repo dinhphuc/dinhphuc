@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You've got to find people who love like you do.**
+**A runner must run with dreams in his heart.**
 
-Anonymous
+Emil Zatopek
