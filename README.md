@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A leader is one who knows the way, goes the way, and shows the way.**
+**Cry. Forgive. Learn. Move on. Let your tears water the seeds of your future happiness.**
 
-John C. Maxwell
+Steve Maraboli
