@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're presenting yourself with confidence, you can pull off pretty much anything.**
+**Confidence is not 'They will like me'. Confidence is 'I'll be fine if they don't'.**
 
-Katy Perry
+Anonymous
