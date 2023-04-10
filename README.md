@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You fail because you don't believe.**
+**Be not afraid of life. Believe that life is worth living, and your belief will help create the fact.**
 
-Yoda
+William James
