@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The first duty of love is to listen.**
+**I am happy because I choose to be happy no matter what the situation is.**
 
-Paul Tillich
+Anonymous
