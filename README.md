@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Always plan for the fact that no plan ever goes according to plan.**
+**No matter how old I get, the race remains one of life's most rewarding experiences.**
 
-Simon Sinek
+George Sheehan
