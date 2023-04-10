@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Action is the foundational key to all success.**
+**The first duty of love is to listen.**
 
-Pablo Picasso
+Paul Tillich
