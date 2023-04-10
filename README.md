@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Make the most of yourself....for that is all there is of you.**
+**Our own self-esteem is something we can actually twist in whatever way we want.**
 
-Ralph Waldo Emerson
+Stephen Richards
