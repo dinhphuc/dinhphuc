@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you do, do with all your might.**
+**The only thing necessary for the triumph of evil is for good men to do nothing.**
 
-Marcus Tullius Cicero
+Edmund Burke
