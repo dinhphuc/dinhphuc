@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be not afraid of life. Believe that life is worth living, and your belief will help create the fact.**
+**Go confidently in the direction of your dreams! Live the life you've imagined.**
 
-William James
+Henry David Thoreau
