@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever can happen at any time can happen today.**
+**You should never give up. No matter how hard the situation is, always believe that something beautiful is going to happen.**
 
-Seneca
+Anonymous
