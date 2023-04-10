@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Surround yourself with only people who are going to lift you higher.**
+**If you're presenting yourself with confidence, you can pull off pretty much anything.**
 
-Oprah
+Katy Perry
