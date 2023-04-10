@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Practice 'gratitude' each day and your relationship will last forever.**
+**You've got to find people who love like you do.**
 
 Anonymous
