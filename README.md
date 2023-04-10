@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Always two there are, no more, no less. A master and an apprentice.**
+**Make the most of yourself....for that is all there is of you.**
 
-Yoda
+Ralph Waldo Emerson
