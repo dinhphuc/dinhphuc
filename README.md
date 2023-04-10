@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength doesn't come from what you can do. It comes from overcoming the things you once thought you couldn't.**
+**Whatever you do, do with all your might.**
 
-Rikki Rogers
+Marcus Tullius Cicero
