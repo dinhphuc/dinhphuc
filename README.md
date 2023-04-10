@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how old I get, the race remains one of life's most rewarding experiences.**
+**Limitations live only in our minds. But if we use our imaginations, our possibilities become limitless.**
 
-George Sheehan
+Jamie Paolinetti
