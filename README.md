@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The happiness of your life depends upon the quality of your thoughts.**
+**Whatever can happen at any time can happen today.**
 
-Marcus Aurelius
+Seneca
