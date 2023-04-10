@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything you've ever wanted is on the other side of fear.**
+**Action is the foundational key to all success.**
 
-George Addair
+Pablo Picasso
