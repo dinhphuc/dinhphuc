@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Go confidently in the direction of your dreams! Live the life you've imagined.**
+**Do not dwell in the past, do not dream of the future, concentrate the mind on the present moment.**
 
-Henry David Thoreau
+Buddha
