@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The only thing necessary for the triumph of evil is for good men to do nothing.**
+**Skill is only developed by hours and hours of work.**
 
-Edmund Burke
+Usain Bolt
