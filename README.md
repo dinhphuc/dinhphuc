@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can't find the opportunities you're looking for...create them.**
+**A leader is one who knows the way, goes the way, and shows the way.**
 
-Anonymous
+John C. Maxwell
