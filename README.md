@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Limitations live only in our minds. But if we use our imaginations, our possibilities become limitless.**
+**Everything you've ever wanted is on the other side of fear.**
 
-Jamie Paolinetti
+George Addair
