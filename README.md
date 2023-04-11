@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be strong enough to let go and patient enough to wait for what you deserve.**
+**Don't worry about failure; you only have to be right once.**
 
-Anonymous
+Drew Houston
