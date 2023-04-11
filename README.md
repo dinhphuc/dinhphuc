@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember the entrance to the sanctuary is inside you.**
+**To be calm is the highest achievement of the self.**
 
-Rumi
+Zen Proverb
