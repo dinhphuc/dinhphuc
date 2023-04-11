@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When things are bad, remember: it won't always be this way. Take one day at a time.**
+**No beauty shines brighter than that of a good heart.**
 
 Anonymous
