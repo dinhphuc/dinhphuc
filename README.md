@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is an attitude. We either make ourselves miserable, or happy and strong. The amount of work is the same.**
+**Don't count the days, make the days count.**
 
-Francesca Reigler
+Muhammad Ali
