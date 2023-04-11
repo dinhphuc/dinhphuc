@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't worry about failure; you only have to be right once.**
+**Even the greatest were beginners. Don't be afraid to take that first step.**
 
-Drew Houston
+Anonymous
