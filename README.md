@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be patient, good things are coming your way.**
+**Remember the entrance to the sanctuary is inside you.**
 
-Anonymous
+Rumi
