@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest weakness lies in giving up. The most certain way to succeed is to just try one more time.**
+**When you don't talk, there's a lot of stuff that ends up not getting said.**
 
-Thomas Edison
+Catherine Gilbert Murdock
