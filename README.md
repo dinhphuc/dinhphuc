@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Live as if you were to die tomorrow. Learn as if you were to live forever.**
+**When things are bad, remember: it won't always be this way. Take one day at a time.**
 
-Mahatma Gandhi
+Anonymous
