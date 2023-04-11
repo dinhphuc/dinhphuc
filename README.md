@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whether you think you can or can't, you're right.**
+**The very best thing you can do for the whole world is to make the best of yourself.**
 
-Henry Ford
+Anonymous
