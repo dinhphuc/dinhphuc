@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I think that the good and the great are only separated by the willingness to sacrifice.**
+**The first duty of love is to listen.**
 
-Kareem Abdul-Jabbar
+Paul Tillich
