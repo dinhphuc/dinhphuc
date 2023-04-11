@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching.**
+**Go confidently in the direction of your dreams! Live the life you've imagined.**
 
-Satchel Paige
+Henry David Thoreau
