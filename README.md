@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It always seems impossible until it's done.**
+**Inhale confidence. Exhale doubt.**
 
-Nelson Mandela
+Anonymous
