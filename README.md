@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**How long are you going to wait before you demand the best for yourself?**
+**Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching.**
 
-Epictetus
+Satchel Paige
