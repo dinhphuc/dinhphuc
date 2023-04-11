@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It feels good when you can put a smile on someone's face by simply being yourself.**
+**You don't go up to the top, you grow up to the top.**
 
-Anonymous
+John C. Maxwell
