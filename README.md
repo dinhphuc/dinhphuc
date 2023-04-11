@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No beauty shines brighter than that of a good heart.**
+**It always seems impossible until it's done.**
 
-Anonymous
+Nelson Mandela
