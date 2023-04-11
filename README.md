@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't count the days, make the days count.**
+**Never let the fear of striking out keep you from playing the game.**
 
-Muhammad Ali
+Babe Ruth
