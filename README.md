@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The very best thing you can do for the whole world is to make the best of yourself.**
+**You should never give up. No matter how hard the situation is, always believe that something beautiful is going to happen.**
 
 Anonymous
