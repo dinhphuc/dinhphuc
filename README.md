@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Change yourself and fortune will change.**
+**Life is a succession of lessons which must be lived to be understood.**
 
-Portuguese Proverb
+Ralph Waldo Emerson
