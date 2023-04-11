@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Make the most of yourself....for that is all there is of you.**
+**Believe in yourself. You are braver than you think, more talented than you know, and capable of more than you imagine.**
 
-Ralph Waldo Emerson
+Roy T. Bennett
