@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you don't talk, there's a lot of stuff that ends up not getting said.**
+**Change yourself and fortune will change.**
 
-Catherine Gilbert Murdock
+Portuguese Proverb
