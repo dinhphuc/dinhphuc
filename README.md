@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe in yourself. You are braver than you think, more talented than you know, and capable of more than you imagine.**
+**Learn to be thankful for what you already have, while you pursue all that you want.**
 
-Roy T. Bennett
+Jim Rohn
