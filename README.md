@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Learn to be thankful for what you already have, while you pursue all that you want.**
+**It feels good when you can put a smile on someone's face by simply being yourself.**
 
-Jim Rohn
+Anonymous
