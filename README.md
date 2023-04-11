@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**To be calm is the highest achievement of the self.**
+**You cannot shake hands with a clenched fist.**
 
-Zen Proverb
+Indira Gandhi
