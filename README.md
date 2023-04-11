@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Never let the fear of striking out keep you from playing the game.**
+**Our greatest weakness lies in giving up. The most certain way to succeed is to just try one more time.**
 
-Babe Ruth
+Thomas Edison
