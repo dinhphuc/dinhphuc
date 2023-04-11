@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is made of ever so many partings welded together.**
+**Make the most of yourself....for that is all there is of you.**
 
-Charles Dickens
+Ralph Waldo Emerson
