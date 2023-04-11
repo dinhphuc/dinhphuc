@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Even the greatest were beginners. Don't be afraid to take that first step.**
+**Whether you think you can or can't, you're right.**
 
-Anonymous
+Henry Ford
