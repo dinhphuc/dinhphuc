@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is a succession of lessons which must be lived to be understood.**
+**I think that the good and the great are only separated by the willingness to sacrifice.**
 
-Ralph Waldo Emerson
+Kareem Abdul-Jabbar
