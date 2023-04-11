@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Make the most of yourself....for that is all there is of you.**
+**If you only do what you can do, you will never be more than you are now.**
 
-Ralph Waldo Emerson
+Master Oogway
