@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't go up to the top, you grow up to the top.**
+**Live as if you were to die tomorrow. Learn as if you were to live forever.**
 
-John C. Maxwell
+Mahatma Gandhi
