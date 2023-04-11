@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot shake hands with a clenched fist.**
+**How long are you going to wait before you demand the best for yourself?**
 
-Indira Gandhi
+Epictetus
