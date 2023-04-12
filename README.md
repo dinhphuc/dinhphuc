@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Tough times don't last. Tough people do.**
+**Simple to open a shop; another thing to keep it open.**
 
-Robert H. Schuller
+Chinese Proverb
