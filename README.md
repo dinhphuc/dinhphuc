@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Beauty lies in the eye of the beholder.**
+**Tough times don't last. Tough people do.**
 
-English Proverb
+Robert H. Schuller
