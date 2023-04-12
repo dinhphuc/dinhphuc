@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Often it isn't the mountains ahead that wear you out, it's the little pebble in your shoe.**
+**Strength does not come from physical capacity. It comes from an indomitable will.**
 
-Muhammad Ali
+Mahatma Gandhi
