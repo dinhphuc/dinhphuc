@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest.**
+**The sweat. The time. The devotion. It pays off.**
 
-Sri Chinmoy
+Anonymous
