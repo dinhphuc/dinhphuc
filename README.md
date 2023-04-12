@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be helpful. When you see a person without a smile, give them yours.**
+**Good friends are all that matter.**
 
-Zig Ziglar
+Anonymous
