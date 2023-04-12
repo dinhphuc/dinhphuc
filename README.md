@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Good friends are like stars. You don't always see them, but you know they're always there.**
+**When you love what you have, you have everything you need.**
 
-Christy Evans
+Anonymous
