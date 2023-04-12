@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile in the mirror. Do that every morning and you'll start to see a big difference in your life.**
+**So certain were you. Go back and closer you must look.**
 
-Yoko Ono
+Yoda
