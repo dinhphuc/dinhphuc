@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you love what you have, you have everything you need.**
+**I am thankful for all those difficult people in my life. They have shown me exactly who I do not want to be.**
 
 Anonymous
