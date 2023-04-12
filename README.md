@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Open your eyes and notice the beauty of this wonderful world.**
+**If you don't fall, how are you going to know what getting up feels like?**
 
-Anonymous
+Stephen Curry
