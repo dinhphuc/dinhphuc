@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A warm smile is the universal language of kindness.**
+**Success isn't just about what you accomplish in life. It's about what you inspire others to do.**
 
-William Arthur Ward
+Anonymous
