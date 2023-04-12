@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You should never give up. No matter how hard the situation is, always believe that something beautiful is going to happen.**
+**Attitude is a choice. Happiness is a choice. Optimism is a choice. Kindness is a choice. Giving is a choice. Respect is a choice. Whatever choice you make makes you. Choose wisely.**
 
-Anonymous
+Roy T. Bennett
