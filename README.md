@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength does not come from physical capacity. It comes from an indomitable will.**
+**No marathon gets easier later. The halfway point only marks the end of the beginning.**
 
-Mahatma Gandhi
+Joe Henderson
