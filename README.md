@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Make the mind tougher by exposing it to adversity.**
+**Everything you've ever wanted is on the other side of fear.**
 
-Robert Greene
+George Addair
