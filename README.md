@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It matters not what someone is born, but what they grow to be.**
+**A warm smile is the universal language of kindness.**
 
-Master Oogway
+William Arthur Ward
