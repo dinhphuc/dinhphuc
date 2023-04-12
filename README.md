@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how tough it may get, never give up on yourself or you will look back and regret it.**
+**To handle yourself, use your head; to handle others, use your heart.**
 
-Anonymous
+Eleanor Roosevelt
