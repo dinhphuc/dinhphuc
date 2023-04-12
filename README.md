@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Attitude is a choice. Happiness is a choice. Optimism is a choice. Kindness is a choice. Giving is a choice. Respect is a choice. Whatever choice you make makes you. Choose wisely.**
+**Coming together is a beginning; keeping together is progress; working together is success.**
 
-Roy T. Bennett
+Edward Everett Hale
