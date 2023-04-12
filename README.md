@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything you've ever wanted is on the other side of fear.**
+**Often it isn't the mountains ahead that wear you out, it's the little pebble in your shoe.**
 
-George Addair
+Muhammad Ali
