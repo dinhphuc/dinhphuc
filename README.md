@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Coming together is a beginning; keeping together is progress; working together is success.**
+**It matters not what someone is born, but what they grow to be.**
 
-Edward Everett Hale
+Master Oogway
