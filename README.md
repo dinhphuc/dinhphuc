@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**At first they'll ask you why you're doing it. Later they'll ask how you did it.**
+**You cannot propel yourself forward by patting yourself on the back.**
 
-Anonymous
+Steve Prefontaine
