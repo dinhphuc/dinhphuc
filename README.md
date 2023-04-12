@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**To handle yourself, use your head; to handle others, use your heart.**
+**Peace begins When expectation ends.**
 
-Eleanor Roosevelt
+Sri Chinmoy
