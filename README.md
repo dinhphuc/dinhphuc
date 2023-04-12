@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The sweat. The time. The devotion. It pays off.**
+**Never give up. You only get one life. Go for it.**
 
-Anonymous
+Richard E. Grant
