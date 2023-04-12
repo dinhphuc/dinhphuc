@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There are no secrets to success. It is the result of preparation, hard work, and learning from failure.**
+**Make the mind tougher by exposing it to adversity.**
 
-Colin Powell
+Robert Greene
