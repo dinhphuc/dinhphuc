@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be crazy. Be stupid. Be silly. Be weird. Be whatever. Because life is too short to be anything but happy.**
+**Open your eyes and notice the beauty of this wonderful world.**
 
 Anonymous
