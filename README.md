@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**So certain were you. Go back and closer you must look.**
+**No matter how tough it may get, never give up on yourself or you will look back and regret it.**
 
-Yoda
+Anonymous
