@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Peace begins When expectation ends.**
+**Be helpful. When you see a person without a smile, give them yours.**
 
-Sri Chinmoy
+Zig Ziglar
