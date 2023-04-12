@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The sweat. The time. The devotion. It pays off.**
+**Good friends are like stars. You don't always see them, but you know they're always there.**
 
-Anonymous
+Christy Evans
