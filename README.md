@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success isn't just about what you accomplish in life. It's about what you inspire others to do.**
+**Beauty lies in the eye of the beholder.**
 
-Anonymous
+English Proverb
