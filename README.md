@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Difficulty is what wakes up the genius.**
+**Smile in the mirror. Do that every morning and you'll start to see a big difference in your life.**
 
-Nassim Nicholas Taleb
+Yoko Ono
