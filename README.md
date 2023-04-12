@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Good friends are all that matter.**
+**Everywhere you go, take a smile with you.**
 
-Anonymous
+Sasha Azevedo
