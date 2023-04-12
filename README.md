@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot prevent the birds of sadness from passing over your head, but you can prevent their making a nest in your hair.**
+**Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest.**
 
-Chinese Proverb
+Sri Chinmoy
