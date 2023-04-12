@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't fall, how are you going to know what getting up feels like?**
+**At first they'll ask you why you're doing it. Later they'll ask how you did it.**
 
-Stephen Curry
+Anonymous
