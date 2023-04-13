@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can't live longer, live deeper.**
+**The only impossible journey is the one you never begin.**
 
-Italian Proverb
+Tony Robbins
