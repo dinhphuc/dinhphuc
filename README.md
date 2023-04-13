@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**To give anything less than your best is to sacrifice the gift.**
+**I'm not here to be average, I'm here to be awesome.**
 
-Steve Prefontaine
+Anonymous
