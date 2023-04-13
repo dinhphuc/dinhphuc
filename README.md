@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm not here to be average, I'm here to be awesome.**
+**Don't count the days, make the days count.**
 
-Anonymous
+Muhammad Ali
