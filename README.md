@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Walk on with hope in your heart, and you'll never walk alone.**
+**Life is made of ever so many partings welded together.**
 
-Shah Rukh Khan
+Charles Dickens
