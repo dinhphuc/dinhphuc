@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you set your goals ridiculously high and it's a failure, you will fail above everyone else's success.**
+**The people who make you smile from just seeing them, those are my favorite people.**
 
-James Cameron
+Koi Fresco
