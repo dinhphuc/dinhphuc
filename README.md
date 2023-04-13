@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is made of ever so many partings welded together.**
+**Failure is not the opposite of success. Its part of success.**
 
-Charles Dickens
+Anonymous
