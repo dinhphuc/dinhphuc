@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot propel yourself forward by patting yourself on the back.**
+**Words may inspire but only action creates change.**
 
-Steve Prefontaine
+Simon Sinek
