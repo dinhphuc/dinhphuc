@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It matters not what someone is born, but what they grow to be.**
+**If you set your goals ridiculously high and it's a failure, you will fail above everyone else's success.**
 
-Master Oogway
+James Cameron
