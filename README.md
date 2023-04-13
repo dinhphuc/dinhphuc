@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is really simple, but we insist on making it complicated.**
+**You may encounter many defeats, but you must not be defeated.**
 
-Confucius
+Maya Angelou
