@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It does not matter how slowly you go as long as you do not stop.**
+**Life is really simple, but we insist on making it complicated.**
 
 Confucius
