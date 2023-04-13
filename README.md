@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Focus on being productive instead of busy.**
+**Beat the drum inside the house to spare the neighbors.**
 
-Tim Ferris
+Chinese Proverb
