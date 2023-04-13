@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are stronger than you think.**
+**Courage is the birthplace of confidence.**
 
-Anonymous
+Debbie Millman
