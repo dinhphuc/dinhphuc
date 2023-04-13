@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It feels good when you can put a smile on someone's face by simply being yourself.**
+**You may never know what results come of your actions, but if you do nothing, there will be no results.**
 
-Anonymous
+Mahatma Gandhi
