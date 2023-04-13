@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I have learned over the years that when one's mind is made up, this diminishes fear.**
+**So certain were you. Go back and closer you must look.**
 
-Rosa Parks
+Yoda
