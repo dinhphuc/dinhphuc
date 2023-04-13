@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The sweat. The time. The devotion. It pays off.**
+**I would rather die of passion than of boredom.**
 
-Anonymous
+Vincent van Gogh
