@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Courage is the birthplace of confidence.**
+**You fail because you don't believe.**
 
-Debbie Millman
+Yoda
