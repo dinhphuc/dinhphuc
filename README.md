@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Peace begins When expectation ends.**
+**If you can't live longer, live deeper.**
 
-Sri Chinmoy
+Italian Proverb
