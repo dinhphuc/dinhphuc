@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The only impossible journey is the one you never begin.**
+**Walk on with hope in your heart, and you'll never walk alone.**
 
-Tony Robbins
+Shah Rukh Khan
