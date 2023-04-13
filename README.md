@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't fear moving slowly forward...fear standing still.**
+**Accept yourself, love yourself, and keep moving forward.**
 
-Kathleen Harris
+Roy T. Bennett
