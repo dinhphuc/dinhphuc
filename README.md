@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You may never know what results come of your actions, but if you do nothing, there will be no results.**
+**It does not matter how slowly you go as long as you do not stop.**
 
-Mahatma Gandhi
+Confucius
