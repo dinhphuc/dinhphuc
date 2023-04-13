@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Beat the drum inside the house to spare the neighbors.**
+**Your true success in life begins only when you make the commitment to become excellent at what you do.**
 
-Chinese Proverb
+Brian Tracy
