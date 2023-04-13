@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't count the days, make the days count.**
+**It feels good when you can put a smile on someone's face by simply being yourself.**
 
-Muhammad Ali
+Anonymous
