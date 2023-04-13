@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Words may inspire but only action creates change.**
+**Keep going. Everything you need will come to you at the perfect time.**
 
-Simon Sinek
+Anonymous
