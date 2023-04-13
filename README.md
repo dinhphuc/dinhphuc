@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You fail because you don't believe.**
+**Focus on being productive instead of busy.**
 
-Yoda
+Tim Ferris
