@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep going. Everything you need will come to you at the perfect time.**
+**You are stronger than you think.**
 
 Anonymous
