@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Everyone wants happiness. No one wants pain. But you can't have a rainbow, without a little rain.**
+**I have learned over the years that when one's mind is made up, this diminishes fear.**
 
-Anonymous
+Rosa Parks
