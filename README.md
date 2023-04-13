@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**So certain were you. Go back and closer you must look.**
+**It matters not what someone is born, but what they grow to be.**
 
-Yoda
+Master Oogway
