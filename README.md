@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You may encounter many defeats, but you must not be defeated.**
+**The difference between stumbling blocks and stepping stones is how you use them.**
 
-Maya Angelou
+Anonymous
