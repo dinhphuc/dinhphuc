@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The people who make you smile from just seeing them, those are my favorite people.**
+**Don't count the days, make the days count.**
 
-Koi Fresco
+Muhammad Ali
