@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you really look closely, most overnight successes took a long time.**
+**We can complain because rose bushes have thorns, or rejoice because thorns have roses.**
 
-Steve Jobs
+Alphonse Karr
