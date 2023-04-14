@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I think that the good and the great are only separated by the willingness to sacrifice.**
+**When it rains look for rainbows.**
 
-Kareem Abdul-Jabbar
+Oscar Wilde
