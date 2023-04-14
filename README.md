@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be happy. It really annoys negative people.**
+**Float like a butterfly, sting like a bee. The hands can't hit what the eyes can't see.**
 
-Ricky Gervais
+Muhammad Ali
