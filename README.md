@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I was angry that I had no shoes. Then I met a man who had no feet.**
+**You should never give up. No matter how hard the situation is, always believe that something beautiful is going to happen.**
 
-Chinese Proverb
+Anonymous
