@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Float like a butterfly, sting like a bee. The hands can't hit what the eyes can't see.**
+**Make the most of yourself....for that is all there is of you.**
 
-Muhammad Ali
+Ralph Waldo Emerson
