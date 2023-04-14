@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We all make mistakes, but the winner knows that success comes from perseverance: trying, failing, learning, and doing it again until he succeeds.**
+**I was angry that I had no shoes. Then I met a man who had no feet.**
 
-Judy Ford
+Chinese Proverb
