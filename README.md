@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You've got to find people who love like you do.**
+**The difference between the impossible and the possible lies in a person's determination.**
 
-Anonymous
+Tommy Lasorda
