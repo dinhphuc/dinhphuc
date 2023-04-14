@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is when what you think, what you say, and what you do are in harmony.**
+**You are a masterpiece.**
 
-Mahatma Gandhi
+Anonymous
