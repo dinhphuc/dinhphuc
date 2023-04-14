@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You can either complain about it or grind, I choose to grind.**
+**You came into the world to do something; So... do something!**
 
-Kyle Vidrine
+Johnnie Dent Jr
