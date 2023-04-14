@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When it rains look for rainbows.**
+**Happiness is when what you think, what you say, and what you do are in harmony.**
 
-Oscar Wilde
+Mahatma Gandhi
