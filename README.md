@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Hate. It has caused a lot of problems in this world but has not solved one yet.**
+**If you set your goals ridiculously high and it's a failure, you will fail above everyone else's success.**
 
-Maya Angelou
+James Cameron
