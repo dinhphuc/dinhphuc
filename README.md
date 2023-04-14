@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Virtually nothing is impossible in this world if you just put your mind to it and maintain a positive attitude.**
+**If you really look closely, most overnight successes took a long time.**
 
-Lou Holtz
+Steve Jobs
