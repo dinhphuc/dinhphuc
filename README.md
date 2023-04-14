@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Positive thinking will let you do everything better than negative thinking will.**
+**Your relationship with yourself sets the tone for every other relationship you have.**
 
-Zig Ziglar
+Anonymous
