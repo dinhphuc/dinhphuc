@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your relationship with yourself sets the tone for every other relationship you have.**
+**When the sun rises, it rises for everyone.**
 
-Anonymous
+Cuban Proverb
