@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Winners make a habit of manufacturing their own positive expectations in advance of the event.**
+**You've got to find people who love like you do.**
 
-Brian Tracy
+Anonymous
