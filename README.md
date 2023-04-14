@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you love what you have, you have everything you need.**
+**One often meets his destiny on the road he takes to avoid it.**
 
-Anonymous
+Master Oogway
