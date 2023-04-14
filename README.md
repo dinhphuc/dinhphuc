@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm alone, but I'm not lonely. I like who I am. I like who I'm becoming.**
+**Do not dwell in the past, do not dream of the future, concentrate the mind on the present moment.**
 
-Deena Kastor
+Buddha
