@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Make the most of yourself....for that is all there is of you.**
+**I'm alone, but I'm not lonely. I like who I am. I like who I'm becoming.**
 
-Ralph Waldo Emerson
+Deena Kastor
