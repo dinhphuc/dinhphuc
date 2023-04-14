@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**In a dark place we find ourselves, and a little more knowledge lights our way.**
+**I am in charge of how I feel and today I am choosing happiness.**
 
-Yoda
+Anonymous
