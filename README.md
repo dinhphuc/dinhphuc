@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't count the days, make the days count.**
+**The way to get started is to quit talking and begin doing.**
 
-Muhammad Ali
+Walt Disney
