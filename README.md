@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You should never give up. No matter how hard the situation is, always believe that something beautiful is going to happen.**
+**You can either complain about it or grind, I choose to grind.**
 
-Anonymous
+Kyle Vidrine
