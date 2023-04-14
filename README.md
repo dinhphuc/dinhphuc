@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You came into the world to do something; So... do something!**
+**Winners make a habit of manufacturing their own positive expectations in advance of the event.**
 
-Johnnie Dent Jr
+Brian Tracy
