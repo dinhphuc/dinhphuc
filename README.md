@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Pass on what you have learned.**
+**We all make mistakes, but the winner knows that success comes from perseverance: trying, failing, learning, and doing it again until he succeeds.**
 
-Yoda
+Judy Ford
