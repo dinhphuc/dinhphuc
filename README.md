@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I am in charge of how I feel and today I am choosing happiness.**
+**Be happy. It really annoys negative people.**
 
-Anonymous
+Ricky Gervais
