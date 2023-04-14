@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are a masterpiece.**
+**Positive thinking will let you do everything better than negative thinking will.**
 
-Anonymous
+Zig Ziglar
