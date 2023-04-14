@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We can complain because rose bushes have thorns, or rejoice because thorns have roses.**
+**Gratitude is the sweetest thing in a seeker's life- in all human life. If there is gratitude in your heart, then there will be tremendous sweetness in your eyes.**
 
-Alphonse Karr
+Sri Chinmoy
