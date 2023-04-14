@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Gratitude is the sweetest thing in a seeker's life- in all human life. If there is gratitude in your heart, then there will be tremendous sweetness in your eyes.**
+**As I look back on my life, I realize that every time I thought I was being rejected from something good, I was actually being re-directed to something better.**
 
-Sri Chinmoy
+Anonymous
