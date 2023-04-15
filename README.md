@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Fear is temporary. Regret is forever.**
+**Goals may give focus, but dreams give power.**
 
-Anonymous
+John Maxwell
