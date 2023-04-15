@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do something today that your future self will thank you for.**
+**'Thank you' is the best prayer that anyone could say.**
 
-Anonymous
+Alice Walker
