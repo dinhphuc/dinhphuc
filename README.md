@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't waste a minute not being happy. If one door closes, run to the next window - or break down a door.**
+**A fault confessed is half redressed.**
 
-Brooke Shields
+Zulu Proverb
