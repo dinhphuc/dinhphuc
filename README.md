@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You can if you think you can.**
+**When life puts you in tough situations, don't say "why me?" say "try me".**
 
-George Reeves
+Anonymous
