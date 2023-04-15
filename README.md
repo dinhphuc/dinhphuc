@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I hated every minute of training, but I said, 'Don't quit. Suffer now and live the rest of your life as a champion'.**
+**If only we'd stop trying to be happy we could have a pretty good time.**
 
-Muhammad Ali
+Edith Wharton
