@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When will you realize, the more you take, the less you have.**
+**It's better to light a candle than curse the darkness.**
 
-Master Oogway
+Chinese Proverb
