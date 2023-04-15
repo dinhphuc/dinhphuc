@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success doesn't just come and find you, you have to go out and get it.**
+**For every minute you are angry you lose sixty seconds of happiness.**
 
-Anonymous
+Ralph Waldo Emerson
