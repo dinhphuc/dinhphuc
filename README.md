@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You came into the world to do something; So... do something!**
+**When we help ourselves, we find moments of happiness. When we help others, we find lasting fulfillment.**
 
-Johnnie Dent Jr
+Simon Sinek
