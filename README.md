@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's better to light a candle than curse the darkness.**
+**Courage is one step ahead of fear.**
 
-Chinese Proverb
+Coleman Young
