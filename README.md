@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**'Thank you' is the best prayer that anyone could say.**
+**Count your age by friends, not years. Count your life by smiles, not tears.**
 
-Alice Walker
+John Lennon
