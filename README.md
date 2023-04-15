@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success usually comes to those who are too busy to be looking for it.**
+**It's important to feel good about yourself. When you feel good about yourself, nothing negative can touch you.**
 
-Henry David Thoreau
+Anonymous
