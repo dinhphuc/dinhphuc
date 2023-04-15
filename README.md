@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Pain has taught me to appreciate the things that don't hurt.**
+**Success doesn't just come and find you, you have to go out and get it.**
 
-Melissa Tripp
+Anonymous
