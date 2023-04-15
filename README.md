@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Live life to the fullest and focus on the positive.**
+**Deep doubts, deep wisdom; small doubts, small wisdom.**
 
-Matt Cameron
+Chinese Proverb
