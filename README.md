@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are your only limit.**
+**You came into the world to do something; So... do something!**
 
-Anonymous
+Johnnie Dent Jr
