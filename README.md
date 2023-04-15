@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If only we'd stop trying to be happy we could have a pretty good time.**
+**Everything you need to accomplish your goals is already in you.**
 
-Edith Wharton
+Anonymous
