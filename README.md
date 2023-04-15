@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life's most persistent and urgent question is, 'What are you doing for others?'**
+**The absence of adversity is an indicator that my goals aren't significant enough.**
 
-Martin Luther King
+Clint Bruce
