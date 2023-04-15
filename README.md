@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A team is not a group of people that work together. A team is a group of people that trust each other.**
+**Live life to the fullest and focus on the positive.**
 
-Simon Sinek
+Matt Cameron
