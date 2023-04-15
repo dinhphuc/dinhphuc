@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The miracle isn't that I finished. The miracle is that I had the courage to start.**
+**Do something today that your future self will thank you for.**
 
-John Bingham
+Anonymous
