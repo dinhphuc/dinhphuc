@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If only we'd stop trying to be happy we could have a pretty good time.**
+**When will you realize, the more you take, the less you have.**
 
-Edith Wharton
+Master Oogway
