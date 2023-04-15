@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot propel yourself forward by patting yourself on the back.**
+**Every day may not be good... but there's something good in every day.**
 
-Steve Prefontaine
+Alice Morse Earle
