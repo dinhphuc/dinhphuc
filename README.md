@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When we help ourselves, we find moments of happiness. When we help others, we find lasting fulfillment.**
+**Winning isn't everything, but wanting to win is.**
 
-Simon Sinek
+Vince Lombardi
