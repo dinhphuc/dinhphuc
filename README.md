@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**For every minute you are angry you lose sixty seconds of happiness.**
+**Fear is temporary. Regret is forever.**
 
-Ralph Waldo Emerson
+Anonymous
