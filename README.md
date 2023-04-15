@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Goals may give focus, but dreams give power.**
+**Life's most persistent and urgent question is, 'What are you doing for others?'**
 
-John Maxwell
+Martin Luther King
