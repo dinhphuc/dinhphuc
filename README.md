@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If it is important to you, you will find a way. If not, you'll find an excuse.**
+**In the end, it's not the years in your life that count. It's the life in your years.**
 
-Anonymous
+Abraham Lincoln
