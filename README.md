@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Courage is one step ahead of fear.**
+**You cannot propel yourself forward by patting yourself on the back.**
 
-Coleman Young
+Steve Prefontaine
