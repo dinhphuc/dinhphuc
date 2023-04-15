@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are loved.**
+**Success is the ability to go from one failure to another with no loss of enthusiasm.**
 
-Anonymous
+Winston Churchill
