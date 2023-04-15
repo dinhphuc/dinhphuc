@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is either a daring adventure or nothing at all.**
+**You can if you think you can.**
 
-Helen Keller
+George Reeves
