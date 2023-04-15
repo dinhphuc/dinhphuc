@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A fault confessed is half redressed.**
+**Success usually comes to those who are too busy to be looking for it.**
 
-Zulu Proverb
+Henry David Thoreau
