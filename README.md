@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Every day may not be good... but there's something good in every day.**
+**You are your only limit.**
 
-Alice Morse Earle
+Anonymous
