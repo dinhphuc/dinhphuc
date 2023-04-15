@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Pain has taught me to appreciate the things that don't hurt.**
+**Don't waste a minute not being happy. If one door closes, run to the next window - or break down a door.**
 
-Melissa Tripp
+Brooke Shields
