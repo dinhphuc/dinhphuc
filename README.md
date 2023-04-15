@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is short, and it is up to you to make it sweet.**
+**The miracle isn't that I finished. The miracle is that I had the courage to start.**
 
-Sarah Louise Delany
+John Bingham
