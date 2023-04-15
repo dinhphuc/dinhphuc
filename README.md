@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Winning isn't everything, but wanting to win is.**
+**A team is not a group of people that work together. A team is a group of people that trust each other.**
 
-Vince Lombardi
+Simon Sinek
