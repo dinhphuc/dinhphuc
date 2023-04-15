@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Deep doubts, deep wisdom; small doubts, small wisdom.**
+**If it is important to you, you will find a way. If not, you'll find an excuse.**
 
-Chinese Proverb
+Anonymous
