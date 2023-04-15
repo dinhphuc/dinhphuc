@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When life puts you in tough situations, don't say "why me?" say "try me".**
+**Pain has taught me to appreciate the things that don't hurt.**
 
-Anonymous
+Melissa Tripp
