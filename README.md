@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The absence of adversity is an indicator that my goals aren't significant enough.**
+**Pain has taught me to appreciate the things that don't hurt.**
 
-Clint Bruce
+Melissa Tripp
