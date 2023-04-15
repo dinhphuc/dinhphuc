@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is the ability to go from one failure to another with no loss of enthusiasm.**
+**Life is short, and it is up to you to make it sweet.**
 
-Winston Churchill
+Sarah Louise Delany
