@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Winning isn't everything, but wanting to win is.**
+**A little progress each day adds up to big results.**
 
-Vince Lombardi
+Satya Nani
