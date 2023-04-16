@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is the sum of small efforts repeated day-in and day-out.**
+**If you have only one smile in you, give it to the people you love.**
 
-Robert Collier
+Maya Angelou
