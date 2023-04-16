@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The only person who can pull me down is myself, and I'm not going to let myself pull me down anymore.**
+**Courage is taking those first steps toward your dreams even if you can't see the path ahead.**
 
-C. JoyBell C
+Anonymous
