@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I've never let anyone talk me into not believing in myself.**
+**I am happy because I choose to be happy no matter what the situation is.**
 
-Muhammad Ali
+Anonymous
