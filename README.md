@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The man who views the world at 50 the same as he did at 20 has wasted 30 years of his life.**
+**There are two things a person should never be angry at: what they can help, and what they cannot.**
 
-Muhammad Ali
+Plato
