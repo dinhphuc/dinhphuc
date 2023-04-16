@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure is not the opposite of success. Its part of success.**
+**Winning isn't everything, but wanting to win is.**
 
-Anonymous
+Vince Lombardi
