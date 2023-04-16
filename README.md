@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Challenges are what make life interesting and overcoming them is what makes life meaningful.**
+**Do more of what lights you up and makes you feel alive. The world needs your spark.**
 
-Joshua Marine
+Anonymous
