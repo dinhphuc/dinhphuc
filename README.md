@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Continuous effort - not strength or intelligence - is the key to unlocking our potential.**
+**Choose kindness and laugh often.**
 
-Liane Cardes
+Anonymous
