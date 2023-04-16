@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There are only two options regarding commitment. You're either IN or you're OUT. There is no such thing as life in-between.**
+**Even the greatest were beginners. Don't be afraid to take that first step.**
 
-Pat Riley
+Anonymous
