@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Choose kindness and laugh often.**
+**Don't think about what might go wrong. Think about what might go right.**
 
 Anonymous
