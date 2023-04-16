@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot change the direction of the wind - only alter the angle of your sails.**
+**Life is ours to be spent, not to be saved.**
 
-Anonymous
+D. H. Lawrence
