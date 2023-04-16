@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Successful people have fear, successful people have doubts, and successful people have worries. They just don't let these feelings stop them.**
+**Live for yourself and don't ever stop.**
 
-T. Harv Eker
+John Tew
