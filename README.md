@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A little progress each day adds up to big results.**
+**You are so much more than what you are going through.**
 
-Satya Nani
+John Tew
