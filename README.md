@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you have only one smile in you, give it to the people you love.**
+**Be tolerant with others and strict with yourself.**
 
-Maya Angelou
+Marcus Aurelius
