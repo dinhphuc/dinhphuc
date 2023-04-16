@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Always dream and shoot higher than you know you can do. Do not bother just to be better than your contemporaries or predecessors. Try to be better than yourself.**
+**I've never let anyone talk me into not believing in myself.**
 
-William Faulkner
+Muhammad Ali
