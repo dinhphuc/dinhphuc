@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't think about what might go wrong. Think about what might go right.**
+**Failure is not the opposite of success. Its part of success.**
 
 Anonymous
