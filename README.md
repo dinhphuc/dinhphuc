@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't go up to the top, you grow up to the top.**
+**The only person who can pull me down is myself, and I'm not going to let myself pull me down anymore.**
 
-John C. Maxwell
+C. JoyBell C
