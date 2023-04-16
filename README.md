@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Stop doubting yourself. Work hard and make it happen.**
+**You don't go up to the top, you grow up to the top.**
 
-Anonymous
+John C. Maxwell
