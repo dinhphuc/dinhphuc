@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Even the greatest were beginners. Don't be afraid to take that first step.**
+**Continuous effort - not strength or intelligence - is the key to unlocking our potential.**
 
-Anonymous
+Liane Cardes
