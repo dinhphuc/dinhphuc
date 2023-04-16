@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be tolerant with others and strict with yourself.**
+**Stop doubting yourself. Work hard and make it happen.**
 
-Marcus Aurelius
+Anonymous
