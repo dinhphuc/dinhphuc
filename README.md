@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Courage is taking those first steps toward your dreams even if you can't see the path ahead.**
+**When we point to obstacles we inhibit progress. When we offer solutions we advance.**
 
-Anonymous
+Simon Sinek
