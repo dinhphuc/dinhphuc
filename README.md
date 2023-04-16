@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Count your age by friends, not years. Count your life by smiles, not tears.**
+**For every minute you are angry you lose sixty seconds of happiness.**
 
-John Lennon
+Ralph Waldo Emerson
