@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Live for yourself and don't ever stop.**
+**Difficulty is what wakes up the genius.**
 
-John Tew
+Nassim Nicholas Taleb
