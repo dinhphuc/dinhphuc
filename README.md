@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A little progress each day adds up to big results.**
+**There are only two options regarding commitment. You're either IN or you're OUT. There is no such thing as life in-between.**
 
-Satya Nani
+Pat Riley
