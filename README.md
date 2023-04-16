@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are so much more than what you are going through.**
+**Remember that guy that gave up? Neither does anyone else.**
 
-John Tew
+Anonymous
