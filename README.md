@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Very little is needed to make a happy life; it is all within yourself, in your way of thinking.**
+**Success is the sum of small efforts repeated day-in and day-out.**
 
-Marcus Aurelius
+Robert Collier
