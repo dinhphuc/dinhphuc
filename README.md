@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**For every minute you are angry you lose sixty seconds of happiness.**
+**Challenges are what make life interesting and overcoming them is what makes life meaningful.**
 
-Ralph Waldo Emerson
+Joshua Marine
