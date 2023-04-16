@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do more of what lights you up and makes you feel alive. The world needs your spark.**
+**A little progress each day adds up to big results.**
 
-Anonymous
+Satya Nani
