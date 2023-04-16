@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Positive thinking will let you do everything better than negative thinking will.**
+**You cannot change the direction of the wind - only alter the angle of your sails.**
 
-Zig Ziglar
+Anonymous
