@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There are only two options regarding commitment. You're either IN or you're OUT. There is no such thing as life in-between.**
+**Positive thinking will let you do everything better than negative thinking will.**
 
-Pat Riley
+Zig Ziglar
