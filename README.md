@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't find will power, you create it.**
+**I don't aspire to be like other driver. I aspire to be unique.**
 
-Anonymous
+Lewis Hamilton
