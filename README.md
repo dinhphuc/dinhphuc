@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not how much we have, but how much we enjoy, that makes happiness.**
+**Be aware as often as possible of the great transformation process you are going through.**
 
-Charles Spurgeon
+Anonymous
