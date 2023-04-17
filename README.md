@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whoever loves much, performs much, and can accomplish much, and what is done in love is done well.**
+**Learn from the past, set vivid, detailed goals for the future, and live in the only moment of time over which you have any control: now.**
 
-Vincent van Gogh
+Denis Waitley
