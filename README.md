@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**One of the best ways of being happy with life is to make someone happy.**
+**I don't aspire to be like other driver. I aspire to be unique.**
 
-Anonymous
+Lewis Hamilton
