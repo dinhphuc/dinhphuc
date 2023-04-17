@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Change your thoughts and you change your world.**
+**Our problems don't stem from our ignorance so much as our disobedience of that which we know to be right.**
 
-Norman Vincent Peale
+Stephen Covey
