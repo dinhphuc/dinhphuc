@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You came into the world to do something; So... do something!**
+**Nobody can make you to feel inferior without your consent.**
 
-Johnnie Dent Jr
+Eleanor Roosevelt
