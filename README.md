@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When a new day begins, dare to smile gratefully.**
+**Just one smile, immensely increases the beauty, of the universe.**
 
-Steve Maraboli
+Sri Chinmoy
