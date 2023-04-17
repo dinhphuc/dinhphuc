@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Think well of all, be patient with all, and try to find the good in all.**
+**Whoever loves much, performs much, and can accomplish much, and what is done in love is done well.**
 
-Muhammad Ali
+Vincent van Gogh
