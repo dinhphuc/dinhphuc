@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I don't aspire to be like other driver. I aspire to be unique.**
+**When a new day begins, dare to smile gratefully.**
 
-Lewis Hamilton
+Steve Maraboli
