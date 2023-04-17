@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Once you choose hope, anything's possible.**
+**Always remember you are braver than you believe, stronger than you seem, and smarter than you think.**
 
-Christopher Reeve
+Christopher Robin
