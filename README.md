@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be tolerant with others and strict with yourself.**
+**Spread love everywhere you go. Let no one ever come to you without leaving happier.**
 
-Marcus Aurelius
+Mother Teresa
