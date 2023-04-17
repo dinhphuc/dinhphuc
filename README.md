@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Just one smile, immensely increases the beauty, of the universe.**
+**Dream without fear. Love without limits.**
 
-Sri Chinmoy
+Dilip Bathija
