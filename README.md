@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are a masterpiece.**
+**Fall seven times, stand up eight.**
 
-Anonymous
+Japanese Proverb
