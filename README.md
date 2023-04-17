@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Appreciate the people who make you smile.**
+**Running is therapy anyone can afford.**
 
-Anonymous
+Toni Sorenson
