@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I don't aspire to be like other driver. I aspire to be unique.**
+**It's not what you look at that matters, it's what you see.**
 
-Lewis Hamilton
+Henry David Thoreau
