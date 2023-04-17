@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I am happy because I choose to be happy no matter what the situation is.**
+**Once you choose hope, anything's possible.**
 
-Anonymous
+Christopher Reeve
