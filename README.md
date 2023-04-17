@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Always remember you are braver than you believe, stronger than you seem, and smarter than you think.**
+**I find that the harder I work, the more luck I seem to have.**
 
-Christopher Robin
+Thomas Jefferson
