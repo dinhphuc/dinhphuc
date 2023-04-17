@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Our problems don't stem from our ignorance so much as our disobedience of that which we know to be right.**
+**If you get tired, learn to rest, not quit.**
 
-Stephen Covey
+Anonymous
