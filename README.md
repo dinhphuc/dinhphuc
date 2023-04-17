@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be aware as often as possible of the great transformation process you are going through.**
+**Do not blame the world. Find a solution.**
 
-Anonymous
+Sri Chinmoy
