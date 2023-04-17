@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**He who lives in harmony with himself lives in harmony with the universe.**
+**If you're presenting yourself with confidence, you can pull off pretty much anything.**
 
-Marcus Aurelius
+Katy Perry
