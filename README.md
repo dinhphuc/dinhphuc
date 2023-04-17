@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't blame gravity for falling in love.**
+**He who lives in harmony with himself lives in harmony with the universe.**
 
-Albert Einstein
+Marcus Aurelius
