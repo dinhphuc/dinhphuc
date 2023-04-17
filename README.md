@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Learn from the past, set vivid, detailed goals for the future, and live in the only moment of time over which you have any control: now.**
+**You don't find will power, you create it.**
 
-Denis Waitley
+Anonymous
