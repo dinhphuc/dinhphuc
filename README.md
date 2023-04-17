@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you get tired, learn to rest, not quit.**
+**You are a masterpiece.**
 
 Anonymous
