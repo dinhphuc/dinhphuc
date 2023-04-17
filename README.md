@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Spend your life with people who make you smile, laugh, and feel loved.**
+**The first place where self-esteem begins its journey is within us.**
 
-Roy T. Bennett
+Stephen Richards
