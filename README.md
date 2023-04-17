@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not what you look at that matters, it's what you see.**
+**It is not how much we have, but how much we enjoy, that makes happiness.**
 
-Henry David Thoreau
+Charles Spurgeon
