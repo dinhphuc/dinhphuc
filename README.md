@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything will work out in the end. You don't need to know how. You just have to trust that it will.**
+**One of the best ways of being happy with life is to make someone happy.**
 
 Anonymous
