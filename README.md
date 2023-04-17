@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're presenting yourself with confidence, you can pull off pretty much anything.**
+**Think well of all, be patient with all, and try to find the good in all.**
 
-Katy Perry
+Muhammad Ali
