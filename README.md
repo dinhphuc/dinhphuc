@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Running is therapy anyone can afford.**
+**Spend your life with people who make you smile, laugh, and feel loved.**
 
-Toni Sorenson
+Roy T. Bennett
