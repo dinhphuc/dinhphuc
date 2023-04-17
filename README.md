@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Fall seven times, stand up eight.**
+**You can't blame gravity for falling in love.**
 
-Japanese Proverb
+Albert Einstein
