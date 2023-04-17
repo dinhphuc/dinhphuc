@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I find that the harder I work, the more luck I seem to have.**
+**Be tolerant with others and strict with yourself.**
 
-Thomas Jefferson
+Marcus Aurelius
