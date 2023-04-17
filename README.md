@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Spread love everywhere you go. Let no one ever come to you without leaving happier.**
+**Change your thoughts and you change your world.**
 
-Mother Teresa
+Norman Vincent Peale
