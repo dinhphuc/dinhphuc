@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You will never always be motivated. You have to learn to be disciplined.**
+**You should never give up. No matter how hard the situation is, always believe that something beautiful is going to happen.**
 
 Anonymous
