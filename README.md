@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Make today so awesome yesterday gets jealous.**
+**There is nothing on this earth more to be prized than true friendship.**
 
-Anonymous
+Thomas Aquinas
