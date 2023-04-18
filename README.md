@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Winning doesn't always mean being first. Winning means you're doing better than you've done before.**
+**Only a man who knows what it is like to be defeated can reach down to the bottom of his soul and come up with the extra ounce of power it takes to win when the match is even.**
 
-Bonnie Blair
+Muhammad Ali
