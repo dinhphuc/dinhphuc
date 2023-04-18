@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**People will see you the way you see yourself.**
+**One who moves a mountain begins by carrying away small stones.**
 
-Sergio Diaz
+Confucius
