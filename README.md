@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't find will power, you create it.**
+**It ain't as bad as you think. It will look better in the morning.**
 
-Anonymous
+Colin Powell
