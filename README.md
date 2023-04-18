@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing will work unless you do.**
+**Make the mind tougher by exposing it to adversity.**
 
-Maya Angelou
+Robert Greene
