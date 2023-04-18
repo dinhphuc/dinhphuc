@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep smiling, because life is a beautiful thing and there's so much to smile about.**
+**Winning doesn't always mean being first. Winning means you're doing better than you've done before.**
 
-Marilyn Monroe
+Bonnie Blair
