@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how much it hurts, hold your head up and keep going.**
+**The best way to predict your future is to create it.**
 
-Anonymous
+Peter F. Drucker
