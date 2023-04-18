@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Very little is needed to make a happy life; it is all within yourself, in your way of thinking.**
+**Mind what you have learned. Save you it can.**
 
-Marcus Aurelius
+Yoda
