@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The sweat. The time. The devotion. It pays off.**
+**The only person who can pull me down is myself, and I'm not going to let myself pull me down anymore.**
 
-Anonymous
+C. JoyBell C
