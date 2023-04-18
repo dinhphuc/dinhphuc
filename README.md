@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The best way to predict your future is to create it.**
+**You are stronger than you think.**
 
-Peter F. Drucker
+Anonymous
