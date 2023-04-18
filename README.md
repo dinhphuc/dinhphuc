@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Opportunities to find deeper powers within ourselves come when life seems most challenging.**
+**You don't find will power, you create it.**
 
-Joseph Campbell
+Anonymous
