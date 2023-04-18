@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are never too old to set another goal or dream a new dream.**
+**Nothing will work unless you do.**
 
-Les Brown
+Maya Angelou
