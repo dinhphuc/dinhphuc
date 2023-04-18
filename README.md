@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You should never give up. No matter how hard the situation is, always believe that something beautiful is going to happen.**
+**You are never too old to set another goal or dream a new dream.**
 
-Anonymous
+Les Brown
