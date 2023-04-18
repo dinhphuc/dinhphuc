@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There is nothing on this earth more to be prized than true friendship.**
+**When you stop chasing the wrong things you give the right things a chance to catch you.**
 
-Thomas Aquinas
+Anonymous
