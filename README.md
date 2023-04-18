@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't find will power, you create it.**
+**No matter how much it hurts, hold your head up and keep going.**
 
 Anonymous
