@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Patience you must have, my young padawan.**
+**Difficult roads always lead to beautiful destinations.**
 
-Yoda
+Zig Ziglar
