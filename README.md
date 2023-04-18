@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Change yourself and fortune will change.**
+**Keep smiling, because life is a beautiful thing and there's so much to smile about.**
 
-Portuguese Proverb
+Marilyn Monroe
