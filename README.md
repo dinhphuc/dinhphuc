@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are stronger than you think.**
+**Do more of what lights you up and makes you feel alive. The world needs your spark.**
 
 Anonymous
