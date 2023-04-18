@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Courage doesn't always roar, sometimes it's the quiet voice at the end of the day whispering 'I will try again tomorrow'.**
+**Our own self-esteem is something we can actually twist in whatever way we want.**
 
-Mary Anne Radmacher
+Stephen Richards
