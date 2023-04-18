@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Make the mind tougher by exposing it to adversity.**
+**The past does not equal the future.**
 
-Robert Greene
+Tony Robbins
