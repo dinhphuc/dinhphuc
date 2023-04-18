@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you stop chasing the wrong things you give the right things a chance to catch you.**
+**The only person who can pull me down is myself, and I'm not going to let myself pull me down anymore.**
 
-Anonymous
+C. JoyBell C
