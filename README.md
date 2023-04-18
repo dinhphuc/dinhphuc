@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**One who moves a mountain begins by carrying away small stones.**
+**Change yourself and fortune will change.**
 
-Confucius
+Portuguese Proverb
