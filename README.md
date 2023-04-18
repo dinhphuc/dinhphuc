@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember the entrance to the sanctuary is inside you.**
+**People will see you the way you see yourself.**
 
-Rumi
+Sergio Diaz
