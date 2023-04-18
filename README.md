@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be you. Do you. For you.**
+**Until you're broken, you don't know what you're made of.**
 
 Anonymous
