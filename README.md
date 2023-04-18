@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Why worry? If you've done the very best you can, worrying won't make it any better.**
+**Remember the entrance to the sanctuary is inside you.**
 
-Walt Disney
+Rumi
