@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Difficult roads always lead to beautiful destinations.**
+**Everything has beauty, but not everyone can see.**
 
-Zig Ziglar
+Confucius
