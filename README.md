@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The past does not equal the future.**
+**The pessimist sees difficulty in every opportunity. The optimist sees opportunity in every difficulty.**
 
-Tony Robbins
+Winston Churchill
