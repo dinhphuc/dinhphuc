@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When the sun rises, it rises for everyone.**
+**Very little is needed to make a happy life; it is all within yourself, in your way of thinking.**
 
-Cuban Proverb
+Marcus Aurelius
