@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The pessimist sees difficulty in every opportunity. The optimist sees opportunity in every difficulty.**
+**The sweat. The time. The devotion. It pays off.**
 
-Winston Churchill
+Anonymous
