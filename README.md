@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody can make you to feel inferior without your consent.**
+**Be you. Do you. For you.**
 
-Eleanor Roosevelt
+Anonymous
