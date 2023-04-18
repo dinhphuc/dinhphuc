@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything has beauty, but not everyone can see.**
+**You will never always be motivated. You have to learn to be disciplined.**
 
-Confucius
+Anonymous
