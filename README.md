@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Let your unique awesomeness and positive energy inspire confidence in others.**
+**Success trains. Failure complains.**
 
 Anonymous
