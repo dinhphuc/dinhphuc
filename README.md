@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.**
+**No matter how tough it may get, never give up on yourself or you will look back and regret it.**
 
-Napoleon Hill
+Anonymous
