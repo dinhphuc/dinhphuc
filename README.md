@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success trains. Failure complains.**
+**You don't manifest dreams without taking chances.**
 
-Anonymous
+Stephen Richards
