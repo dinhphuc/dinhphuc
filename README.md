@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be gentle with yourself. You're doing the best you can.**
+**Let your unique awesomeness and positive energy inspire confidence in others.**
 
 Anonymous
