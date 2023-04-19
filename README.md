@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't always control what goes on outside, but you can always control what goes on inside.**
+**Success is no accident. It is hard work, perseverance, learning, studying, sacrifice and most of all, love of what you are doing or learning to do.**
 
-Wayne Dyer
+Pele
