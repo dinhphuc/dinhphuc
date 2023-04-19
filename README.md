@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I always like to look on the optimistic side of life, but I am realistic enough to know that life is a complex matter.**
+**The best preparation for tomorrow is doing your best today.**
 
-Walt Disney
+H. Jackson Brown, Jr
