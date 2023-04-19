@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The only person who can pull me down is myself, and I'm not going to let myself pull me down anymore.**
+**The greatest mistake you can make in life is to continually fear that you will make one.**
 
-C. JoyBell C
+Elbert Hubbard
