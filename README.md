@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how tough it may get, never give up on yourself or you will look back and regret it.**
+**Setting goals is the first step into turning the invisible into the visible.**
 
-Anonymous
+Tony Robbins
