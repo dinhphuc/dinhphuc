@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You can if you think you can.**
+**Be helpful. When you see a person without a smile, give them yours.**
 
-George Reeves
+Zig Ziglar
