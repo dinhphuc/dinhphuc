@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The best preparation for tomorrow is doing your best today.**
+**You can't always control what goes on outside, but you can always control what goes on inside.**
 
-H. Jackson Brown, Jr
+Wayne Dyer
