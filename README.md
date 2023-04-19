@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be helpful. When you see a person without a smile, give them yours.**
+**A person who never made a mistake never tried anything new.**
 
-Zig Ziglar
+Albert Einstein
