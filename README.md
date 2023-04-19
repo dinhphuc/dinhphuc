@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**To handle yourself, use your head; to handle others, use your heart.**
+**Through challenge and difficulty, we learn to see life differently than before.**
 
-Eleanor Roosevelt
+Auliq-Ice
