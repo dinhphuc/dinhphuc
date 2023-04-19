@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When written in Chinese the word "crisis" is composed of two characters - one represents danger and the other represents opportunity.**
+**Make sure your worst enemy doesn't live between your own two ears.**
 
-John F. Kennedy
+Laird Hamilton
