@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Learn to value yourself, which means: fight for your happiness.**
+**Nurture your mind with great thoughts, for you will never go any higher than you think.**
 
-Ayn Rand
+Benjamin Disraeli
