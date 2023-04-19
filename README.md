@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There's nothing that you can do that can't be done.**
+**Don't judge each day by the harvest you reap but by the seeds that you plant.**
 
-The Beatles
+Robert Louis Stevenson
