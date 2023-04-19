@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Once you replace negative thoughts with positive ones, you'll start having positive results.**
+**Life isn't about getting and having, it's about giving and being.**
 
-Willie Nelson
+Kevin Kruse
