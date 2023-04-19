@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't manifest dreams without taking chances.**
+**You may never know what results come of your actions, but if you do nothing, there will be no results.**
 
-Stephen Richards
+Mahatma Gandhi
