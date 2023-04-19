@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You may never know what results come of your actions, but if you do nothing, there will be no results.**
+**Once you replace negative thoughts with positive ones, you'll start having positive results.**
 
-Mahatma Gandhi
+Willie Nelson
