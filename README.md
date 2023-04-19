@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When something is important enough, you do it even if the odds are not in your favor.**
+**Find a place inside where there's joy, and the joy will burn out the pain.**
 
-Elon Musk
+Joseph Campbell
