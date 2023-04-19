@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nurture your mind with great thoughts, for you will never go any higher than you think.**
+**Control, control, you must learn control!**
 
-Benjamin Disraeli
+Yoda
