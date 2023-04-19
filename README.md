@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A person who never made a mistake never tried anything new.**
+**The very best thing you can do for the whole world is to make the best of yourself.**
 
-Albert Einstein
+Anonymous
