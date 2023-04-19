@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Make sure your worst enemy doesn't live between your own two ears.**
+**There's nothing that you can do that can't be done.**
 
-Laird Hamilton
+The Beatles
