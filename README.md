@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't judge each day by the harvest you reap but by the seeds that you plant.**
+**Yesterday is history, tomorrow is a mystery, today is a gift of God, which is why we call it the present.**
 
-Robert Louis Stevenson
+Bill Keane
