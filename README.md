@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Skill is only developed by hours and hours of work.**
+**Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.**
 
-Usain Bolt
+Napoleon Hill
