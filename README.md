@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When written in Chinese the word "crisis" is composed of two characters - one represents danger and the other represents opportunity.**
+**Skill is only developed by hours and hours of work.**
 
-John F. Kennedy
+Usain Bolt
