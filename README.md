@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Through challenge and difficulty, we learn to see life differently than before.**
+**You can if you think you can.**
 
-Auliq-Ice
+George Reeves
