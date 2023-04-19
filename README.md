@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest mistake you can make in life is to continually fear that you will make one.**
+**Learn to value yourself, which means: fight for your happiness.**
 
-Elbert Hubbard
+Ayn Rand
