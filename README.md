@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Stay strong. You never know who you are inspiring.**
+**I never dreamed about success. I worked for it.**
 
-Anonymous
+Estee Lauder
