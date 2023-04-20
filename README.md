@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No act of kindness, no matter how small, is ever wasted.**
+**Never let the fear of striking out keep you from playing the game.**
 
-Aesop
+Babe Ruth
