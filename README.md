@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Dream without fear. Love without limits.**
+**The sun itself is weak when it first rises, and gathers strength and courage as the day gets on.**
 
-Dilip Bathija
+Charles Dickens
