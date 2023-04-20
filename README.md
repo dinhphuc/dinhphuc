@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You've got to find people who love like you do.**
+**There is nothing on this earth more to be prized than true friendship.**
 
-Anonymous
+Thomas Aquinas
