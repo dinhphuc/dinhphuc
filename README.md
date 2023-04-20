@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The sun itself is weak when it first rises, and gathers strength and courage as the day gets on.**
+**Work hard and be nice to people.**
 
-Charles Dickens
+Anonymous
