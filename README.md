@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Never let the fear of striking out keep you from playing the game.**
+**Success is what happens after you have survived all of your disappointments.**
 
-Babe Ruth
+Anonymous
