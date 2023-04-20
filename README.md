@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Winning is fun, but those moments that you can touch someone's life in a very positive way are better.**
+**Don't give up on yourself. You're worth it.**
 
-Tim Howard
+Anonymous
