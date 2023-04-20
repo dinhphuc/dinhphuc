@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I never dreamed about success. I worked for it.**
+**The secret of change is to focus all of your energy, not on fighting the old, but on building the new.**
 
-Estee Lauder
+Socrates
