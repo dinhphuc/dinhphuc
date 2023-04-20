@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Acting on a good idea is better than just having a good idea.**
+**Dream without fear. Love without limits.**
 
-Robert Half
+Dilip Bathija
