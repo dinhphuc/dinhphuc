@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You fail because you don't believe.**
+**Doing what you like is freedom. Liking what you do is happiness.**
 
-Yoda
+Anonymous
