@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whoever loves much, performs much, and can accomplish much, and what is done in love is done well.**
+**Build your own dreams, or someone else will hire you to build theirs.**
 
-Vincent van Gogh
+Farrah Gray
