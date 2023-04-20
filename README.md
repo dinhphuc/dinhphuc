@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Doing what you like is freedom. Liking what you do is happiness.**
+**I have not failed. I've just found 10,000 ways that won't work.**
 
-Anonymous
+Thomas Edison
