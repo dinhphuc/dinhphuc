@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't give up on yourself. You're worth it.**
+**I attribute my success to this: I never gave or took any excuse.**
 
-Anonymous
+Florence Nightingale
