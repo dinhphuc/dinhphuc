@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is what happens after you have survived all of your disappointments.**
+**No matter how much it hurts, hold your head up and keep going.**
 
 Anonymous
