@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It is better to fail in originality than to succeed in imitation.**
+**You've got to find people who love like you do.**
 
-Herman Melville
+Anonymous
