@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you stop chasing the wrong things you give the right things a chance to catch you.**
+**Acting on a good idea is better than just having a good idea.**
 
-Anonymous
+Robert Half
