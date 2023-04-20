@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't get discouraged by what you're going through. Your time is coming. Where you are is not where you're going to stay.**
+**Kindness is free. Sprinkle that stuff everywhere.**
 
 Anonymous
