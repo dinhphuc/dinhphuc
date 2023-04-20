@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I attribute my success to this: I never gave or took any excuse.**
+**Wake up every morning with the thought that something wonderful is about to happen.**
 
-Florence Nightingale
+Anonymous
