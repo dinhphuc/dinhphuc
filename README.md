@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You came into the world to do something; So... do something!**
+**No act of kindness, no matter how small, is ever wasted.**
 
-Johnnie Dent Jr
+Aesop
