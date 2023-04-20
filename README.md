@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**All souls are lost until they are found.**
+**When you stop chasing the wrong things you give the right things a chance to catch you.**
 
-Kate McGahan
+Anonymous
