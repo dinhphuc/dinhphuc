@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of change is to focus all of your energy, not on fighting the old, but on building the new.**
+**When something is important enough, you do it even if the odds are not in your favor.**
 
-Socrates
+Elon Musk
