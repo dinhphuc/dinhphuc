@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Setting goals is the first step into turning the invisible into the visible.**
+**The best feeling of happiness is when you're happy because you've made somebody else happy.**
 
-Tony Robbins
+Anonymous
