@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The best feeling of happiness is when you're happy because you've made somebody else happy.**
+**All souls are lost until they are found.**
 
-Anonymous
+Kate McGahan
