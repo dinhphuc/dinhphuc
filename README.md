@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**To be a great champion you must believe you are the best. If you're not, pretend you are.**
+**Winning is fun, but those moments that you can touch someone's life in a very positive way are better.**
 
-Muhammad Ali
+Tim Howard
