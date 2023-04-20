@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Opportunities don't happen. You create them.**
+**To be a great champion you must believe you are the best. If you're not, pretend you are.**
 
-Chris Grosser
+Muhammad Ali
