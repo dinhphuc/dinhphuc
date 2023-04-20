@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Always remember you are braver than you believe, stronger than you seem, and smarter than you think.**
+**Opportunities don't happen. You create them.**
 
-Christopher Robin
+Chris Grosser
