@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Wake up every morning with the thought that something wonderful is about to happen.**
+**Stay strong. You never know who you are inspiring.**
 
 Anonymous
