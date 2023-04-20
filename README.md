@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe in yourself and you can be anything.**
+**Attitude is everything. New day, new strength, new thoughts.**
 
-Katy Perry
+Anonymous
