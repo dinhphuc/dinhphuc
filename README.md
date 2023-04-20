@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Attitude is everything. New day, new strength, new thoughts.**
+**Be strong enough to let go and patient enough to wait for what you deserve.**
 
 Anonymous
