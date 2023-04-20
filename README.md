@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Work hard and be nice to people.**
+**You fail because you don't believe.**
 
-Anonymous
+Yoda
