@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be who you are and say what you feel because those who mind don't matter and those who matter don't mind.**
+**Life is trying things to see if they work.**
 
-Dr. Seuss
+Ray Bradbury
