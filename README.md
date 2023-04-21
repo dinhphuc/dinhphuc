@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Make sure your worst enemy doesn't live between your own two ears.**
+**Whatever you hold in your mind on a consistent basis is exactly what you will experience in your life.**
 
-Laird Hamilton
+Tony Robbins
