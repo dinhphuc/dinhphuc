@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Learn from the past, set vivid, detailed goals for the future, and live in the only moment of time over which you have any control: now.**
+**The more you praise and celebrate your life, the more there is in life to celebrate.**
 
-Denis Waitley
+Oprah Winfrey
