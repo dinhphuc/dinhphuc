@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how tough it may get, never give up on yourself or you will look back and regret it.**
+**Today you are you! That is truer than true! There is no one alive who is you-er than you!**
 
-Anonymous
+Dr. Seuss
