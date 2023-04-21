@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We last longer if we compete against ourselves for the good of others instead of competing against others for the good of ourselves.**
+**Be who you are and say what you feel because those who mind don't matter and those who matter don't mind.**
 
-Simon Sinek
+Dr. Seuss
