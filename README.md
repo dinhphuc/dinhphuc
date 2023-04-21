@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be frightened by difficulties.**
+**One day I'll be at the place I always wanted to be.**
 
-Ryan Holiday
+Anonymous
