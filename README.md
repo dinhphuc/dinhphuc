@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When obstacles arise, you change your direction to reach your goal, you do not change your decision to get there.**
+**Learn from the past, set vivid, detailed goals for the future, and live in the only moment of time over which you have any control: now.**
 
-Zig Ziglar
+Denis Waitley
