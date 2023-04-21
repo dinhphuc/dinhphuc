@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When something is important enough, you do it even if the odds are not in your favor.**
+**Do all things with love.**
 
-Elon Musk
+Og Mandino
