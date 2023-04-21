@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you hold in your mind on a consistent basis is exactly what you will experience in your life.**
+**I was angry that I had no shoes. Then I met a man who had no feet.**
 
-Tony Robbins
+Chinese Proverb
