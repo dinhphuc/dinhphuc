@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When obstacles arise, you change your direction to reach your goal, you do not change your decision to get there.**
+**Open your eyes and notice the beauty of this wonderful world.**
 
-Zig Ziglar
+Anonymous
