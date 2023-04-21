@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is trying things to see if they work.**
+**Make sure your worst enemy doesn't live between your own two ears.**
 
-Ray Bradbury
+Laird Hamilton
