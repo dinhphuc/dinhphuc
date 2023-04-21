@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**One day I'll be at the place I always wanted to be.**
+**Keep smiling. It makes people wonder what you are up to.**
 
 Anonymous
