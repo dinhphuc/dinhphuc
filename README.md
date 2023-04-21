@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I have not failed. I've just found 10,000 ways that won't work.**
+**No matter how tough it may get, never give up on yourself or you will look back and regret it.**
 
-Thomas Edison
+Anonymous
