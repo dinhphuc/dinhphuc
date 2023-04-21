@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't give up on yourself. You're worth it.**
+**Don't be frightened by difficulties.**
 
-Anonymous
+Ryan Holiday
