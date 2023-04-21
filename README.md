@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It makes a big difference in your life when you stay positive.**
+**Today, give a stranger one of your smiles. It might be the only sunshine they see all day.**
 
-Ellen DeGeneres
+H. Jackson Brown Jr
