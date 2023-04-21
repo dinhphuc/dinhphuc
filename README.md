@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Today, give a stranger one of your smiles. It might be the only sunshine they see all day.**
+**You're allowed to scream. You're allowed to cry. But don't give up.**
 
-H. Jackson Brown Jr
+Anonymous
