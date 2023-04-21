@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be afraid to give up the good to go for the great.**
+**I have not failed. I've just found 10,000 ways that won't work.**
 
-John D. Rockefeller
+Thomas Edison
