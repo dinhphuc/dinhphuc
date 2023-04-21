@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Good friends are like stars. You don't always see them, but you know they're always there.**
+**The pain you feel today will be the strength you feel tomorrow.**
 
-Christy Evans
+Anonymous
