@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Today you are you! That is truer than true! There is no one alive who is you-er than you!**
+**Successful people are not gifted; they just work hard, then succeed on purpose.**
 
-Dr. Seuss
+G.K. Nielson
