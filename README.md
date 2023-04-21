@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Open your eyes and notice the beauty of this wonderful world.**
+**If you are willing to do more than you are paid to do, eventually you will be paid to do more than you do.**
 
 Anonymous
