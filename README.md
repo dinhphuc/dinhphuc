@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The more you praise and celebrate your life, the more there is in life to celebrate.**
+**Don't give up on yourself. You're worth it.**
 
-Oprah Winfrey
+Anonymous
