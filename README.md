@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do all things with love.**
+**It makes a big difference in your life when you stay positive.**
 
-Og Mandino
+Ellen DeGeneres
