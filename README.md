@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do something today that your future self will thank you for.**
+**I will not follow where the path may lead, but I will go where there is no path, and I will leave a trail.**
 
-Anonymous
+Muriel Strode
