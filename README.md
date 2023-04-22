@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Start by doing what's necessary; then do what's possible; and suddenly you are doing the impossible.**
+**Nothing is impossible, the word itself says "I'm possible"!**
 
-Francis of Assisi
+Audrey Hepburn
