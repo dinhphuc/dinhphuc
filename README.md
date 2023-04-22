@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A fault confessed is half redressed.**
+**May the Force be with you.**
 
-Zulu Proverb
+Yoda
