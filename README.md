@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**In the end, it's not the years in your life that count. It's the life in your years.**
+**A fault confessed is half redressed.**
 
-Abraham Lincoln
+Zulu Proverb
