@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Dream without fear. Love without limits.**
+**Nothing is impossible, the word itself says "I'm possible"!**
 
-Dilip Bathija
+Audrey Hepburn
