@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Wake up every morning with the thought that something wonderful is about to happen.**
+**Smile at strangers and you just might change a life.**
 
-Anonymous
+Steve Maraboli
