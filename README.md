@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Let your smile change the world, but don't let the world change your smile.**
+**Wake up every morning with the thought that something wonderful is about to happen.**
 
 Anonymous
