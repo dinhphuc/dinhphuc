@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A challenge lifelong it is, not to bend fear into anger.**
+**You alone are enough. You have nothing to prove to anybody.**
 
-Yoda
+Maya Angelou
