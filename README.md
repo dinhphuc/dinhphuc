@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing is impossible, the word itself says "I'm possible"!**
+**Good things come to those who believe. Better things come to those who are patient. The best things come to those who never give up.**
 
-Audrey Hepburn
+Anonymous
