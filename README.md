@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is never fair, and perhaps it is a good thing for most of us that it is not.**
+**One often meets his destiny on the road he takes to avoid it.**
 
-Oscar Wilde
+Master Oogway
