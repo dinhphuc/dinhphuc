@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Luck is what happens when preparation meets opportunity.**
+**Life is never fair, and perhaps it is a good thing for most of us that it is not.**
 
-Seneca
+Oscar Wilde
