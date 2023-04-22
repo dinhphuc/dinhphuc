@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up. Great things take time. Be patient.**
+**It is not human nature to enjoy what we get with no effort.**
 
-Anonymous
+Sri Chinmoy
