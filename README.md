@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Throw kindness around like confetti.**
+**Whatever you decide to do, make sure it makes you happy.**
 
 Anonymous
