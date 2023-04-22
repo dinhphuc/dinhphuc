@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You're allowed to scream. You're allowed to cry. But don't give up.**
+**The greatest danger for most of us is not that our aim is too high and we miss it, but that it is too low and we reach it.**
 
-Anonymous
+Michaelangelo
