@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A champion is someone who gets up when they can't.**
+**One day I'll be at the place I always wanted to be.**
 
-Jack Dempsey
+Anonymous
