@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure is not the opposite of success. Its part of success.**
+**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
 
 Anonymous
