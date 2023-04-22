@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not human nature to enjoy what we get with no effort.**
+**If you want to go fast, go alone. If you want to go far, go together.**
 
-Sri Chinmoy
+African Proverb
