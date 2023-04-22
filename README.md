@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We know what we are, but know not what we may be.**
+**Only those who dare to fail greatly can ever achieve greatly.**
 
-William Shakespeare
+Robert F. Kennedy
