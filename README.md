@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile at strangers and you just might change a life.**
+**Luck is what happens when preparation meets opportunity.**
 
-Steve Maraboli
+Seneca
