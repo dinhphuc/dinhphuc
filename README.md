@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to go fast, go alone. If you want to go far, go together.**
+**Failure is not the opposite of success. Its part of success.**
 
-African Proverb
+Anonymous
