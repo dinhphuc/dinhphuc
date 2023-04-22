@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**May the Force be with you.**
+**A champion is someone who gets up when they can't.**
 
-Yoda
+Jack Dempsey
