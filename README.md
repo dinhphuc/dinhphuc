@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing is impossible, the word itself says "I'm possible"!**
+**The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.**
 
-Audrey Hepburn
+William Arthur Ward
