@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is a succession of lessons which must be lived to be understood.**
+**Dream without fear. Love without limits.**
 
-Ralph Waldo Emerson
+Dilip Bathija
