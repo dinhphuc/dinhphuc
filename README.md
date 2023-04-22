@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I will not follow where the path may lead, but I will go where there is no path, and I will leave a trail.**
+**Never give up. Great things take time. Be patient.**
 
-Muriel Strode
+Anonymous
