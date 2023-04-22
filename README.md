@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
+**I am in charge of how I feel and today I am choosing happiness.**
 
 Anonymous
