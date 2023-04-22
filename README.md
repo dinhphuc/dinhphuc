@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Every champion was once a contender that refused to give up.**
+**Life isn't about waiting for the storm to pass, it's about learning how to dance in the rain.**
 
-Rocky Balboa
+Vivian Greene
