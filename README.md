@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Good things come to those who believe. Better things come to those who are patient. The best things come to those who never give up.**
+**Let your smile change the world, but don't let the world change your smile.**
 
 Anonymous
