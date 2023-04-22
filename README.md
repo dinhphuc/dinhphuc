@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life isn't about waiting for the storm to pass, it's about learning how to dance in the rain.**
+**When you love what you have, you have everything you need.**
 
-Vivian Greene
+Anonymous
