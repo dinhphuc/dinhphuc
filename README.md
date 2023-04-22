@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up. Keep going.**
+**Life is a succession of lessons which must be lived to be understood.**
 
-Anonymous
+Ralph Waldo Emerson
