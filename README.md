@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.**
+**A challenge lifelong it is, not to bend fear into anger.**
 
-William Arthur Ward
+Yoda
