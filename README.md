@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Only those who dare to fail greatly can ever achieve greatly.**
+**Every champion was once a contender that refused to give up.**
 
-Robert F. Kennedy
+Rocky Balboa
