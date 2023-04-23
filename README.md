@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**To give anything less than your best is to sacrifice the gift.**
+**The secret of getting ahead is getting started.**
 
-Steve Prefontaine
+Mark Twain
