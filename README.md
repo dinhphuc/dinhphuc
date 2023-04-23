@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Limitations live only in our minds. But if we use our imaginations, our possibilities become limitless.**
+**Do something today that your future self will thank you for.**
 
-Jamie Paolinetti
+Anonymous
