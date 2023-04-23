@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The only way to do great work is to love what you do.**
+**Opportunities to find deeper powers within ourselves come when life seems most challenging.**
 
-Steve Jobs
+Joseph Campbell
