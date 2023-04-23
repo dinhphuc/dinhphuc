@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence comes not from always being right but from not fearing to be wrong.**
+**The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.**
 
-Peter T. Mcintyre
+William Arthur Ward
