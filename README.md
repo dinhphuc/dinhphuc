@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Use your smile to change the world; don't let the world change your smile.**
+**It feels good when you can put a smile on someone's face by simply being yourself.**
 
-Chinese proverb
+Anonymous
