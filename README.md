@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do all things with love.**
+**Look in the mirror. That's your competition.**
 
-Og Mandino
+John Assaraf
