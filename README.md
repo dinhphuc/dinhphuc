@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Go confidently in the direction of your dreams! Live the life you've imagined.**
+**Remember that guy that gave up? Neither does anyone else.**
 
-Henry David Thoreau
+Anonymous
