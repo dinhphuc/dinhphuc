@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's a good day to be happy.**
+**Only those who risk going too far, can possibly find out how far one can go.**
 
-Anonymous
+T.S. Elliot
