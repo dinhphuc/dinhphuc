@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It feels good when you can put a smile on someone's face by simply being yourself.**
+**Everyone is breakable, but not everyone is aware that it's a choice to stay broken.**
 
-Anonymous
+Stanley Behrman
