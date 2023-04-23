@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Look in the mirror. That's your competition.**
+**Confidence comes not from always being right but from not fearing to be wrong.**
 
-John Assaraf
+Peter T. Mcintyre
