@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Opportunities to find deeper powers within ourselves come when life seems most challenging.**
+**Use your smile to change the world; don't let the world change your smile.**
 
-Joseph Campbell
+Chinese proverb
