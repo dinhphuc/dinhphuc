@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Luck is what happens when preparation meets opportunity.**
+**Go confidently in the direction of your dreams! Live the life you've imagined.**
 
-Seneca
+Henry David Thoreau
