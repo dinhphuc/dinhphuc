@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I am in charge of how I feel and today I am choosing happiness.**
+**You can if you think you can.**
 
-Anonymous
+George Reeves
