@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you set your goals ridiculously high and it's a failure, you will fail above everyone else's success.**
+**He who lives in harmony with himself lives in harmony with the universe.**
 
-James Cameron
+Marcus Aurelius
