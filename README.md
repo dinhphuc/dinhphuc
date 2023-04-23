@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.**
+**The only way to do great work is to love what you do.**
 
-William Arthur Ward
+Steve Jobs
