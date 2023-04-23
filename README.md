@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It is only possible to live happily ever after on a daily basis.**
+**It's not what you look at that matters, it's what you see.**
 
-Anonymous
+Henry David Thoreau
