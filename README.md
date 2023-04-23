@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you feel like giving up, that's when you need to dig deep and push through your self doubt and weaknesses.**
+**Plenty of people miss their share of happiness, not because they never found it, but because they didn't stop to enjoy it.**
 
-Anonymous
+William Feather
