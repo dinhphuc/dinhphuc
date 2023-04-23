@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Everyone is breakable, but not everyone is aware that it's a choice to stay broken.**
+**If you set your goals ridiculously high and it's a failure, you will fail above everyone else's success.**
 
-Stanley Behrman
+James Cameron
