@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Plenty of people miss their share of happiness, not because they never found it, but because they didn't stop to enjoy it.**
+**Your life does not get better by chance, it gets better by change.**
 
-William Feather
+Anonymous
