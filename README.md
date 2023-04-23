@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do something today that your future self will thank you for.**
+**To be the best, you must be able to handle the worst.**
 
-Anonymous
+Wilson Kanadi
