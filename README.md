@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**He who lives in harmony with himself lives in harmony with the universe.**
+**To give anything less than your best is to sacrifice the gift.**
 
-Marcus Aurelius
+Steve Prefontaine
