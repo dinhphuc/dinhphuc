@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not what you look at that matters, it's what you see.**
+**Two wrongs don't make a right.**
 
-Henry David Thoreau
+English Proverb
