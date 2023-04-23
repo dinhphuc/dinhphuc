@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Everyone wants happiness. No one wants pain. But you can't have a rainbow, without a little rain.**
+**He who lives in harmony with himself lives in harmony with the universe.**
 
-Anonymous
+Marcus Aurelius
