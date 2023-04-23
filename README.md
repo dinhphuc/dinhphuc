@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember that guy that gave up? Neither does anyone else.**
+**It is only possible to live happily ever after on a daily basis.**
 
 Anonymous
