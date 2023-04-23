@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You can if you think you can.**
+**It's not bragging if you can back it up.**
 
-George Reeves
+Muhammed Ali
