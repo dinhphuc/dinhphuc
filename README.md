@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We last longer if we compete against ourselves for the good of others instead of competing against others for the good of ourselves.**
+**It's a good day to be happy.**
 
-Simon Sinek
+Anonymous
