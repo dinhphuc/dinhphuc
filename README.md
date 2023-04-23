@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Two wrongs don't make a right.**
+**Our problems don't stem from our ignorance so much as our disobedience of that which we know to be right.**
 
-English Proverb
+Stephen Covey
