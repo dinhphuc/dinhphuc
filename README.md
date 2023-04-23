@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Only those who risk going too far, can possibly find out how far one can go.**
+**People who make you feel better about yourself when you're sad are so important.**
 
-T.S. Elliot
+Anonymous
