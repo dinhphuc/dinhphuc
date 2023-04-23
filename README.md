@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**To be the best, you must be able to handle the worst.**
+**Relationships are based on four principles: respect, understanding, acceptance and appreciation.**
 
-Wilson Kanadi
+Mahatma Gandhi
