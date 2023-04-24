@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Just when the caterpillar thought the world was ending, it turned into a butterfly.**
+**How wonderful it is that nobody need wait a single moment before starting to improve the world.**
 
-Anonymous
+Anne Frank
