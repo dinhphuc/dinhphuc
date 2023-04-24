@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are wonderfully made.**
+**Just when the caterpillar thought the world was ending, it turned into a butterfly.**
 
 Anonymous
