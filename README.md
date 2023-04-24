@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Work hard in silence. Let success make the noise.**
+**Skill is only developed by hours and hours of work.**
 
-Anonymous
+Usain Bolt
