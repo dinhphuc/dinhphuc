@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Only those who risk going too far, can possibly find out how far one can go.**
+**Attitude is everything. New day, new strength, new thoughts.**
 
-T.S. Elliot
+Anonymous
