@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest danger for most of us is not that our aim is too high and we miss it, but that it is too low and we reach it.**
+**A truly happy person is one who can enjoy the scenery when they have made a wrong turn.**
 
-Michaelangelo
+Anonymous
