@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Attitude is everything. New day, new strength, new thoughts.**
+**You can't always control what goes on outside, but you can always control what goes on inside.**
 
-Anonymous
+Wayne Dyer
