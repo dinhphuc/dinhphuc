@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There are two days in the year that we can not do anything, yesterday and tomorrow.**
+**Failure is simply the opportunity to begin again. Except this time more intelligently.**
 
-Mahatma Gandhi
+Henry Ford
