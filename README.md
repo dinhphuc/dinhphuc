@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing builds self-esteem and self-confidence like accomplishment.**
+**Only those who risk going too far, can possibly find out how far one can go.**
 
-Thomas Carlyle
+T.S. Elliot
