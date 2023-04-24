@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure is simply the opportunity to begin again. Except this time more intelligently.**
+**If opportunity doesn't knock, build a door.**
 
-Henry Ford
+Milton Berle
