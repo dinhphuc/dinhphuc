@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**He who sweats more in training bleeds less in war.**
+**Nothing builds self-esteem and self-confidence like accomplishment.**
 
-Greek Proverb
+Thomas Carlyle
