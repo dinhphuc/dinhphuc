@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**As I look back on my life, I realize that every time I thought I was being rejected from something good, I was actually being re-directed to something better.**
+**Work hard in silence. Let success make the noise.**
 
 Anonymous
