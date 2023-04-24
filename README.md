@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Even the greatest were beginners. Don't be afraid to take that first step.**
+**If it is not right, do not do it, if it is not true, do not say it.**
 
-Anonymous
+Marcus Aurelius
