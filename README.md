@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Virtually nothing is impossible in this world if you just put your mind to it and maintain a positive attitude.**
+**Once you're beat mentally, you might as well not even go to the starting line.**
 
-Lou Holtz
+Todd Williams
