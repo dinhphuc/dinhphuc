@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Tough times don't last. Tough people do.**
+**He who sweats more in training bleeds less in war.**
 
-Robert H. Schuller
+Greek Proverb
