@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**He who always thinks it is too soon is sure to come too late.**
+**Gratitude is the sweetest thing in a seeker's life- in all human life. If there is gratitude in your heart, then there will be tremendous sweetness in your eyes.**
 
-German Proverb
+Sri Chinmoy
