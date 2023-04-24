@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Words should be weighed, not counted.**
+**You yourself, as much as anybody in the entire universe, deserve your love and affection.**
 
-Yiddish Proverb
+Buddha
