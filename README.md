@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You yourself, as much as anybody in the entire universe, deserve your love and affection.**
+**Be crazy. Be stupid. Be silly. Be weird. Be whatever. Because life is too short to be anything but happy.**
 
-Buddha
+Anonymous
