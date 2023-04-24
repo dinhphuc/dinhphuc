@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A truly happy person is one who can enjoy the scenery when they have made a wrong turn.**
+**He who sweats more in training bleeds less in war.**
 
-Anonymous
+Greek Proverb
