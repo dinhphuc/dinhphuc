@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't always control what goes on outside, but you can always control what goes on inside.**
+**He who always thinks it is too soon is sure to come too late.**
 
-Wayne Dyer
+German Proverb
