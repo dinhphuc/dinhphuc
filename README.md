@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep smiling. It makes people wonder what you are up to.**
+**Set a goal so big that you can't achieve it until you grow into the person who can.**
 
 Anonymous
