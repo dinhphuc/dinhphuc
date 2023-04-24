@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Once you're beat mentally, you might as well not even go to the starting line.**
+**Tough times don't last. Tough people do.**
 
-Todd Williams
+Robert H. Schuller
