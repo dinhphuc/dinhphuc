@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be crazy. Be stupid. Be silly. Be weird. Be whatever. Because life is too short to be anything but happy.**
+**Even the greatest were beginners. Don't be afraid to take that first step.**
 
 Anonymous
