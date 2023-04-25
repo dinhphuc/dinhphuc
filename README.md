@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The sun itself is weak when it first rises, and gathers strength and courage as the day gets on.**
+**People want to do business with you because you help them get what they want. They don't do business with you to help you get what you want.**
 
-Charles Dickens
+Don Crowther
