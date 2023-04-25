@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happy people don't have the best of everything they make the best of everything.**
+**Happiness resides not in possessions, and not in gold, happiness dwells in the soul.**
 
-Anonymous
+Democritus
