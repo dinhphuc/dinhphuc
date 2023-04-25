@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You can alter mood by running.**
+**There is no shame in not knowing; the shame lies in not finding out.**
 
-Tumpal Sihombing
+Russian Proverb
