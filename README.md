@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot propel yourself forward by patting yourself on the back.**
+**How long are you going to wait before you demand the best for yourself?**
 
-Steve Prefontaine
+Epictetus
