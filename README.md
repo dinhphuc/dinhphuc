@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Courage is taking those first steps toward your dreams even if you can't see the path ahead.**
+**The sun itself is weak when it first rises, and gathers strength and courage as the day gets on.**
 
-Anonymous
+Charles Dickens
