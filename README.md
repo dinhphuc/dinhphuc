@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Only those who dare to fail greatly can ever achieve greatly.**
+**Think gold and never settle for silver.**
 
-Robert F. Kennedy
+Jim Afremow
