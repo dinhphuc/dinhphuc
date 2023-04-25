@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Let your smile change the world, but don't let the world change your smile.**
+**Change yourself and fortune will change.**
 
-Anonymous
+Portuguese Proverb
