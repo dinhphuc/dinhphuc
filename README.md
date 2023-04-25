@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A new command I give you: Love one another.**
+**Just when the caterpillar thought the world was ending, it turned into a butterfly.**
 
-Jesus Christ
+Anonymous
