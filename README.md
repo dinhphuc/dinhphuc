@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You've never lived this day before, and you never will again. Make the most of it!**
+**I learned that courage was not the absence of fear, but the triumph over it.**
 
-Anonymous
+Nelson Mandela
