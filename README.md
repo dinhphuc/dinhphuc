@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is not a problem to be solved, but a reality to be experienced.**
+**Happy people don't have the best of everything they make the best of everything.**
 
-Soren Kierkegaard
+Anonymous
