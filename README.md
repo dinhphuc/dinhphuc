@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If it is not right, do not do it, if it is not true, do not say it.**
+**There is nothing on this earth more to be prized than true friendship.**
 
-Marcus Aurelius
+Thomas Aquinas
