@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A positive attitude causes a chain reaction of positive thoughts, events, and outcomes. It is a catalyst, and it sparks extraordinary results.**
+**It's not who you are that holds you back, it's who you think you're not.**
 
-Wade Boggs
+Anonymous
