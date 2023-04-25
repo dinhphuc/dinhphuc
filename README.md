@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I learned that courage was not the absence of fear, but the triumph over it.**
+**I can't change the direction of the wind, but I can adjust my sails to always reach my destination.**
 
-Nelson Mandela
+Jimmy Dean
