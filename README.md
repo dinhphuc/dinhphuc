@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There is nothing permanent except change.**
+**Smile, it is the key that fits the lock of everybody's heart.**
 
-Heraclitus
+Anthony J D'Angelo
