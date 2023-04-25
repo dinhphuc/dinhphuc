@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no shame in not knowing; the shame lies in not finding out.**
+**It does not matter how slowly you go as long as you do not stop.**
 
-Russian Proverb
+Confucius
