@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Live as if you were to die tomorrow. Learn as if you were to live forever.**
+**There is nothing permanent except change.**
 
-Mahatma Gandhi
+Heraclitus
