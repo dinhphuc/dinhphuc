@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I can't change the direction of the wind, but I can adjust my sails to always reach my destination.**
+**You cannot propel yourself forward by patting yourself on the back.**
 
-Jimmy Dean
+Steve Prefontaine
