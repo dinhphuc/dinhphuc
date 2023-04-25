@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not who you are that holds you back, it's who you think you're not.**
+**You can alter mood by running.**
 
-Anonymous
+Tumpal Sihombing
