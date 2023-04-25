@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Choosing to be positive and having a grateful attitude is going to determine how you're going to live your life.**
+**You have to be at your strongest when you're feeling at your weakest.**
 
-Joel Osteen
+Anonymous
