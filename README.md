@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile, it is the key that fits the lock of everybody's heart.**
+**When will you realize, the more you take, the less you have.**
 
-Anthony J D'Angelo
+Master Oogway
