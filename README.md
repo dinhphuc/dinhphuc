@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Think gold and never settle for silver.**
+**The good life is a process, not a state of being. It is a direction, not a destination.**
 
-Jim Afremow
+Carl Rogers
