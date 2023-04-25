@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When will you realize, the more you take, the less you have.**
+**You will face many defeats in life, but never let yourself be defeated.**
 
-Master Oogway
+Maya Angelou
