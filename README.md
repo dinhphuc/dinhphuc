@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Beauty begins the moment you decide to be yourself.**
+**The harder the struggle, the more glorious the triumph.**
 
-Coco Chanel
+Anonymous
