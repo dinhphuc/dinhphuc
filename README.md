@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Never stop believing in hope because miracles happen everyday.**
+**Choosing to be positive and having a grateful attitude is going to determine how you're going to live your life.**
 
-Anonymous
+Joel Osteen
