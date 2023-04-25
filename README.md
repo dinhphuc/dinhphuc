@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**How long are you going to wait before you demand the best for yourself?**
+**Courage is taking those first steps toward your dreams even if you can't see the path ahead.**
 
-Epictetus
+Anonymous
