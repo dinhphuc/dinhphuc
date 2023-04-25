@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You may say I'm a dreamer but I'm not the only one.**
+**Only those who dare to fail greatly can ever achieve greatly.**
 
-John Lennon
+Robert F. Kennedy
