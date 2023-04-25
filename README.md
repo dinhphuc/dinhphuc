@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life's a journey not a race.**
+**Never stop believing in hope because miracles happen everyday.**
 
-Meir Ezra
+Anonymous
