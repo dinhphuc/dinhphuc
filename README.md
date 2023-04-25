@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You will face many defeats in life, but never let yourself be defeated.**
+**Let your smile change the world, but don't let the world change your smile.**
 
-Maya Angelou
+Anonymous
