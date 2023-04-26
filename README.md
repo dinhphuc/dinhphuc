@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Practice 'gratitude' each day and your relationship will last forever.**
+**Losers quit when they're tired. Winners quit when they've won.**
 
 Anonymous
