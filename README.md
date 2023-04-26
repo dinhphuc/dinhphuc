@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When the sun rises, it rises for everyone.**
+**Smile at strangers and you just might change a life.**
 
-Cuban Proverb
+Steve Maraboli
