@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be a voice not an echo.**
+**Replace those thoughts of worry with thoughts of hope, faith, and victory.**
 
-Anonymous
+Joel Osteen
