@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't downgrade your dream just to fit your reality. Upgrade your conviction to match your destiny.**
+**There's never enough time to do everything, but there's always enough time to do the most important thing.**
 
-John Assaraf
+Dean Bokhari
