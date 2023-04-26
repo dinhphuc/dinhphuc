@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Starting today, I need to forget what's gone. Appreciate what still remains and look forward to what's coming next.**
+**Don't be afraid to start over. It's a brand new opportunity to rebuild what you truly want.**
 
 Anonymous
