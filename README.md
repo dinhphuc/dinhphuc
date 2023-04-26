@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength is the product of struggle. You must do what others don't to achieve what others wont.**
+**The secret of getting ahead is getting started.**
 
-Henry Rollins
+Mark Twain
