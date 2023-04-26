@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We last longer if we compete against ourselves for the good of others instead of competing against others for the good of ourselves.**
+**Today, give a stranger one of your smiles. It might be the only sunshine they see all day.**
 
-Simon Sinek
+H. Jackson Brown Jr
