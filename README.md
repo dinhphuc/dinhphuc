@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I hated every minute of training, but I said, 'Don't quit. Suffer now and live the rest of your life as a champion'.**
+**Practice 'gratitude' each day and your relationship will last forever.**
 
-Muhammad Ali
+Anonymous
