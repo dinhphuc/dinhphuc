@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be afraid to start over. It's a brand new opportunity to rebuild what you truly want.**
+**People are just as happy as they make up their minds to be.**
 
-Anonymous
+Abraham Lincoln
