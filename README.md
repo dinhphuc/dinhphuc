@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is a journey ... not a destination.**
+**Don't explain your philosophy. Embody it.**
 
-Ben Sweetland
+Epictetus
