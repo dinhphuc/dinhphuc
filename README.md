@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We can't help everyone, but everyone can help someone.**
+**Strength is the product of struggle. You must do what others don't to achieve what others wont.**
 
-Ronald Reagan
+Henry Rollins
