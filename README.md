@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**People are just as happy as they make up their minds to be.**
+**Smile at strangers and you just might change a life.**
 
-Abraham Lincoln
+Steve Maraboli
