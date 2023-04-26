@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**To be calm is the highest achievement of the self.**
+**The things you regret most in life are the risks you didn't take.**
 
-Zen Proverb
+Anonymous
