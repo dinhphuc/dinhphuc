@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There's never enough time to do everything, but there's always enough time to do the most important thing.**
+**We either make ourselves miserable or we make ourselves strong. The amount of work is the same.**
 
-Dean Bokhari
+Carlos Costaneda
