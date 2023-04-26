@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There are no secrets to success. It is the result of preparation, hard work, and learning from failure.**
+**I hated every minute of training, but I said, 'Don't quit. Suffer now and live the rest of your life as a champion'.**
 
-Colin Powell
+Muhammad Ali
