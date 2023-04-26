@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Today, give a stranger one of your smiles. It might be the only sunshine they see all day.**
+**Always believe that something wonderful is about to happen.**
 
-H. Jackson Brown Jr
+Anonymous
