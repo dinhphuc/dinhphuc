@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't explain your philosophy. Embody it.**
+**To be calm is the highest achievement of the self.**
 
-Epictetus
+Zen Proverb
