@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Just when the caterpillar thought the world was ending, it turned into a butterfly.**
+**The purpose of our lives is to be happy.**
 
-Anonymous
+Dalai Lama
