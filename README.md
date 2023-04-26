@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Beauty begins the moment you decide to be yourself.**
+**When the sun rises, it rises for everyone.**
 
-Coco Chanel
+Cuban Proverb
