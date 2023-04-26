@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile at strangers and you just might change a life.**
+**Just when the caterpillar thought the world was ending, it turned into a butterfly.**
 
-Steve Maraboli
+Anonymous
