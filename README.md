@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The pessimist sees difficulty in every opportunity. The optimist sees opportunity in every difficulty.**
+**One of the best ways of being happy with life is to make someone happy.**
 
-Winston Churchill
+Anonymous
