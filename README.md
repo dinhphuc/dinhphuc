@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be gentle with yourself. You're doing the best you can.**
+**There may be people that have more talent than you, but theres no excuse for anyone to work harder than you.**
 
-Anonymous
+Derek Jeter
