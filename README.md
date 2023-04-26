@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Just when the caterpillar thought the world was ending, it turned into a butterfly.**
+**Beauty begins the moment you decide to be yourself.**
 
-Anonymous
+Coco Chanel
