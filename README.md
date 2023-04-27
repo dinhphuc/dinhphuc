@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between ordinary and extraordinary is that little extra.**
+**Nurture your mind with great thoughts, for you will never go any higher than you think.**
 
-Jimmy Johnson
+Benjamin Disraeli
