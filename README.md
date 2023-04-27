@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you find your why, you find a way to make it happen.**
+**The difference between ordinary and extraordinary is that little extra.**
 
-Eric Thomas
+Jimmy Johnson
