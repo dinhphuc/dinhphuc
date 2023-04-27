@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A runner must run with dreams in his heart.**
+**Never give up. You only get one life. Go for it.**
 
-Emil Zatopek
+Richard E. Grant
