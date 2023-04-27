@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe with all of your heart that you will do what you were made to do.**
+**What keeps me going is goals.**
 
-Orison Swett Marden
+Muhammad Ali
