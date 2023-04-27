@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how much it hurts, hold your head up and keep going.**
+**Appreciate the people who make you smile.**
 
 Anonymous
