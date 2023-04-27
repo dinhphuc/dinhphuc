@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You must do the thing you think you cannot do.**
+**Don't give up on yourself. You're worth it.**
 
-Eleanor Roosevelt
+Anonymous
