@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do what makes you happy.**
+**No matter how much it hurts, hold your head up and keep going.**
 
-Rachel Ann Nunes
+Anonymous
