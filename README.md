@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Because of your smile, you make life more beautiful.**
+**You're allowed to scream. You're allowed to cry. But don't give up.**
 
-Thich Nhat Hanh
+Anonymous
