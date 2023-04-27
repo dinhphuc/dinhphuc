@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your body is made to move so move it.**
+**I can and I will. Watch me.**
 
-Toni Sorenson
+Carrie Green
