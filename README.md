@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**In every success story, you will find someone who made a courageous decision.**
+**Before telling secrets on the road, look in the bushes.**
 
-Peter Drucker
+Chinese Proverb
