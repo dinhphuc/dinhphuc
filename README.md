@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's hard to beat a person who never gives up.**
+**Don't wait for opportunity. Create it.**
 
 Anonymous
