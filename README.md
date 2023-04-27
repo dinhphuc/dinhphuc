@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you are enthusiastic about what you do, you feel this positive energy. It's very simple.**
+**A runner must run with dreams in his heart.**
 
-Paulo Coelho
+Emil Zatopek
