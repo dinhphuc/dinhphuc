@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't wait for opportunity. Create it.**
+**Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching.**
 
-Anonymous
+Satchel Paige
