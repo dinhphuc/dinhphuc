@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't wish it were easier. Wish you were better.**
+**Believe you can and you're halfway there.**
 
-Jim Rohn
+Theodore Roosevelt
