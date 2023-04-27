@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The only thing worse than starting something and failing... is not starting something.**
+**It's hard to beat a person who never gives up.**
 
-Seth Godin
+Anonymous
