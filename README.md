@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Strive not to be a success, but rather to be of value.**
+**No matter where you are on your journey, that's exactly where you need to be.**
 
-Albert Einstein
+Oprah Winfrey
