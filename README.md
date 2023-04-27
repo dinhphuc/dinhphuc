@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It ain't as bad as you think. It will look better in the morning.**
+**Live for yourself and don't ever stop.**
 
-Colin Powell
+John Tew
