@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter where you are on your journey, that's exactly where you need to be.**
+**When you find your why, you find a way to make it happen.**
 
-Oprah Winfrey
+Eric Thomas
