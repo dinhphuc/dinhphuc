@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be afraid of your fears. They're not there to scare you. They're there to let you know that something is worth it.**
+**When you are enthusiastic about what you do, you feel this positive energy. It's very simple.**
 
-C. JoyBell C
+Paulo Coelho
