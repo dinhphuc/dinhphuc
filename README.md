@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Before telling secrets on the road, look in the bushes.**
+**Do what makes you happy.**
 
-Chinese Proverb
+Rachel Ann Nunes
