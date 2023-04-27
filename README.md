@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You can either complain about it or grind, I choose to grind.**
+**In every success story, you will find someone who made a courageous decision.**
 
-Kyle Vidrine
+Peter Drucker
