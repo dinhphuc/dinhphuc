@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**What keeps me going is goals.**
+**Don't wish it were easier. Wish you were better.**
 
-Muhammad Ali
+Jim Rohn
