@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe you can and you're halfway there.**
+**You must do the thing you think you cannot do.**
 
-Theodore Roosevelt
+Eleanor Roosevelt
