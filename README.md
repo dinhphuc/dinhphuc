@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up. You only get one life. Go for it.**
+**There will be obstacles. There will be doubters. There will be mistakes. But with hard work, there are no limits.**
 
-Richard E. Grant
+Anonymous
