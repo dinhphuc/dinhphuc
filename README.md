@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't give up on yourself. You're worth it.**
+**Strive not to be a success, but rather to be of value.**
 
-Anonymous
+Albert Einstein
