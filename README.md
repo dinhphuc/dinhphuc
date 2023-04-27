@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I can and I will. Watch me.**
+**The only thing worse than starting something and failing... is not starting something.**
 
-Carrie Green
+Seth Godin
