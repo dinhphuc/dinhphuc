@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**He who lives in harmony with himself lives in harmony with the universe.**
+**It ain't as bad as you think. It will look better in the morning.**
 
-Marcus Aurelius
+Colin Powell
