@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Perseverance is the hard work you do after you get tired of doing the hard work you already did.**
+**Believe with all of your heart that you will do what you were made to do.**
 
-Newt Gingrich
+Orison Swett Marden
