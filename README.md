@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching.**
+**You can either complain about it or grind, I choose to grind.**
 
-Satchel Paige
+Kyle Vidrine
