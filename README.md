@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nurture your mind with great thoughts, for you will never go any higher than you think.**
+**Your body is made to move so move it.**
 
-Benjamin Disraeli
+Toni Sorenson
