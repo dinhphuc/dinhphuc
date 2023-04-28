@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Move fast and break things. If you are not breaking things, you are not moving fast enough.**
+**It's important to feel good about yourself. When you feel good about yourself, nothing negative can touch you.**
 
-Mark Zuckerberg
+Anonymous
