@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**May the Force be with you.**
+**Tough times don't last. Tough people do.**
 
-Yoda
+Robert H. Schuller
