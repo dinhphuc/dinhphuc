@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't criticize, condemn or complain.**
+**Remember the entrance to the sanctuary is inside you.**
 
-Dale Carnegie
+Rumi
