@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The best feeling of happiness is when you're happy because you've made somebody else happy.**
+**He who sweats more in training bleeds less in war.**
 
-Anonymous
+Greek Proverb
