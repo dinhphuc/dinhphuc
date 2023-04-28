@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A new command I give you: Love one another.**
+**The supreme art of war is to subdue the enemy without fighting.**
 
-Jesus Christ
+Sun Tzu
