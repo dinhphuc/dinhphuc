@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's important to feel good about yourself. When you feel good about yourself, nothing negative can touch you.**
+**Do what makes you happy.**
 
-Anonymous
+Rachel Ann Nunes
