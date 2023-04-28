@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A successful man is one who can lay a firm foundation with the bricks others have thrown at him.**
+**Do not dwell in the past, do not dream of the future, concentrate the mind on the present moment.**
 
-David Brinkley
+Buddha
