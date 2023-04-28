@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The very best thing you can do for the whole world is to make the best of yourself.**
+**Sometimes you face difficulties not because you're doing something wrong but because you're doing something right.**
 
 Anonymous
