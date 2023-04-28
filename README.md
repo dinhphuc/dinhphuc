@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A little progress each day adds up to big results.**
+**In every success story, you will find someone who made a courageous decision.**
 
-Satya Nani
+Peter Drucker
