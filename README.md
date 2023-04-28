@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You've never lived this day before, and you never will again. Make the most of it!**
+**Self-belief and hard work will always earn you success.**
 
-Anonymous
+Virat Kohli
