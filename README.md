@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Self-belief and hard work will always earn you success.**
+**My attitude is if you push me towards a weakness, I will turn that weakness into a strength.**
 
-Virat Kohli
+Michael Jordan
