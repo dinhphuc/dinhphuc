@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**He who sweats more in training bleeds less in war.**
+**A little progress each day adds up to big results.**
 
-Greek Proverb
+Satya Nani
