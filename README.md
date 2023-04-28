@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There are so many beautiful reasons to be happy.**
+**Let your unique awesomeness and positive energy inspire confidence in others.**
 
 Anonymous
