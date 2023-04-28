@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest.**
+**A new command I give you: Love one another.**
 
-Sri Chinmoy
+Jesus Christ
