@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Get going ... walk if you have to, but finish the damned race.**
+**Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest.**
 
-Ron Hill
+Sri Chinmoy
