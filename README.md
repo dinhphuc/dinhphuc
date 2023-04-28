@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is short, and it is up to you to make it sweet.**
+**Push yourself because no one else is going to do it for you.**
 
-Sarah Louise Delany
+Anonymous
