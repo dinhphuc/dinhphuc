@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Choosing to be positive and having a grateful attitude is going to determine how you're going to live your life.**
+**The difference between ordinary and extraordinary is that little extra.**
 
-Joel Osteen
+Jimmy Johnson
