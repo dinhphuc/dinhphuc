@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your body is made to move so move it.**
+**Your life does not get better by chance, it gets better by change.**
 
-Toni Sorenson
+Anonymous
