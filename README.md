@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between ordinary and extraordinary is that little extra.**
+**Don't criticize, condemn or complain.**
 
-Jimmy Johnson
+Dale Carnegie
