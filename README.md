@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Let your unique awesomeness and positive energy inspire confidence in others.**
+**Strive not to be a success, but rather to be of value.**
 
-Anonymous
+Albert Einstein
