@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not so much that I began to run, but that I continued.**
+**Laugh. It's free medicine you don't need insurance for.**
 
-Hal Higdon
+Anonymous
