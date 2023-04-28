@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Strive not to be a success, but rather to be of value.**
+**The very best thing you can do for the whole world is to make the best of yourself.**
 
-Albert Einstein
+Anonymous
