@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Laugh. It's free medicine you don't need insurance for.**
+**The best feeling of happiness is when you're happy because you've made somebody else happy.**
 
 Anonymous
