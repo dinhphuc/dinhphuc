@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't like something, change it. If you can't change it, change your attitude.**
+**Get going ... walk if you have to, but finish the damned race.**
 
-Maya Angelou
+Ron Hill
