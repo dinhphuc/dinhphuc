@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your life does not get better by chance, it gets better by change.**
+**You've never lived this day before, and you never will again. Make the most of it!**
 
 Anonymous
