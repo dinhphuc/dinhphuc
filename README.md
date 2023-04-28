@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The supreme art of war is to subdue the enemy without fighting.**
+**Move fast and break things. If you are not breaking things, you are not moving fast enough.**
 
-Sun Tzu
+Mark Zuckerberg
