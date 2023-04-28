@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We are all in the gutter, but some of us are looking at the stars.**
+**Life is short, and it is up to you to make it sweet.**
 
-Oscar Wilde
+Sarah Louise Delany
