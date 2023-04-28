@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Tough times don't last. Tough people do.**
+**Everywhere you go, take a smile with you.**
 
-Robert H. Schuller
+Sasha Azevedo
