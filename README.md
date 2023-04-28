@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Everywhere you go, take a smile with you.**
+**It feels good when you can put a smile on someone's face by simply being yourself.**
 
-Sasha Azevedo
+Anonymous
