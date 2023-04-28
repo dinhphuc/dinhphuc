@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**In every success story, you will find someone who made a courageous decision.**
+**A successful man is one who can lay a firm foundation with the bricks others have thrown at him.**
 
-Peter Drucker
+David Brinkley
