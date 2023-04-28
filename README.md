@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence comes from discipline and training.**
+**We are all in the gutter, but some of us are looking at the stars.**
 
-Robert Kiyosaki
+Oscar Wilde
