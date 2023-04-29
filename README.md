@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Courage is taking those first steps toward your dreams even if you can't see the path ahead.**
+**The positive thinker sees the invisible, feels the intangible, and achieves the impossible.**
 
-Anonymous
+Winston Churchill
