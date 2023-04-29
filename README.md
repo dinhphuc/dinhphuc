@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Setting goals is the first step into turning the invisible into the visible.**
+**Every day may not be good... but there's something good in every day.**
 
-Tony Robbins
+Alice Morse Earle
