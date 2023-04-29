@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be happy. It really annoys negative people.**
+**It feels good when you can put a smile on someone's face by simply being yourself.**
 
-Ricky Gervais
+Anonymous
