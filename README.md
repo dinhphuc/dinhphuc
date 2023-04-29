@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I don't make excuses. I make results.**
+**Peace begins When expectation ends.**
 
-Anonymous
+Sri Chinmoy
