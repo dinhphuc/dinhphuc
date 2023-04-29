@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I've never let anyone talk me into not believing in myself.**
+**Happiness is not out there, it's in you.**
 
-Muhammad Ali
+Anonymous
