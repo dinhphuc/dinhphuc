@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**This a wonderful day. I've never seen this one before.**
+**If you want to lift yourself up, lift up someone else.**
 
-Maya Angelou
+Booker T. Washington
