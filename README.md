@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No beauty shines brighter than that of a good heart.**
+**Leadership is not about being in charge. Leadership is about taking care of those in your charge.**
 
-Anonymous
+Simon Sinek
