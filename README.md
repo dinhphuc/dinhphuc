@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is what happens after you have survived all of your disappointments.**
+**Be happy. It really annoys negative people.**
 
-Anonymous
+Ricky Gervais
