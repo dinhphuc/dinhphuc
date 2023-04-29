@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure is not the falling down but the staying down.**
+**Only a life lived for others is a life worthwhile.**
 
-Anonymous
+Albert Einstein
