@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't wait for opportunity. Create it.**
+**One conquers the world by conquering himself.**
 
-Anonymous
+Zeno of Citium
