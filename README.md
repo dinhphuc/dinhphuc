@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not what you look at that matters, it's what you see.**
+**Live for yourself and don't ever stop.**
 
-Henry David Thoreau
+John Tew
