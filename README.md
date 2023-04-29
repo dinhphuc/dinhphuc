@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You came into the world to do something; So... do something!**
+**I don't make excuses. I make results.**
 
-Johnnie Dent Jr
+Anonymous
