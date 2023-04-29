@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It is during our darkest moments that we must focus to see the light.**
+**This a wonderful day. I've never seen this one before.**
 
-Aristotle Onassis
+Maya Angelou
