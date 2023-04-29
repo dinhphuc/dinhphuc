@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You will be blessed the moment you realize you already are.**
+**Failure is not the falling down but the staying down.**
 
-Bryant Mcgill
+Anonymous
