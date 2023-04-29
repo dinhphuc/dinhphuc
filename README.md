@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The positive thinker sees the invisible, feels the intangible, and achieves the impossible.**
+**Good judgment comes from experience, and a lot of that comes from bad judgment.**
 
-Winston Churchill
+Will Rogers
