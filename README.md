@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do not dwell in the past, do not dream of the future, concentrate the mind on the present moment.**
+**I'm not telling you it is going to be easy, I'm telling you it's going to be worth it.**
 
-Buddha
+Art Williams
