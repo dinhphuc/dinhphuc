@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Words should be weighed, not counted.**
+**Very little is needed to make a happy life; it is all within yourself, in your way of thinking.**
 
-Yiddish Proverb
+Marcus Aurelius
