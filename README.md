@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to lift yourself up, lift up someone else.**
+**A beautiful thing is never perfect.**
 
-Booker T. Washington
+Egyptian Proverb
