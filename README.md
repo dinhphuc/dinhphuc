@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Good judgment comes from experience, and a lot of that comes from bad judgment.**
+**Setting goals is the first step into turning the invisible into the visible.**
 
-Will Rogers
+Tony Robbins
