@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you don't talk, there's a lot of stuff that ends up not getting said.**
+**It is only possible to live happily ever after on a daily basis.**
 
-Catherine Gilbert Murdock
+Anonymous
