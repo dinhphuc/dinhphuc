@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is not out there, it's in you.**
+**Success is what happens after you have survived all of your disappointments.**
 
 Anonymous
