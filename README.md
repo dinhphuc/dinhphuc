@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It feels good when you can put a smile on someone's face by simply being yourself.**
+**No beauty shines brighter than that of a good heart.**
 
 Anonymous
