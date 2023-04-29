@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The trophy is earned in the hours that no one is watching.**
+**Success is what happens after you have survived all of your disappointments.**
 
 Anonymous
