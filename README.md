@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It is only possible to live happily ever after on a daily basis.**
+**You will be blessed the moment you realize you already are.**
 
-Anonymous
+Bryant Mcgill
