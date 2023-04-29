@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is what happens after you have survived all of your disappointments.**
+**Courage is taking those first steps toward your dreams even if you can't see the path ahead.**
 
 Anonymous
