@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**One conquers the world by conquering himself.**
+**I've never let anyone talk me into not believing in myself.**
 
-Zeno of Citium
+Muhammad Ali
