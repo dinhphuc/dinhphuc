@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A secret to happiness is letting every situatiuon be what it is instead of what you think it should be.**
+**Learn to value yourself, which means: fight for your happiness.**
 
-Anonymous
+Ayn Rand
