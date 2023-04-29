@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Only a life lived for others is a life worthwhile.**
+**You are wonderfully made.**
 
-Albert Einstein
+Anonymous
