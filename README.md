@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Learn to value yourself, which means: fight for your happiness.**
+**A problem is a chance for you to do your best.**
 
-Ayn Rand
+Duke Ellington
