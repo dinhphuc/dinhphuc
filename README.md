@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Peace begins When expectation ends.**
+**When you don't talk, there's a lot of stuff that ends up not getting said.**
 
-Sri Chinmoy
+Catherine Gilbert Murdock
