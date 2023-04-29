@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Leadership is not about being in charge. Leadership is about taking care of those in your charge.**
+**The trophy is earned in the hours that no one is watching.**
 
-Simon Sinek
+Anonymous
