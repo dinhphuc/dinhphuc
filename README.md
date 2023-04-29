@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm not telling you it is going to be easy, I'm telling you it's going to be worth it.**
+**Don't wait for opportunity. Create it.**
 
-Art Williams
+Anonymous
