@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are wonderfully made.**
+**Words should be weighed, not counted.**
 
-Anonymous
+Yiddish Proverb
