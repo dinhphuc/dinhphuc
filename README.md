@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A problem is a chance for you to do your best.**
+**You came into the world to do something; So... do something!**
 
-Duke Ellington
+Johnnie Dent Jr
