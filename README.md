@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Start by doing what's necessary; then do what's possible; and suddenly you are doing the impossible.**
+**Leadership is not about being in charge. Leadership is about taking care of those in your charge.**
 
-Francis of Assisi
+Simon Sinek
