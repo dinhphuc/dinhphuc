@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't wait for opportunity. Create it.**
+**We last longer if we compete against ourselves for the good of others instead of competing against others for the good of ourselves.**
 
-Anonymous
+Simon Sinek
