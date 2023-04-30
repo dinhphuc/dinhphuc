@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Losers quit when they're tired. Winners quit when they've won.**
+**Success trains. Failure complains.**
 
 Anonymous
