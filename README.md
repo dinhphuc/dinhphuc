@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**All that matters is how you see yourself.**
+**Everywhere you go, take a smile with you.**
 
-Conor McGregor
+Sasha Azevedo
