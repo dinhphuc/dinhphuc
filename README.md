@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We know what we are, but know not what we may be.**
+**Do or do not. There is no try.**
 
-William Shakespeare
+Yoda
