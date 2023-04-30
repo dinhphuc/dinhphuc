@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You may encounter many defeats, but you must not be defeated.**
+**Don't just glov, dazzle.**
 
-Maya Angelou
+Anonymous
