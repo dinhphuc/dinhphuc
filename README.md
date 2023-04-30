@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No one is perfect - that's why pencils have erasers.**
+**When it rains look for rainbows.**
 
-Wolfgang Riebe
+Oscar Wilde
