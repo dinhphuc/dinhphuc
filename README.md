@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't waste a minute not being happy. If one door closes, run to the next window - or break down a door.**
+**Always find opportunities to make someone smile, and to offer random acts of kindness in everyday life.**
 
-Brooke Shields
+Roy T. Bennett
