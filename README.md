@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Words should be weighed, not counted.**
+**Life is not a problem to be solved, but a reality to be experienced.**
 
-Yiddish Proverb
+Soren Kierkegaard
