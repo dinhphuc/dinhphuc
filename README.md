@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Leadership is not about being in charge. Leadership is about taking care of those in your charge.**
+**Don't just glov, dazzle.**
 
-Simon Sinek
+Anonymous
