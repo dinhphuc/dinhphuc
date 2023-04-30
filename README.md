@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There may be people that have more talent than you, but theres no excuse for anyone to work harder than you.**
+**A gentle word, a kind look, a good-natured smile can work wonders and accomplish miracles.**
 
-Derek Jeter
+William Hazlitt
