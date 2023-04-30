@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A beautiful thing is never perfect.**
+**You have to be at your strongest when you're feeling at your weakest.**
 
-Egyptian Proverb
+Anonymous
