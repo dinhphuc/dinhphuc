@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is not a problem to be solved, but a reality to be experienced.**
+**Losers quit when they're tired. Winners quit when they've won.**
 
-Soren Kierkegaard
+Anonymous
