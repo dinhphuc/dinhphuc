@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**How you do anything is how you do everything.**
+**In this life we cannot do great things. We can only do small things with great love.**
 
-T. Harv Eker
+Mother Teresa
