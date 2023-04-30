@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**In this life we cannot do great things. We can only do small things with great love.**
+**There may be people that have more talent than you, but theres no excuse for anyone to work harder than you.**
 
-Mother Teresa
+Derek Jeter
