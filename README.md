@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You have to be at your strongest when you're feeling at your weakest.**
+**Great works are performed, not by strength, but by perseverance.**
 
-Anonymous
+Samuel Johnson
