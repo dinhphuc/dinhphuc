@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength doesn't come from what you can do. It comes from overcoming the things you once thought you couldn't.**
+**Self-control is strength. Right thought is mastery. Calmness is power.**
 
-Rikki Rogers
+James Allen
