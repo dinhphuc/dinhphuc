@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Make each day your masterpiece.**
+**A little progress each day adds up to big results.**
 
-John Wooden
+Satya Nani
