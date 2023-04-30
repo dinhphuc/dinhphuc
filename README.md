@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We either make ourselves miserable or we make ourselves strong. The amount of work is the same.**
+**How you do anything is how you do everything.**
 
-Carlos Costaneda
+T. Harv Eker
