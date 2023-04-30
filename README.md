@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Are your excuses more important than your dreams?**
+**Nurture your mind with great thoughts, for you will never go any higher than you think.**
 
-Anonymous
+Benjamin Disraeli
