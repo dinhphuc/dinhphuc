@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A gentle word, a kind look, a good-natured smile can work wonders and accomplish miracles.**
+**No matter how tough it may get, never give up on yourself or you will look back and regret it.**
 
-William Hazlitt
+Anonymous
