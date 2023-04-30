@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nurture your mind with great thoughts, for you will never go any higher than you think.**
+**The only impossible journey is the one you never begin.**
 
-Benjamin Disraeli
+Tony Robbins
