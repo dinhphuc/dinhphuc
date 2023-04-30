@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When the sun rises, it rises for everyone.**
+**Don't wait for opportunity. Create it.**
 
-Cuban Proverb
+Anonymous
