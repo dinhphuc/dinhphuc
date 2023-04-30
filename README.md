@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Great works are performed, not by strength, but by perseverance.**
+**Strength doesn't come from what you can do. It comes from overcoming the things you once thought you couldn't.**
 
-Samuel Johnson
+Rikki Rogers
