@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Teachers open the door; you enter by yourself.**
+**If you are not willing to risk the usual, you will have to settle for the ordinary.**
 
-Chinese Proverb
+Jim Rohn
