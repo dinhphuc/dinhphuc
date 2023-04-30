@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A little progress each day adds up to big results.**
+**Don't waste a minute not being happy. If one door closes, run to the next window - or break down a door.**
 
-Satya Nani
+Brooke Shields
