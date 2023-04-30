@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't just glov, dazzle.**
+**Start by doing what's necessary; then do what's possible; and suddenly you are doing the impossible.**
 
-Anonymous
+Francis of Assisi
