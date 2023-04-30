@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nurture your mind with great thoughts, for you will never go any higher than you think.**
+**When the sun rises, it rises for everyone.**
 
-Benjamin Disraeli
+Cuban Proverb
