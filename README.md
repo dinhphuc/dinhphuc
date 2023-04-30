@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Self-control is strength. Right thought is mastery. Calmness is power.**
+**Teachers open the door; you enter by yourself.**
 
-James Allen
+Chinese Proverb
