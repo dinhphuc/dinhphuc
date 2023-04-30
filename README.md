@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Everywhere you go, take a smile with you.**
+**Nurture your mind with great thoughts, for you will never go any higher than you think.**
 
-Sasha Azevedo
+Benjamin Disraeli
