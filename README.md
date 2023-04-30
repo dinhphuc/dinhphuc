@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The only impossible journey is the one you never begin.**
+**We know what we are, but know not what we may be.**
 
-Tony Robbins
+William Shakespeare
