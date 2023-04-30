@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how tough it may get, never give up on yourself or you will look back and regret it.**
+**No one is perfect - that's why pencils have erasers.**
 
-Anonymous
+Wolfgang Riebe
