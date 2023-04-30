@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We last longer if we compete against ourselves for the good of others instead of competing against others for the good of ourselves.**
+**We either make ourselves miserable or we make ourselves strong. The amount of work is the same.**
 
-Simon Sinek
+Carlos Costaneda
