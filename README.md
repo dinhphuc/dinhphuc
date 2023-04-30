@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't just glov, dazzle.**
+**Are your excuses more important than your dreams?**
 
 Anonymous
