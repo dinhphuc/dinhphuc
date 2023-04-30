@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do or do not. There is no try.**
+**Don't worry about failure; you only have to be right once.**
 
-Yoda
+Drew Houston
