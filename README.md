@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Deep doubts, deep wisdom; small doubts, small wisdom.**
+**When you have exhausted all possibilities, remember this: you haven't.**
 
-Chinese Proverb
+Thomas Edison
