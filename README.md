@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Live as if you were to die tomorrow. Learn as if you were to live forever.**
+**There may be people that have more talent than you, but theres no excuse for anyone to work harder than you.**
 
-Mahatma Gandhi
+Derek Jeter
