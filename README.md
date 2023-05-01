@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Patience you must have, my young padawan.**
+**Deep doubts, deep wisdom; small doubts, small wisdom.**
 
-Yoda
+Chinese Proverb
