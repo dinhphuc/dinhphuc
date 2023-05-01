@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Trust yourself. You know more than you think you do.**
+**Maybe it won't work out. But maybe seeing if it does will be the best adventure ever.**
 
-Dr. Benjamin Spock
+Anonymous
