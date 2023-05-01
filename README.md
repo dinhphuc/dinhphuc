@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**One small positive thought in the morning can change your whole day.**
+**Trust yourself. You know more than you think you do.**
 
-Anonymous
+Dr. Benjamin Spock
