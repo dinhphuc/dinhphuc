@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life becomes easier and more beautiful when we can see the good in other people.**
+**Opportunities don't happen. You create them.**
 
-Roy T. Bennett
+Chris Grosser
