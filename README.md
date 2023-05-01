@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep your eyes on the stars, and your feet on the ground.**
+**No act of kindness, no matter how small, is ever wasted.**
 
-Theodore Roosevelt
+Aesop
