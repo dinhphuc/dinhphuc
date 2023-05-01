@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest.**
+**Keep your eyes on the stars, and your feet on the ground.**
 
-Sri Chinmoy
+Theodore Roosevelt
