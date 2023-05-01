@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No act of kindness, no matter how small, is ever wasted.**
+**Success seems to be connected with action. Successful people keep moving. They make mistakes, but they don't quit.**
 
-Aesop
+Conrad Hilton
