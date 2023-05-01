@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of success is to do the common thing uncommonly well.**
+**In life, many things don't go according to plan. If you fall, get back up. If you stumble, regain your balance. Never give up.**
 
-John D. Rockefeller Jr
+Anonymous
