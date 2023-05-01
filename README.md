@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Start where you are. Use what you have. Do what you can.**
+**The happiness of your life depends upon the quality of your thoughts.**
 
-Arthur Ashe
+Marcus Aurelius
