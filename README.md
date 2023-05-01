@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**May you live all the days of your life.**
+**The greatest glory in living lies not in never falling, but in rising every time we fall.**
 
-Jonathan Swift
+Nelson Mandela
