@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how you feel, get up, dress up, show up and never give up.**
+**All souls are lost until they are found.**
 
-Anonymous
+Kate McGahan
