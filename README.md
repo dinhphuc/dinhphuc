@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The happiness of your life depends upon the quality of your thoughts.**
+**May you live all the days of your life.**
 
-Marcus Aurelius
+Jonathan Swift
