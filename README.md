@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't worry about failure; you only have to be right once.**
+**The secret of success is to do the common thing uncommonly well.**
 
-Drew Houston
+John D. Rockefeller Jr
