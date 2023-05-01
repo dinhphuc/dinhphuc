@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We can be who we are without the pleasures but we could not be who we are not without the hardships.**
+**Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching.**
 
-Anonymous
+Satchel Paige
