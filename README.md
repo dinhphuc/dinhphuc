@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**In life, many things don't go according to plan. If you fall, get back up. If you stumble, regain your balance. Never give up.**
+**Life becomes easier and more beautiful when we can see the good in other people.**
 
-Anonymous
+Roy T. Bennett
