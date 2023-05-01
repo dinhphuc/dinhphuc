@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Make the most of yourself....for that is all there is of you.**
+**Patience you must have, my young padawan.**
 
-Ralph Waldo Emerson
+Yoda
