@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Live life to the fullest and focus on the positive.**
+**In matters of style, swim with the current; in matters of principle, stand like a rock.**
 
-Matt Cameron
+Thomas Jefferson
