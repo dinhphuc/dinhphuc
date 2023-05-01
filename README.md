@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you have exhausted all possibilities, remember this: you haven't.**
+**One small positive thought in the morning can change your whole day.**
 
-Thomas Edison
+Anonymous
