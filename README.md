@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Attitude will always define who we are in life.**
+**The comeback is always stronger than the setback.**
 
-Mark A. Brennan
+Anonymous
