@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success seems to be connected with action. Successful people keep moving. They make mistakes, but they don't quit.**
+**Live life to the fullest and focus on the positive.**
 
-Conrad Hilton
+Matt Cameron
