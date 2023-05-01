@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There may be people that have more talent than you, but theres no excuse for anyone to work harder than you.**
+**You don't find will power, you create it.**
 
-Derek Jeter
+Anonymous
