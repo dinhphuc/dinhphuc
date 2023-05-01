@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe in yourself, take on your challenges, dig deep within yourself to conquer fears. Never let anyone bring you down. You got to keep going.**
+**Make the most of yourself....for that is all there is of you.**
 
-Chantal Sutherland
+Ralph Waldo Emerson
