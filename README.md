@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The comeback is always stronger than the setback.**
+**No matter how you feel, get up, dress up, show up and never give up.**
 
 Anonymous
