@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**All souls are lost until they are found.**
+**We can be who we are without the pleasures but we could not be who we are not without the hardships.**
 
-Kate McGahan
+Anonymous
