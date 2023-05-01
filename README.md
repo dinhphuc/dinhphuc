@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**In matters of style, swim with the current; in matters of principle, stand like a rock.**
+**If you can't stop thinking about it, don't stop working for it.**
 
-Thomas Jefferson
+Anonymous
