@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody said it would be easy, so don't ever give up when it gets hard.**
+**The people who make you smile from just seeing them, those are my favorite people.**
 
-Anonymous
+Koi Fresco
