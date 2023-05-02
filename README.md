@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
+**The only way to do great work is to love what you do.**
 
-Anonymous
+Steve Jobs
