@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The first duty of love is to listen.**
+**Dream without fear. Love without limits.**
 
-Paul Tillich
+Dilip Bathija
