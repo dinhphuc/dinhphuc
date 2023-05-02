@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The best preparation for tomorrow is doing your best today.**
+**Success doesn't just come and find you, you have to go out and get it.**
 
-H. Jackson Brown, Jr
+Anonymous
