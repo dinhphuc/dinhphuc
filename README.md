@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Someone who is busier than you is running right now.**
+**Are your excuses more important than your dreams?**
 
-Nike
+Anonymous
