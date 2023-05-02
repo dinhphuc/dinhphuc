@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Often it isn't the mountains ahead that wear you out, it's the little pebble in your shoe.**
+**Determination is doing what needs to be done even when you don't feel like doing it.**
 
-Muhammad Ali
+Anonymous
