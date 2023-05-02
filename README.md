@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Dream without fear. Love without limits.**
+**What you choose to focus on expands and grows.**
 
-Dilip Bathija
+Anonymous
