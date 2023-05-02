@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Change your thoughts and you change your world.**
+**You alone are enough. You have nothing to prove to anybody.**
 
-Norman Vincent Peale
+Maya Angelou
