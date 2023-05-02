@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The only way to do great work is to love what you do.**
+**Often it isn't the mountains ahead that wear you out, it's the little pebble in your shoe.**
 
-Steve Jobs
+Muhammad Ali
