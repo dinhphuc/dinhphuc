@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A little progress each day adds up to big results.**
+**The journey of a thousand miles begins with one step.**
 
-Satya Nani
+Lao Tzu
