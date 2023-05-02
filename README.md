@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up. Keep going.**
+**Luck is what happens when preparation meets opportunity.**
 
-Anonymous
+Seneca
