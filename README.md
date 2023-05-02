@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Are your excuses more important than your dreams?**
+**Two wrongs don't make a right.**
 
-Anonymous
+English Proverb
