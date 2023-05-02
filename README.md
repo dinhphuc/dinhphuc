@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life becomes easier and more beautiful when we can see the good in other people.**
+**I knew that if I failed I wouldn't regret that. But I would regret not trying.**
 
-Roy T. Bennett
+Jeff Bezos
