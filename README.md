@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**What you choose to focus on expands and grows.**
+**When obstacles arise, you change your direction to reach your goal, you do not change your decision to get there.**
 
-Anonymous
+Zig Ziglar
