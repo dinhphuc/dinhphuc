@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Sometimes the bravest thing you can do is to keep going when you really feel like giving up.**
+**A little progress each day adds up to big results.**
 
-Anonymous
+Satya Nani
