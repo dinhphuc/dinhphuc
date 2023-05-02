@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Only in the darkness can you see the stars.**
+**You can't blame gravity for falling in love.**
 
-Martin Luther King, Jr.
+Albert Einstein
