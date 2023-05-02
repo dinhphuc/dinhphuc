@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Setting goals is the first step into turning the invisible into the visible.**
+**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
 
-Tony Robbins
+Anonymous
