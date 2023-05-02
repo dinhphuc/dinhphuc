@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest glory in living lies not in never falling, but in rising every time we fall.**
+**Life becomes easier and more beautiful when we can see the good in other people.**
 
-Nelson Mandela
+Roy T. Bennett
