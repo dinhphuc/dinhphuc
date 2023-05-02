@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success doesn't just come and find you, you have to go out and get it.**
+**Earn your confidence, nurture it, then help to build it in others.**
 
-Anonymous
+Alex Malley
