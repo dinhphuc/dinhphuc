@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter what you do, that seed will grow to be a peach tree. You may wish for an apple or an orange, but you will get a peach.**
+**Never give up. Keep going.**
 
-Master Oogway
+Anonymous
