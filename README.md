@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Earn your confidence, nurture it, then help to build it in others.**
+**The harder the struggle, the more glorious the triumph.**
 
-Alex Malley
+Anonymous
