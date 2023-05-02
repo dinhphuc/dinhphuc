@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The journey of a thousand miles begins with one step.**
+**Be yourself. An original is so much better than a copy.**
 
-Lao Tzu
+Anonymous
