@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is not a problem to be solved, but a reality to be experienced.**
+**Nobody said it would be easy, so don't ever give up when it gets hard.**
 
-Soren Kierkegaard
+Anonymous
