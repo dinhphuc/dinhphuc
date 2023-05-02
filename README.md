@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't blame gravity for falling in love.**
+**The first duty of love is to listen.**
 
-Albert Einstein
+Paul Tillich
