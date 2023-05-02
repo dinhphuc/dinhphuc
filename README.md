@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The harder the struggle, the more glorious the triumph.**
+**Only in the darkness can you see the stars.**
 
-Anonymous
+Martin Luther King, Jr.
