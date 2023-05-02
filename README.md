@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The people who make you smile from just seeing them, those are my favorite people.**
+**Strength is the product of struggle. You must do what others don't to achieve what others wont.**
 
-Koi Fresco
+Henry Rollins
