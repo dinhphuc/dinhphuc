@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Determination is doing what needs to be done even when you don't feel like doing it.**
+**There is no cosmetic for beauty like happiness.**
 
-Anonymous
+Maria Mitchell
