@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be yourself. An original is so much better than a copy.**
+**Someone who is busier than you is running right now.**
 
-Anonymous
+Nike
