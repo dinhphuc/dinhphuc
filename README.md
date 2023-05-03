@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is letting go of what you think your life is supposed to look like and enjoying it for everything that it is.**
+**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
 
-Mandy Hale
+Anonymous
