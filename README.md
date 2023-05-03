@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You matter.**
+**Focus on your goal. Don't look in any direction but ahead.**
 
 Anonymous
