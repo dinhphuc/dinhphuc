@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You may say I'm a dreamer but I'm not the only one.**
+**Many of life's failures are people who did not realize how close they were to success when they gave up.**
 
-John Lennon
+Thomas A. Edison
