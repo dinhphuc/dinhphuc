@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**None of us is as smart as all of us.**
+**I find that the harder I work, the more luck I seem to have.**
 
-Ken Blanchard
+Thomas Jefferson
