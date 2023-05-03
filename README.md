@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Love has no age, no limit; and no death.**
+**You matter.**
 
-John Galsworthy
+Anonymous
