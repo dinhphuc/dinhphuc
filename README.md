@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody can make you to feel inferior without your consent.**
+**A good life is doing what you love as much as you can and doing what you must as much as you should.**
 
-Eleanor Roosevelt
+Savania China
