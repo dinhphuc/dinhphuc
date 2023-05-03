@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're going through hell, keep going.**
+**A truly happy person is one who can enjoy the scenery when they have made a wrong turn.**
 
-Winston Churchill
+Anonymous
