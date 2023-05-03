@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want light to come into your life, you need to stand where it is shining.**
+**Do not blame the world. Find a solution.**
 
-Guy Finley
+Sri Chinmoy
