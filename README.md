@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You miss 100% of the shots you don't take.**
+**I'm alone, but I'm not lonely. I like who I am. I like who I'm becoming.**
 
-Wayne Gretzky
+Deena Kastor
