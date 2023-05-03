@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You miss 100% of the shots you don't take.**
+**Love has no age, no limit; and no death.**
 
-Wayne Gretzky
+John Galsworthy
