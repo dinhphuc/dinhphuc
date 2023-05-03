@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Focus on your goal. Don't look in any direction but ahead.**
+**Be tolerant with others and strict with yourself.**
 
-Anonymous
+Marcus Aurelius
