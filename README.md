@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A truly happy person is one who can enjoy the scenery when they have made a wrong turn.**
+**To give anything less than your best is to sacrifice the gift.**
 
-Anonymous
+Steve Prefontaine
