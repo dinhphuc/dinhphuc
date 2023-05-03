@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I find that the harder I work, the more luck I seem to have.**
+**If your dreams don't scare you, they aren't big enough.**
 
-Thomas Jefferson
+Muhammad Ali
