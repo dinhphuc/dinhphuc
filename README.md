@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't like something, change it. If you can't change it, change your attitude.**
+**No matter who you are, no matter what you did, no matter where you've come from, you can always change, and become a better version of yourself.**
 
-Maya Angelou
+Madonna
