@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can't find the opportunities you're looking for...create them.**
+**A problem is a chance for you to do your best.**
 
-Anonymous
+Duke Ellington
