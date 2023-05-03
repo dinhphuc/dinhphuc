@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Rock bottom became the solid foundation on which I rebuilt my life.**
+**Nobody can make you to feel inferior without your consent.**
 
-J.K. Rowling
+Eleanor Roosevelt
