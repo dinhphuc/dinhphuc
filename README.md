@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A problem is a chance for you to do your best.**
+**If you're going through hell, keep going.**
 
-Duke Ellington
+Winston Churchill
