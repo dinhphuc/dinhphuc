@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A good life is doing what you love as much as you can and doing what you must as much as you should.**
+**You miss 100% of the shots you don't take.**
 
-Savania China
+Wayne Gretzky
