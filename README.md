@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are loved.**
+**Rock bottom became the solid foundation on which I rebuilt my life.**
 
-Anonymous
+J.K. Rowling
