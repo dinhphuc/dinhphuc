@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter who you are, no matter what you did, no matter where you've come from, you can always change, and become a better version of yourself.**
+**Good friends are like stars. You don't always see them, but you know they're always there.**
 
-Madonna
+Christy Evans
