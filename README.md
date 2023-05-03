@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Perseverance is the hard work you do after you get tired of doing the hard work you already did.**
+**If you can't find the opportunities you're looking for...create them.**
 
-Newt Gingrich
+Anonymous
