@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whoever is happy will make others happy too.**
+**Look in the mirror. That's your competition.**
 
-Anonymous
+John Assaraf
