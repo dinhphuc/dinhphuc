@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be tolerant with others and strict with yourself.**
+**None of us is as smart as all of us.**
 
-Marcus Aurelius
+Ken Blanchard
