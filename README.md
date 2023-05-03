@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**To give anything less than your best is to sacrifice the gift.**
+**Do something today that your future self will thank you for.**
 
-Steve Prefontaine
+Anonymous
