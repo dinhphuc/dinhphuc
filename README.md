@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You alone are enough. You have nothing to prove to anybody.**
+**You may say I'm a dreamer but I'm not the only one.**
 
-Maya Angelou
+John Lennon
