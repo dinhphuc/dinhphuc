@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Beat the drum inside the house to spare the neighbors.**
+**Keep smiling. It makes people wonder what you are up to.**
 
-Chinese Proverb
+Anonymous
