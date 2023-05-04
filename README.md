@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When it comes to success, there are no shortcuts.**
+**Life is ours to be spent, not to be saved.**
 
-Bo Bennett
+D. H. Lawrence
