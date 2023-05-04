@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Pain is temporary. Quitting lasts forever.**
+**My attitude is if you push me towards a weakness, I will turn that weakness into a strength.**
 
-Lance Armstrong
+Michael Jordan
