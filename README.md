@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence.**
+**Our problems don't stem from our ignorance so much as our disobedience of that which we know to be right.**
 
-Helen Keller
+Stephen Covey
