@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Live as if you were to die tomorrow. Learn as if you were to live forever.**
+**Confidence is not 'They will like me'. Confidence is 'I'll be fine if they don't'.**
 
-Mahatma Gandhi
+Anonymous
