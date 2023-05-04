@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Doing what you like is freedom. Liking what you do is happiness.**
+**Speed is irrelevant if you are going in the wrong direction.**
 
-Anonymous
+Mahatma Gandhi
