@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be gentle with yourself. You're doing the best you can.**
+**Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence.**
 
-Anonymous
+Helen Keller
