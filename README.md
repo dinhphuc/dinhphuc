@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I am thankful for all those difficult people in my life. They have shown me exactly who I do not want to be.**
+**I have learned over the years that when one's mind is made up, this diminishes fear.**
 
-Anonymous
+Rosa Parks
