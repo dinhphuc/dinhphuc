@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your true success in life begins only when you make the commitment to become excellent at what you do.**
+**If opportunity doesn't knock, build a door.**
 
-Brian Tracy
+Milton Berle
