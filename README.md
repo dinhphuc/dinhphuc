@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life without love is like a tree without blossoms or fruit.**
+**You don't have to control your thoughts; you just have to stop letting them control you.**
 
-Khalil Gibran
+Dan Millman
