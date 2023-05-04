@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**My attitude is if you push me towards a weakness, I will turn that weakness into a strength.**
+**Continuous effort - not strength or intelligence - is the key to unlocking our potential.**
 
-Michael Jordan
+Liane Cardes
