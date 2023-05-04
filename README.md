@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A teacher is better than two books.**
+**Make each day your masterpiece.**
 
-German Proverb
+John Wooden
