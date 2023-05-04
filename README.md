@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I am not a product of my circumstances. I am a product of my decisions.**
+**Your life does not get better by chance, it gets better by change.**
 
-Stephen Covey
+Anonymous
