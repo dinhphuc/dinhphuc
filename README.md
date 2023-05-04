@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Never underestimate the power you have to take your life in a new direction.**
+**Doing what you like is freedom. Liking what you do is happiness.**
 
-Germany Kent
+Anonymous
