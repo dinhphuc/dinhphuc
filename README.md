@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The starting point of all achievement is desire.**
+**A leader is one who knows the way, goes the way, and shows the way.**
 
-Napoleon Hill
+John C. Maxwell
