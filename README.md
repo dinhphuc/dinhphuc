@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's better to light a candle than curse the darkness.**
+**Beat the drum inside the house to spare the neighbors.**
 
 Chinese Proverb
