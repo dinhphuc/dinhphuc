@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is when what you think, what you say, and what you do are in harmony.**
+**It's hard to beat a person who never gives up.**
 
-Mahatma Gandhi
+Anonymous
