@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Our problems don't stem from our ignorance so much as our disobedience of that which we know to be right.**
+**Happiness is when what you think, what you say, and what you do are in harmony.**
 
-Stephen Covey
+Mahatma Gandhi
