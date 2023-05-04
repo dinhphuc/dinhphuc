@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**People who make you feel better about yourself when you're sad are so important.**
+**Remember, most of your stress comes from the way you respond, not the way life is.**
 
 Anonymous
