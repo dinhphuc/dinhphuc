@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If opportunity doesn't knock, build a door.**
+**Be gentle with yourself. You're doing the best you can.**
 
-Milton Berle
+Anonymous
