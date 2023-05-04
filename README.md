@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence is not 'They will like me'. Confidence is 'I'll be fine if they don't'.**
+**Never underestimate the power you have to take your life in a new direction.**
 
-Anonymous
+Germany Kent
