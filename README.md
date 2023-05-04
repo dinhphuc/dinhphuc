@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing is impossible, the word itself says "I'm possible"!**
+**Pain is temporary. Quitting lasts forever.**
 
-Audrey Hepburn
+Lance Armstrong
