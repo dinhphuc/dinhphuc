@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A difficult time can be more readily endured if we retain the conviction that our existence holds a purpose - a cause to pursue, a person to love, a goal to achieve.**
+**You may be disappointed if you fail, but you are doomed if you don't try.**
 
-John Maxwell
+Beverly Sills
