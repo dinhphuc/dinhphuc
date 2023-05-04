@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep smiling. It makes people wonder what you are up to.**
+**The only journey is the one within.**
 
-Anonymous
+Rainer Maria Rilke
