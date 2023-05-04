@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A leader is one who knows the way, goes the way, and shows the way.**
+**It's better to light a candle than curse the darkness.**
 
-John C. Maxwell
+Chinese Proverb
