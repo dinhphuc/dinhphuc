@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Decide what matters most to you and do it.**
+**People who make you feel better about yourself when you're sad are so important.**
 
 Anonymous
