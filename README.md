@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You may be disappointed if you fail, but you are doomed if you don't try.**
+**Decide what matters most to you and do it.**
 
-Beverly Sills
+Anonymous
