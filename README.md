@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is ours to be spent, not to be saved.**
+**Nothing is impossible, the word itself says "I'm possible"!**
 
-D. H. Lawrence
+Audrey Hepburn
