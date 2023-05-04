@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Even the greatest were beginners. Don't be afraid to take that first step.**
+**I am not a product of my circumstances. I am a product of my decisions.**
 
-Anonymous
+Stephen Covey
