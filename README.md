@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**In a battle between elephants, the ants get squashed.**
+**A teacher is better than two books.**
 
-Thai Proverb
+German Proverb
