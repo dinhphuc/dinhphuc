@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't have to control your thoughts; you just have to stop letting them control you.**
+**Live as if you were to die tomorrow. Learn as if you were to live forever.**
 
-Dan Millman
+Mahatma Gandhi
