@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Impossible is nothing.**
+**In a battle between elephants, the ants get squashed.**
 
-Muhammad Ali
+Thai Proverb
