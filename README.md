@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure is simply the opportunity to begin again. Except this time more intelligently.**
+**If you set your goals ridiculously high and it's a failure, you will fail above everyone else's success.**
 
-Henry Ford
+James Cameron
