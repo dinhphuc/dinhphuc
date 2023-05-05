@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence is the ability to feel beautiful, without needing someone to tell you.**
+**Float like a butterfly, sting like a bee.**
 
-Anonymous
+Muhammad Ali
