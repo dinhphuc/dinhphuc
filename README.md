@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of getting ahead is getting started.**
+**You are what you believe yourself to be.**
 
-Mark Twain
+Paulo Coelho
