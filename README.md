@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The best way to make your dreams come true is to wake up.**
+**When the 'why' is clear, the 'how' is easy.**
 
-Paul Valery
+Anonymous
