@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No one controls how I feel about myself, but me.**
+**Smaller in number are we, but larger in mind.**
 
-Anonymous
+Yoda
