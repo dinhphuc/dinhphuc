@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.**
+**Never underestimate the power you have to take your life in a new direction.**
 
-Henry Ford
+Germany Kent
