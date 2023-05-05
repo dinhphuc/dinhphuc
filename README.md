@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are what you believe yourself to be.**
+**No one controls how I feel about myself, but me.**
 
-Paulo Coelho
+Anonymous
