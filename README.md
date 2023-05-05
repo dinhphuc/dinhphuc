@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**With virtue, you can't be completely poor; without it, you can't be truly rich.**
+**When the sun rises, it rises for everyone.**
 
-Chinese Proverb
+Cuban Proverb
