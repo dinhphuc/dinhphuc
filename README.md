@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There are no secrets to success. It is the result of preparation, hard work, and learning from failure.**
+**If you go to a donkey's house, don't talk about ears.**
 
-Colin Powell
+Jamaican Proverb
