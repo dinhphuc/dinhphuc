@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There are no secrets to success. It is the result of preparation, hard work, and learning from failure.**
+**Honesty is the first chapter in the book of wisdom.**
 
-Colin Powell
+Thomas Jefferson
