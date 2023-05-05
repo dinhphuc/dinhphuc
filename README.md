@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Float like a butterfly, sting like a bee.**
+**Be strong when you are weak, brave when you are scared, and humble when you are victorious.**
 
-Muhammad Ali
+Anonymous
