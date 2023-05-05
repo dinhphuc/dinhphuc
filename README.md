@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Start by doing what's necessary; then do what's possible; and suddenly you are doing the impossible.**
+**Don't be afraid of your fears. They're not there to scare you. They're there to let you know that something is worth it.**
 
-Francis of Assisi
+C. JoyBell C
