@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Courage is taking those first steps toward your dreams even if you can't see the path ahead.**
+**Failure is simply the opportunity to begin again. Except this time more intelligently.**
 
-Anonymous
+Henry Ford
