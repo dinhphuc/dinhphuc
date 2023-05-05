@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There is a difference between giving up and knowing when you've had enough.**
+**When a new day begins, dare to smile gratefully.**
 
-Anonymous
+Steve Maraboli
