@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be strong when you are weak, brave when you are scared, and humble when you are victorious.**
+**Dream big. Start small. But most of all, start.**
 
-Anonymous
+Simon Sinek
