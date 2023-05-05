@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you feel like giving up, just look back on how far you are already.**
+**With virtue, you can't be completely poor; without it, you can't be truly rich.**
 
-Anonymous
+Chinese Proverb
