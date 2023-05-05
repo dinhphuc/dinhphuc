@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm not here to be average, I'm here to be awesome.**
+**When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.**
 
-Anonymous
+Henry Ford
