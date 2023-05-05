@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you go to a donkey's house, don't talk about ears.**
+**Hard times don't create heroes. It is during the hard times when the 'hero' within us is revealed.**
 
-Jamaican Proverb
+Bob Riley
