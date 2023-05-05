@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Even if I knew that tomorrow the world would go to pieces, I would still plant my apple tree.**
+**Happiness is an attitude. We either make ourselves miserable, or happy and strong. The amount of work is the same.**
 
-Martin Luther
+Francesca Reigler
