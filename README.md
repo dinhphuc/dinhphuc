@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Beauty begins the moment you decide to be yourself.**
+**Be tolerant with others and strict with yourself.**
 
-Coco Chanel
+Marcus Aurelius
