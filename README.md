@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Continuous effort - not strength or intelligence - is the key to unlocking our potential.**
+**The first place where self-esteem begins its journey is within us.**
 
-Liane Cardes
+Stephen Richards
