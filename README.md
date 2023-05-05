@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When a new day begins, dare to smile gratefully.**
+**I always like to look on the optimistic side of life, but I am realistic enough to know that life is a complex matter.**
 
-Steve Maraboli
+Walt Disney
