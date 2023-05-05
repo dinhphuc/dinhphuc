@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When the sun rises, it rises for everyone.**
+**There is a difference between giving up and knowing when you've had enough.**
 
-Cuban Proverb
+Anonymous
