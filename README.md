@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Hard times don't create heroes. It is during the hard times when the 'hero' within us is revealed.**
+**Your body is made to move so move it.**
 
-Bob Riley
+Toni Sorenson
