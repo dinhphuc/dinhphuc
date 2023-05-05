@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be tolerant with others and strict with yourself.**
+**Courage is taking those first steps toward your dreams even if you can't see the path ahead.**
 
-Marcus Aurelius
+Anonymous
