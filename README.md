@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is an attitude. We either make ourselves miserable, or happy and strong. The amount of work is the same.**
+**Start by doing what's necessary; then do what's possible; and suddenly you are doing the impossible.**
 
-Francesca Reigler
+Francis of Assisi
