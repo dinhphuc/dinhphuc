@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Dream big. Start small. But most of all, start.**
+**I'm not here to be average, I'm here to be awesome.**
 
-Simon Sinek
+Anonymous
