@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Smaller in number are we, but larger in mind.**
+**Confidence is the ability to feel beautiful, without needing someone to tell you.**
 
-Yoda
+Anonymous
