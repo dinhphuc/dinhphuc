@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Never underestimate the power you have to take your life in a new direction.**
+**If you feel like giving up, just look back on how far you are already.**
 
-Germany Kent
+Anonymous
