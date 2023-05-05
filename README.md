@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The first place where self-esteem begins its journey is within us.**
+**It's a good day to be happy.**
 
-Stephen Richards
+Anonymous
