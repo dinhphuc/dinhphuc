@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be afraid of your fears. They're not there to scare you. They're there to let you know that something is worth it.**
+**Beauty begins the moment you decide to be yourself.**
 
-C. JoyBell C
+Coco Chanel
