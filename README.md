@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A dream does not become reality through magic; it takes sweat, determination and hard work.**
+**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
 
-Colin Powell
+Anonymous
