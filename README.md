@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Honesty is the first chapter in the book of wisdom.**
+**Believe in yourself and you can be anything.**
 
-Thomas Jefferson
+Katy Perry
