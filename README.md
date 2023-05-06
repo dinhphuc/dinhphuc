@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't find will power, you create it.**
+**If opportunity doesn't knock, build a door.**
 
-Anonymous
+Milton Berle
