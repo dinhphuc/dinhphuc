@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Good people are like candles; they burn themselves up to give others light.**
+**I am not a product of my circumstances. I am a product of my decisions.**
 
-Anonymous
+Stephen Covey
