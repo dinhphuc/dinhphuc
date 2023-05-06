@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Where love reigns, the impossible may be attained.**
+**A problem is a chance for you to do your best.**
 
-Indian Proverb
+Duke Ellington
