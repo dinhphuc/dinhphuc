@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be so happy that when others look at you they become happy too.**
+**Cry. Forgive. Learn. Move on. Let your tears water the seeds of your future happiness.**
 
-Anonymous
+Steve Maraboli
