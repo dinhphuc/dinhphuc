@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Good judgment comes from experience, and a lot of that comes from bad judgment.**
+**Nobody can bring you peace but yourself.**
 
-Will Rogers
+Ralph Waldo Emerson
