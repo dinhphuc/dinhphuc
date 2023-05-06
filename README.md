@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Hard times don't create heroes. It is during the hard times when the 'hero' within us is revealed.**
+**A truly rich man is one whose children run into his arms when his hands are empty.**
 
-Bob Riley
+Unknown
