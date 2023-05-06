@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you really look closely, most overnight successes took a long time.**
+**Where love reigns, the impossible may be attained.**
 
-Steve Jobs
+Indian Proverb
