@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Setting goals is the first step into turning the invisible into the visible.**
+**Good people are like candles; they burn themselves up to give others light.**
 
-Tony Robbins
+Anonymous
