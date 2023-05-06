@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A problem is a chance for you to do your best.**
+**Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence.**
 
-Duke Ellington
+Helen Keller
