@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be frightened by difficulties.**
+**Successful people have fear, successful people have doubts, and successful people have worries. They just don't let these feelings stop them.**
 
-Ryan Holiday
+T. Harv Eker
