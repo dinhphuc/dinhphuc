@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody can bring you peace but yourself.**
+**Wake up every morning with the thought that something wonderful is about to happen.**
 
-Ralph Waldo Emerson
+Anonymous
