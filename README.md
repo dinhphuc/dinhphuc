@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your mind is a powerful thing. When you fill it with positive thoughts, your life will start to change.**
+**If you really look closely, most overnight successes took a long time.**
 
-Anonymous
+Steve Jobs
