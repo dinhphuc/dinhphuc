@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to lift yourself up, lift up someone else.**
+**Good judgment comes from experience, and a lot of that comes from bad judgment.**
 
-Booker T. Washington
+Will Rogers
