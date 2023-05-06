@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The only thing worse than starting something and failing... is not starting something.**
+**Strength isn't about how much you can handle before you break. It's about how much you can endure after you've been broken.**
 
-Seth Godin
+Anonymous
