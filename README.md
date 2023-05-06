@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I am not a product of my circumstances. I am a product of my decisions.**
+**Be so happy that when others look at you they become happy too.**
 
-Stephen Covey
+Anonymous
