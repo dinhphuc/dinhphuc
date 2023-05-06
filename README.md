@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Goals may give focus, but dreams give power.**
+**Don't be frightened by difficulties.**
 
-John Maxwell
+Ryan Holiday
