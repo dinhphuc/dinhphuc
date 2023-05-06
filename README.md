@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A truly rich man is one whose children run into his arms when his hands are empty.**
+**And in the end, the love you take, is equal to the love you make.**
 
-Unknown
+The Beatles
