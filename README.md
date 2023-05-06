@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Only a man who knows what it is like to be defeated can reach down to the bottom of his soul and come up with the extra ounce of power it takes to win when the match is even.**
+**I am happy because I'm grateful. I choose to be grateful. That gratitude allows me to be happy.**
 
-Muhammad Ali
+Will Arnett
