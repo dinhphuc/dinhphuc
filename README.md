@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't miss out on something that could be great just because it could also be difficult.**
+**If you want to lift yourself up, lift up someone else.**
 
-Anonymous
+Booker T. Washington
