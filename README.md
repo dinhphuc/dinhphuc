@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot change the direction of the wind - only alter the angle of your sails.**
+**Hard times don't create heroes. It is during the hard times when the 'hero' within us is revealed.**
 
-Anonymous
+Bob Riley
