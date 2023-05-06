@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be so happy that when others look at you they become happy too.**
+**Look in the mirror. That's your competition.**
 
-Anonymous
+John Assaraf
