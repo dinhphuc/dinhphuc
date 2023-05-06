@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything you can imagine is real.**
+**Nobody can bring you peace but yourself.**
 
-Pablo Picasso
+Ralph Waldo Emerson
