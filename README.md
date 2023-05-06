@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence.**
+**All things equal, people will do business with, and refer business to, people they know trust and like.**
 
-Helen Keller
+Bob Burg
