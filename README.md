@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I alone cannot change the world, but I can cast a stone across the water to create many ripples.**
+**Don't miss out on something that could be great just because it could also be difficult.**
 
-Mother Teresa
+Anonymous
