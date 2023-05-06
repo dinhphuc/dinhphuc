@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Wake up every morning with the thought that something wonderful is about to happen.**
+**A dream does not become reality through magic; it takes sweat, determination and hard work.**
 
-Anonymous
+Colin Powell
