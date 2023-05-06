@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Change your thoughts and you change your world.**
+**To be calm is the highest achievement of the self.**
 
-Norman Vincent Peale
+Zen Proverb
