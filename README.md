@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Feel the force!**
+**We are all in the gutter, but some of us are looking at the stars.**
 
-Yoda
+Oscar Wilde
