@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe in yourself and you can be anything.**
+**Be so happy that when others look at you they become happy too.**
 
-Katy Perry
+Anonymous
