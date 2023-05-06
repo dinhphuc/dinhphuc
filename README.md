@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**All things equal, people will do business with, and refer business to, people they know trust and like.**
+**If opportunity doesn't knock, build a door.**
 
-Bob Burg
+Milton Berle
