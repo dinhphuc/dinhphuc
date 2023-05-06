@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I am happy because I'm grateful. I choose to be grateful. That gratitude allows me to be happy.**
+**The only thing worse than starting something and failing... is not starting something.**
 
-Will Arnett
+Seth Godin
