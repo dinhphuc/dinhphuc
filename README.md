@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**To be calm is the highest achievement of the self.**
+**You cannot change the direction of the wind - only alter the angle of your sails.**
 
-Zen Proverb
+Anonymous
