@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**And in the end, the love you take, is equal to the love you make.**
+**Setting goals is the first step into turning the invisible into the visible.**
 
-The Beatles
+Tony Robbins
