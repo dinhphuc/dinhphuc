@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**An attitude of positive expectation is the mark of the superior personality.**
+**One small positive thought in the morning can change your whole day.**
 
-Brian Tracy
+Anonymous
