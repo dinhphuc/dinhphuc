@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Good things come to those who believe. Better things come to those who are patient. The best things come to those who never give up.**
+**To give anything less than your best is to sacrifice the gift.**
 
-Anonymous
+Steve Prefontaine
