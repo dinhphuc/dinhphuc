@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It is better to fail in originality than to succeed in imitation.**
+**An attitude of positive expectation is the mark of the superior personality.**
 
-Herman Melville
+Brian Tracy
