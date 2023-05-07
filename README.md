@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Every next level of your life will demand a different version of you.**
+**Education is the most powerful weapon which you can use to change the world.**
 
-Anonymous
+Nelson Mandela
