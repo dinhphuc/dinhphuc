@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your problem isn't the problem, it's your attitude about the problem.**
+**Nurture your mind with great thoughts, for you will never go any higher than you think.**
 
-Ann Brashares
+Benjamin Disraeli
