@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It is better to fail in originality than to succeed in imitation.**
+**Don't judge each day by the harvest you reap but by the seeds that you plant.**
 
-Herman Melville
+Robert Louis Stevenson
