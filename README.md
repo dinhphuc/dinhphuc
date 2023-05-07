@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There are no secrets to success. It is the result of preparation, hard work, and learning from failure.**
+**Only a life lived for others is a life worthwhile.**
 
-Colin Powell
+Albert Einstein
