@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**One small positive thought in the morning can change your whole day.**
+**Every next level of your life will demand a different version of you.**
 
 Anonymous
