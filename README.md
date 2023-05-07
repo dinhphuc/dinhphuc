@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your life does not get better by chance, it gets better by change.**
+**Success is what happens after you have survived all of your disappointments.**
 
 Anonymous
