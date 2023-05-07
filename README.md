@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Successful people have fear, successful people have doubts, and successful people have worries. They just don't let these feelings stop them.**
+**If you look the right way, you can see that the whole world is a garden.**
 
-T. Harv Eker
+Frances Hodgson Burnett
