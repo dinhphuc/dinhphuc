@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your life does not get better by chance, it gets better by change.**
+**Whatever you hold in your mind on a consistent basis is exactly what you will experience in your life.**
 
-Anonymous
+Tony Robbins
