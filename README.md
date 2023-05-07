@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't judge each day by the harvest you reap but by the seeds that you plant.**
+**There are no secrets to success. It is the result of preparation, hard work, and learning from failure.**
 
-Robert Louis Stevenson
+Colin Powell
