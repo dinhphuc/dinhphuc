@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Fall seven times, stand up eight.**
+**It is better to fail in originality than to succeed in imitation.**
 
-Japanese Proverb
+Herman Melville
