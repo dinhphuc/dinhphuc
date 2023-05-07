@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't get what you wish for. You get what you work for.**
+**No matter how tough it may get, never give up on yourself or you will look back and regret it.**
 
 Anonymous
