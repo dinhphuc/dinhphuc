@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**As we express our gratitude, we must never forget that the highest appreciation is not to utter words, but to live by them.**
+**Pessimism leads to weakness, optimism to power.**
 
-John F. Kennedy
+William James
