@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't judge each day by the harvest you reap but by the seeds that you plant.**
+**Run when you can, walk if you have to, crawl if you must; just never give up.**
 
-Robert Louis Stevenson
+Dean Karnazes
