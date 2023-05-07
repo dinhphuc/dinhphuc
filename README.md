@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nurture your mind with great thoughts, for you will never go any higher than you think.**
+**Instead of feeding myself excuses why I can't, I give myself reasons why I can.**
 
-Benjamin Disraeli
+Anonymous
