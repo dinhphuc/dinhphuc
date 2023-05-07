@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you look the right way, you can see that the whole world is a garden.**
+**Fall seven times, stand up eight.**
 
-Frances Hodgson Burnett
+Japanese Proverb
