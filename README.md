@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**All souls are lost until they are found.**
+**You don't get what you wish for. You get what you work for.**
 
-Kate McGahan
+Anonymous
