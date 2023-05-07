@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Our own self-esteem is something we can actually twist in whatever way we want.**
+**Good things come to those who believe. Better things come to those who are patient. The best things come to those who never give up.**
 
-Stephen Richards
+Anonymous
