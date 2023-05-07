@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest teacher, failure is.**
+**Always plan for the fact that no plan ever goes according to plan.**
 
-Yoda
+Simon Sinek
