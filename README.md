@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Wake up every morning with the thought that something wonderful is about to happen.**
+**We should never change our minds about where we are going, but always be curious about different ways to get there.**
 
-Anonymous
+Simon Sinek
