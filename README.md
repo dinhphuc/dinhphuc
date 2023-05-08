@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I learned that courage was not the absence of fear, but the triumph over it.**
+**The absence of adversity is an indicator that my goals aren't significant enough.**
 
-Nelson Mandela
+Clint Bruce
