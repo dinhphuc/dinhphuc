@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Climb the mountains to see lowlands.**
+**Walk on with hope in your heart, and you'll never walk alone.**
 
-Chinese Proverb
+Shah Rukh Khan
