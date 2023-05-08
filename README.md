@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**100% commitment is easier than 98% commitment.**
+**Don't be afraid of your fears. They're not there to scare you. They're there to let you know that something is worth it.**
 
-Harvard Business School
+C. JoyBell C
