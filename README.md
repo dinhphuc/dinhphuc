@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Learn to be thankful for what you already have, while you pursue all that you want.**
+**A beautiful thing is never perfect.**
 
-Jim Rohn
+Egyptian Proverb
