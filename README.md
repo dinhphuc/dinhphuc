@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Always deliver more than expected.**
+**100% commitment is easier than 98% commitment.**
 
-Larry Page
+Harvard Business School
