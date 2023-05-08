@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Walk on with hope in your heart, and you'll never walk alone.**
+**You are wonderfully made.**
 
-Shah Rukh Khan
+Anonymous
