@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We become what we think about.**
+**Keep your face always toward the sunshine - and shadows will fall behind you.**
 
-Earl Nightingale
+Walt Whitman
