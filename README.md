@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't explain your philosophy. Embody it.**
+**I knew that if I failed I wouldn't regret that. But I would regret not trying.**
 
-Epictetus
+Jeff Bezos
