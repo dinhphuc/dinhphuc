@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not whether you get knocked down. It's whether you get back up.**
+**Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no hope at all.**
 
-Vince Lombardi
+Dale Carnegie
