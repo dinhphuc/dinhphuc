@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Always plan for the fact that no plan ever goes according to plan.**
+**It makes a big difference in your life when you stay positive.**
 
-Simon Sinek
+Ellen DeGeneres
