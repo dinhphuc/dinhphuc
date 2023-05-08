@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If it is important to you, you will find a way. If not, you'll find an excuse.**
+**We are what we repeatedly do. Excellence, then, is not an act, but a habit.**
 
-Anonymous
+Aristotle
