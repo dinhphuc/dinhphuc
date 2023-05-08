@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Make sure your worst enemy doesn't live between your own two ears.**
+**Wake up every morning with the thought that something wonderful is about to happen.**
 
-Laird Hamilton
+Anonymous
