@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Wake up every morning with the thought that something wonderful is about to happen.**
+**We last longer if we compete against ourselves for the good of others instead of competing against others for the good of ourselves.**
 
-Anonymous
+Simon Sinek
