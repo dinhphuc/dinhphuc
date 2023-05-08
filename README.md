@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There are no mistakes, only lessons. Growth is a process of trial and error.**
+**All things equal, people will do business with, and refer business to, people they know trust and like.**
 
-Anonymous
+Bob Burg
