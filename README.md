@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Hate. It has caused a lot of problems in this world but has not solved one yet.**
+**Start where you are. Use what you have. Do what you can.**
 
-Maya Angelou
+Arthur Ashe
