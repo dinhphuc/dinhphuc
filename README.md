@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Courage is taking those first steps toward your dreams even if you can't see the path ahead.**
+**It is not how much we have, but how much we enjoy, that makes happiness.**
 
-Anonymous
+Charles Spurgeon
