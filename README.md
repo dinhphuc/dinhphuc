@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength doesn't come from what you can do. It comes from overcoming the things you once thought you couldn't.**
+**I knew that if I failed I wouldn't regret that. But I would regret not trying.**
 
-Rikki Rogers
+Jeff Bezos
