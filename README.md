@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The absence of adversity is an indicator that my goals aren't significant enough.**
+**Make sure your worst enemy doesn't live between your own two ears.**
 
-Clint Bruce
+Laird Hamilton
