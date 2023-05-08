@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you feel like giving up, just look back on how far you are already.**
+**Climb the mountains to see lowlands.**
 
-Anonymous
+Chinese Proverb
