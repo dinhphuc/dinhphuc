@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be afraid of your fears. They're not there to scare you. They're there to let you know that something is worth it.**
+**If you can't live longer, live deeper.**
 
-C. JoyBell C
+Italian Proverb
