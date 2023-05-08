@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We should never change our minds about where we are going, but always be curious about different ways to get there.**
+**It's not whether you get knocked down. It's whether you get back up.**
 
-Simon Sinek
+Vince Lombardi
