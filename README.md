@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Hate. It has caused a lot of problems in this world but has not solved one yet.**
+**If you feel like giving up, just look back on how far you are already.**
 
-Maya Angelou
+Anonymous
