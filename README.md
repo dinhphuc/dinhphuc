@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We are what we repeatedly do. Excellence, then, is not an act, but a habit.**
+**There are no mistakes, only lessons. Growth is a process of trial and error.**
 
-Aristotle
+Anonymous
