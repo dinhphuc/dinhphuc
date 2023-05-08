@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A new command I give you: Love one another.**
+**Hate. It has caused a lot of problems in this world but has not solved one yet.**
 
-Jesus Christ
+Maya Angelou
