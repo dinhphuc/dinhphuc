@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It makes a big difference in your life when you stay positive.**
+**Learn to be thankful for what you already have, while you pursue all that you want.**
 
-Ellen DeGeneres
+Jim Rohn
