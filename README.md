@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not how much we have, but how much we enjoy, that makes happiness.**
+**Don't judge each day by the harvest you reap but by the seeds that you plant.**
 
-Charles Spurgeon
+Robert Louis Stevenson
