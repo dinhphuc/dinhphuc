@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are wonderfully made.**
+**What we achieve inwardly will change outer reality.**
 
-Anonymous
+Plutarch
