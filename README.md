@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A beautiful thing is never perfect.**
+**Stop beating yourself up. You are a work in progress which means you get there a little at a time, not all at once.**
 
-Egyptian Proverb
+Anonymous
