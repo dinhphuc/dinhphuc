@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can't live longer, live deeper.**
+**Great works are performed, not by strength, but by perseverance.**
 
-Italian Proverb
+Samuel Johnson
