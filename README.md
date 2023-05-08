@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Great works are performed, not by strength, but by perseverance.**
+**Results happen over time, not overnight. Work hard, stay consistent, and be patient.**
 
-Samuel Johnson
+Anonymous
