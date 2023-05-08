@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep your face always toward the sunshine - and shadows will fall behind you.**
+**I learned that courage was not the absence of fear, but the triumph over it.**
 
-Walt Whitman
+Nelson Mandela
