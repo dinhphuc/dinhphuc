@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Results happen over time, not overnight. Work hard, stay consistent, and be patient.**
+**Wake up every morning with the thought that something wonderful is about to happen.**
 
 Anonymous
