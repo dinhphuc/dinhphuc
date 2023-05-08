@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**What we achieve inwardly will change outer reality.**
+**Courage is taking those first steps toward your dreams even if you can't see the path ahead.**
 
-Plutarch
+Anonymous
