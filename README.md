@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We last longer if we compete against ourselves for the good of others instead of competing against others for the good of ourselves.**
+**A new command I give you: Love one another.**
 
-Simon Sinek
+Jesus Christ
