@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do or do not. There is no try.**
+**The beginning is the most important part of the work.**
 
-Yoda
+Plato
