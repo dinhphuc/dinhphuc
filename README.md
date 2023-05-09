@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do what makes you happy.**
+**Age is whatever you think it is. You are as old as you think you are.**
 
-Rachel Ann Nunes
+Muhammad Ali
