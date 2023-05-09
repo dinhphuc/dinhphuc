@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Accept yourself, love yourself, and keep moving forward.**
+**There is no greater miracle than our conscious efforts to become good human beings.**
 
-Roy T. Bennett
+Sri Chinmoy
