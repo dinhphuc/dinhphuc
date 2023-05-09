@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Like the morning sun, you too shall rise and continue to shine.**
+**Life isn't about finding yourself. Life is about creating yourself.**
 
-Anonymous
+George Bernard Shaw
