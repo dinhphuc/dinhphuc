@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be afraid to give up the good to go for the great.**
+**Accept yourself, love yourself, and keep moving forward.**
 
-John D. Rockefeller
+Roy T. Bennett
