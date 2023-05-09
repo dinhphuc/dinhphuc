@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no greater miracle than our conscious efforts to become good human beings.**
+**Every next level of your life will demand a different version of you.**
 
-Sri Chinmoy
+Anonymous
