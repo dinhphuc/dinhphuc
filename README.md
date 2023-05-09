@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Words may inspire but only action creates change.**
+**There is no greater miracle than our conscious efforts to become good human beings.**
 
-Simon Sinek
+Sri Chinmoy
