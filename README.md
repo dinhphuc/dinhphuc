@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Every next level of your life will demand a different version of you.**
+**Honesty is the first chapter in the book of wisdom.**
 
-Anonymous
+Thomas Jefferson
