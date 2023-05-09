@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't think about what might go wrong. Think about what might go right.**
+**We are what we repeatedly do. Excellence, then, is not an act, but a habit.**
 
-Anonymous
+Aristotle
