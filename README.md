@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't get what you wish for. You get what you work for.**
+**You cannot prevent the birds of sadness from passing over your head, but you can prevent their making a nest in your hair.**
 
-Anonymous
+Chinese Proverb
