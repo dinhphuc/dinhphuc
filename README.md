@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There's never enough time to do everything, but there's always enough time to do the most important thing.**
+**Don't think about what might go wrong. Think about what might go right.**
 
-Dean Bokhari
+Anonymous
