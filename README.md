@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life isn't about finding yourself. Life is about creating yourself.**
+**There's never enough time to do everything, but there's always enough time to do the most important thing.**
 
-George Bernard Shaw
+Dean Bokhari
