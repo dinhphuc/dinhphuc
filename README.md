@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The harder the struggle, the more glorious the triumph.**
+**If you are positive, you'll see opportunities instead of obstacles.**
 
-Anonymous
+Widad Akrawi
