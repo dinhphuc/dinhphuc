@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't judge each day by the harvest you reap but by the seeds that you plant.**
+**Don't be afraid to give up the good to go for the great.**
 
-Robert Louis Stevenson
+John D. Rockefeller
