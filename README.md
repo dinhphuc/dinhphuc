@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are positive, you'll see opportunities instead of obstacles.**
+**The good life is a process, not a state of being. It is a direction, not a destination.**
 
-Widad Akrawi
+Carl Rogers
