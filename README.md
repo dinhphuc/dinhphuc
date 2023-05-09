@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't fear moving slowly forward...fear standing still.**
+**He who sweats more in training bleeds less in war.**
 
-Kathleen Harris
+Greek Proverb
