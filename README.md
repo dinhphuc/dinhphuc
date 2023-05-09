@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Honesty is the first chapter in the book of wisdom.**
+**Train like a silver medalist, compete like a gold.**
 
-Thomas Jefferson
+Anonymous
