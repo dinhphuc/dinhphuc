@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The very best thing you can do for the whole world is to make the best of yourself.**
+**Very little is needed to make a happy life; it is all within yourself, in your way of thinking.**
 
-Anonymous
+Marcus Aurelius
