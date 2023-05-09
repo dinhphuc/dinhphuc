@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A positive attitude causes a chain reaction of positive thoughts, events, and outcomes. It is a catalyst, and it sparks extraordinary results.**
+**Your true success in life begins only when you make the commitment to become excellent at what you do.**
 
-Wade Boggs
+Brian Tracy
