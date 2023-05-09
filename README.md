@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Age is whatever you think it is. You are as old as you think you are.**
+**Don't fear moving slowly forward...fear standing still.**
 
-Muhammad Ali
+Kathleen Harris
