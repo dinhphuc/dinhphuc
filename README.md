@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Run when you can, walk if you have to, crawl if you must; just never give up.**
+**You don't get what you wish for. You get what you work for.**
 
-Dean Karnazes
+Anonymous
