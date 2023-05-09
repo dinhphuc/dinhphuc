@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The good life is a process, not a state of being. It is a direction, not a destination.**
+**A positive attitude causes a chain reaction of positive thoughts, events, and outcomes. It is a catalyst, and it sparks extraordinary results.**
 
-Carl Rogers
+Wade Boggs
