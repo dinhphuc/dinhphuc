@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Train like a silver medalist, compete like a gold.**
+**Do or do not. There is no try.**
 
-Anonymous
+Yoda
