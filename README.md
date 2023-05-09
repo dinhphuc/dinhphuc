@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Acting on a good idea is better than just having a good idea.**
+**Run when you can, walk if you have to, crawl if you must; just never give up.**
 
-Robert Half
+Dean Karnazes
