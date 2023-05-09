@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot prevent the birds of sadness from passing over your head, but you can prevent their making a nest in your hair.**
+**Difficult to see. Always in motion is the future.**
 
-Chinese Proverb
+Yoda
