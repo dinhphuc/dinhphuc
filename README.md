@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The beginning is the most important part of the work.**
+**Do what makes you happy.**
 
-Plato
+Rachel Ann Nunes
