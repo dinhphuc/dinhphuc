@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your true success in life begins only when you make the commitment to become excellent at what you do.**
+**Acting on a good idea is better than just having a good idea.**
 
-Brian Tracy
+Robert Half
