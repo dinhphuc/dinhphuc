@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We are what we repeatedly do. Excellence, then, is not an act, but a habit.**
+**The harder the struggle, the more glorious the triumph.**
 
-Aristotle
+Anonymous
