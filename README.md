@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your true success in life begins only when you make the commitment to become excellent at what you do.**
+**Words may inspire but only action creates change.**
 
-Brian Tracy
+Simon Sinek
