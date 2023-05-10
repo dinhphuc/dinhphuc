@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Running is therapy anyone can afford.**
+**To handle yourself, use your head; to handle others, use your heart.**
 
-Toni Sorenson
+Eleanor Roosevelt
