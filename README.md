@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I would rather die of passion than of boredom.**
+**Life is either a daring adventure or nothing at all.**
 
-Vincent van Gogh
+Helen Keller
