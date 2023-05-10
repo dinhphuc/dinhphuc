@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Difficult to see. Always in motion is the future.**
+**100% commitment is easier than 98% commitment.**
 
-Yoda
+Harvard Business School
