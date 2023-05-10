@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A truly rich man is one whose children run into his arms when his hands are empty.**
+**Laugh. It's free medicine you don't need insurance for.**
 
-Unknown
+Anonymous
