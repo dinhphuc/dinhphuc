@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't find will power, you create it.**
+**Success is not final, failure is not fatal: it is the courage to continue that counts.**
 
-Anonymous
+Winston Churchill
