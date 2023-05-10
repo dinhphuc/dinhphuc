@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life only comes around once, so do whatever makes you happy, and be with whoever makes you smile.**
+**Do all things with love.**
 
-Anonymous
+Og Mandino
