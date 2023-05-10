@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Trust the process of life.**
+**Running is therapy anyone can afford.**
 
-Anonymous
+Toni Sorenson
