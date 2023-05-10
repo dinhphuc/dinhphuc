@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot change the direction of the wind - only alter the angle of your sails.**
+**Certain things catch your eye, but pursue only those that capture the heart.**
 
-Anonymous
+Ancient Indian Proverb
