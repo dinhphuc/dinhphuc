@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Action is the foundational key to all success.**
+**If you want to find happiness, find gratitude.**
 
-Pablo Picasso
+Steve Maraboli
