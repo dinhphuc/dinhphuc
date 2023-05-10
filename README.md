@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep smiling. It makes people wonder what you are up to.**
+**Good friends are like stars. You don't always see them, but you know they're always there.**
 
-Anonymous
+Christy Evans
