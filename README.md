@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We love life, not because we are used to living but because we are used to loving.**
+**No matter what you do, that seed will grow to be a peach tree. You may wish for an apple or an orange, but you will get a peach.**
 
-Friedrich Nietzsche
+Master Oogway
