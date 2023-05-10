@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Laugh. It's free medicine you don't need insurance for.**
+**Live as if you were to die tomorrow. Learn as if you were to live forever.**
 
-Anonymous
+Mahatma Gandhi
