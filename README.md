@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't count the days, make the days count.**
+**Feel the force!**
 
-Muhammad Ali
+Yoda
