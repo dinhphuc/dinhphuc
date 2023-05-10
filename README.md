@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Inhale confidence. Exhale doubt.**
+**Do not blame the world. Find a solution.**
 
-Anonymous
+Sri Chinmoy
