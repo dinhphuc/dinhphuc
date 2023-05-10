@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Live as if you were to die tomorrow. Learn as if you were to live forever.**
+**Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence.**
 
-Mahatma Gandhi
+Helen Keller
