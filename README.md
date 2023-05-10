@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**To handle yourself, use your head; to handle others, use your heart.**
+**When you love what you have, you have everything you need.**
 
-Eleanor Roosevelt
+Anonymous
