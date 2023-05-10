@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Feel the force!**
+**Happiness is only real when shared.**
 
-Yoda
+Jon Krakauer
