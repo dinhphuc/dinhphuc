@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't fear moving slowly forward...fear standing still.**
+**I would rather die of passion than of boredom.**
 
-Kathleen Harris
+Vincent van Gogh
