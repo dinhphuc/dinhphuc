@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe in yourself, take on your challenges, dig deep within yourself to conquer fears. Never let anyone bring you down. You got to keep going.**
+**Being entirely honest with oneself is a good exercise.**
 
-Chantal Sutherland
+Sigmund Freud
