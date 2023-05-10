@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to find happiness, find gratitude.**
+**Believe in yourself, take on your challenges, dig deep within yourself to conquer fears. Never let anyone bring you down. You got to keep going.**
 
-Steve Maraboli
+Chantal Sutherland
