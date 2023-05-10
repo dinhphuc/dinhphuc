@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do all things with love.**
+**Keep smiling. It makes people wonder what you are up to.**
 
-Og Mandino
+Anonymous
