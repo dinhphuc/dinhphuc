@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence.**
+**Sometimes you face difficulties not because you're doing something wrong but because you're doing something right.**
 
-Helen Keller
+Anonymous
