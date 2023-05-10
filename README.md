@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Certain things catch your eye, but pursue only those that capture the heart.**
+**You don't find will power, you create it.**
 
-Ancient Indian Proverb
+Anonymous
