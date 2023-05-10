@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you love what you have, you have everything you need.**
+**Don't count the days, make the days count.**
 
-Anonymous
+Muhammad Ali
