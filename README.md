@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is either a daring adventure or nothing at all.**
+**Action is the foundational key to all success.**
 
-Helen Keller
+Pablo Picasso
