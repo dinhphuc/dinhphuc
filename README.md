@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Being entirely honest with oneself is a good exercise.**
+**A truly rich man is one whose children run into his arms when his hands are empty.**
 
-Sigmund Freud
+Unknown
