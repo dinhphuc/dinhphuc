@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You have a choice. You can throw in the towel, or you can use it to wipe the sweat off of your face.**
+**Work hard and be nice to people.**
 
-Gatorade
+Anonymous
