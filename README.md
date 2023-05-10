@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**100% commitment is easier than 98% commitment.**
+**Winning doesn't always mean being first. Winning means you're doing better than you've done before.**
 
-Harvard Business School
+Bonnie Blair
