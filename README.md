@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Only in the darkness can you see the stars.**
+**Love who you are, embrace who you are. Love yourself.**
 
-Martin Luther King, Jr.
+Lilly Singh
