@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You may never know what results come of your actions, but if you do nothing, there will be no results.**
+**When you find an idea that you just can't stop thinking about, that's probably a good one to pursue.**
 
-Mahatma Gandhi
+Josh James
