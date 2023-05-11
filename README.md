@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Every morning you have a new opportunity to become a happier version of yourself.**
+**The marathon can humble you.**
 
-Anonymous
+Bill Rodgers
