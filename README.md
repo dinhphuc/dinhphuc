@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Learn to value yourself, which means: fight for your happiness.**
+**If you don't like something, change it. If you can't change it, change your attitude.**
 
-Ayn Rand
+Maya Angelou
