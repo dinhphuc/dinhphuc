@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I was angry that I had no shoes. Then I met a man who had no feet.**
+**When someone told me I lived in a fantasy land, I nearly fell off my unicorn.**
 
-Chinese Proverb
+Anonymous
