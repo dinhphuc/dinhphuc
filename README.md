@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Count your age by friends, not years. Count your life by smiles, not tears.**
+**Every morning you have a new opportunity to become a happier version of yourself.**
 
-John Lennon
+Anonymous
