@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When someone told me I lived in a fantasy land, I nearly fell off my unicorn.**
+**The difference between stumbling blocks and stepping stones is how you use them.**
 
 Anonymous
