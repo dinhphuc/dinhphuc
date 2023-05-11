@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Pain has taught me to appreciate the things that don't hurt.**
+**It's going to be hard. But hard is not impossible.**
 
-Melissa Tripp
+Anonymous
