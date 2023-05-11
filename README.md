@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Opportunities to find deeper powers within ourselves come when life seems most challenging.**
+**It's not about perfect. It's about effort.**
 
-Joseph Campbell
+Jillian Michaels
