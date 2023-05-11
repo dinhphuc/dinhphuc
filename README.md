@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The marathon can humble you.**
+**Only in the darkness can you see the stars.**
 
-Bill Rodgers
+Martin Luther King, Jr.
