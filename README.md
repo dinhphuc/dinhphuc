@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A champion is someone who gets up when they can't.**
+**You may never know what results come of your actions, but if you do nothing, there will be no results.**
 
-Jack Dempsey
+Mahatma Gandhi
