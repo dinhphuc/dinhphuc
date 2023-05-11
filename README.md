@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do what makes you happy.**
+**Count your age by friends, not years. Count your life by smiles, not tears.**
 
-Rachel Ann Nunes
+John Lennon
