@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody who ever gave their best regretted it.**
+**I alone cannot change the world, but I can cast a stone across the water to create many ripples.**
 
-George Halas
+Mother Teresa
