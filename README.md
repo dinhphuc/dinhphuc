@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A leader is one who knows the way, goes the way, and shows the way.**
+**Nobody who ever gave their best regretted it.**
 
-John C. Maxwell
+George Halas
