@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Love who you are, embrace who you are. Love yourself.**
+**Happiness is the secret to all beauty. There is no beauty without happiness.**
 
-Lilly Singh
+Christian Dior
