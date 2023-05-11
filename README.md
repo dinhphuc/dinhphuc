@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There are two ways of spreading light: to be the candle, or the mirror that reflects it.**
+**I think that the good and the great are only separated by the willingness to sacrifice.**
 
-Edith Wharton
+Kareem Abdul-Jabbar
