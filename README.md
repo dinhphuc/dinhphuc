@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Attitude is a choice. Happiness is a choice. Optimism is a choice. Kindness is a choice. Giving is a choice. Respect is a choice. Whatever choice you make makes you. Choose wisely.**
+**Opportunities to find deeper powers within ourselves come when life seems most challenging.**
 
-Roy T. Bennett
+Joseph Campbell
