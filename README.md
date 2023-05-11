@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you are, be a good one.**
+**Pain has taught me to appreciate the things that don't hurt.**
 
-Abraham Lincoln
+Melissa Tripp
