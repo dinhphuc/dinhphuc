@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I am in charge of how I feel and today I am choosing happiness.**
+**How you do anything is how you do everything.**
 
-Anonymous
+T. Harv Eker
