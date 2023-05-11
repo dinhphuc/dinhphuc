@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is the secret to all beauty. There is no beauty without happiness.**
+**Attitude is a choice. Happiness is a choice. Optimism is a choice. Kindness is a choice. Giving is a choice. Respect is a choice. Whatever choice you make makes you. Choose wisely.**
 
-Christian Dior
+Roy T. Bennett
