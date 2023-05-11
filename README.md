@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be strong enough to let go and patient enough to wait for what you deserve.**
+**Smile, it is the key that fits the lock of everybody's heart.**
 
-Anonymous
+Anthony J D'Angelo
