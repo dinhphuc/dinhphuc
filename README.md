@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Float like a butterfly, sting like a bee. The hands can't hit what the eyes can't see.**
+**I am in charge of how I feel and today I am choosing happiness.**
 
-Muhammad Ali
+Anonymous
