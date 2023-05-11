@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**How you do anything is how you do everything.**
+**Whatever you are, be a good one.**
 
-T. Harv Eker
+Abraham Lincoln
