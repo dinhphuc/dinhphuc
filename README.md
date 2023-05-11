@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between stumbling blocks and stepping stones is how you use them.**
+**A leader is one who knows the way, goes the way, and shows the way.**
 
-Anonymous
+John C. Maxwell
