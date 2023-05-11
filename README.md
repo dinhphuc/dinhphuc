@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Give up on being perfect and start working on becoming yourself.**
+**There are two ways of spreading light: to be the candle, or the mirror that reflects it.**
 
-Anna Quindlen
+Edith Wharton
