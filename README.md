@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not about perfect. It's about effort.**
+**There may be people that have more talent than you, but theres no excuse for anyone to work harder than you.**
 
-Jillian Michaels
+Derek Jeter
