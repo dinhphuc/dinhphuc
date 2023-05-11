@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Sometimes you face difficulties not because you're doing something wrong but because you're doing something right.**
+**Float like a butterfly, sting like a bee. The hands can't hit what the eyes can't see.**
 
-Anonymous
+Muhammad Ali
