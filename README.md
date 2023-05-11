@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't like something, change it. If you can't change it, change your attitude.**
+**Whenever you see a successful person, you only see the public glories, never the private sacrifices to reach them.**
 
-Maya Angelou
+Vaibhav Shah
