@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**One conquers the world by conquering himself.**
+**Give up on being perfect and start working on becoming yourself.**
 
-Zeno of Citium
+Anna Quindlen
