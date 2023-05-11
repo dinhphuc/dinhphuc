@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's going to be hard. But hard is not impossible.**
+**One conquers the world by conquering himself.**
 
-Anonymous
+Zeno of Citium
