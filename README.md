@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whenever you see a successful person, you only see the public glories, never the private sacrifices to reach them.**
+**I was angry that I had no shoes. Then I met a man who had no feet.**
 
-Vaibhav Shah
+Chinese Proverb
