@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**An attitude of positive expectation is the mark of the superior personality.**
+**As we express our gratitude, we must never forget that the highest appreciation is not to utter words, but to live by them.**
 
-Brian Tracy
+John F. Kennedy
