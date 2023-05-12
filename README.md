@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The pessimist sees difficulty in every opportunity. The optimist sees opportunity in every difficulty.**
+**Courage is the birthplace of confidence.**
 
-Winston Churchill
+Debbie Millman
