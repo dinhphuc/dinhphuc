@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't downgrade your dream just to fit your reality. Upgrade your conviction to match your destiny.**
+**Live life to the fullest and focus on the positive.**
 
-John Assaraf
+Matt Cameron
