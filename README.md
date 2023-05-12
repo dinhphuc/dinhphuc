@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**How you do anything is how you do everything.**
+**The pessimist sees difficulty in every opportunity. The optimist sees opportunity in every difficulty.**
 
-T. Harv Eker
+Winston Churchill
