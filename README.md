@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Everywhere you go, take a smile with you.**
+**Don't give up on yourself. You're worth it.**
 
-Sasha Azevedo
+Anonymous
