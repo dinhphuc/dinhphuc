@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be you. Do you. For you.**
+**It's not about perfect. It's about effort.**
 
-Anonymous
+Jillian Michaels
