@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A winner never stops trying.**
+**The best preparation for tomorrow is doing your best today.**
 
-Tom Landry
+H. Jackson Brown, Jr
