@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between ordinary and extraordinary is that little extra.**
+**Be you. Do you. For you.**
 
-Jimmy Johnson
+Anonymous
