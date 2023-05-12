@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You will find only what you bring in.**
+**Life is a magical ride. Enjoy every moment.**
 
-Yoda
+Anonymous
