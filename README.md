@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not about perfect. It's about effort.**
+**Don't downgrade your dream just to fit your reality. Upgrade your conviction to match your destiny.**
 
-Jillian Michaels
+John Assaraf
