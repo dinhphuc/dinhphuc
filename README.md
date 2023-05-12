@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Live life to the fullest and focus on the positive.**
+**How you do anything is how you do everything.**
 
-Matt Cameron
+T. Harv Eker
