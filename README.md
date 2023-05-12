@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Love who you are, embrace who you are. Love yourself.**
+**Remember that not getting what you want is sometimes a wonderful stroke of luck.**
 
-Lilly Singh
+Dalai Lama
