@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You walk through life much easier with a smile on your face.**
+**Love who you are, embrace who you are. Love yourself.**
 
-Sweet Paul
+Lilly Singh
