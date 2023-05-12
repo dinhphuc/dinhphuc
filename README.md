@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The best preparation for tomorrow is doing your best today.**
+**Once we accept our limits, we go beyond them.**
 
-H. Jackson Brown, Jr
+Albert Einstein
