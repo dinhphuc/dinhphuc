@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**As we express our gratitude, we must never forget that the highest appreciation is not to utter words, but to live by them.**
+**Use your smile to change the world; don't let the world change your smile.**
 
-John F. Kennedy
+Chinese proverb
