@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Go after the things you want.**
+**Tough times don't last. Tough people do.**
 
-Simon Sinek
+Robert H. Schuller
