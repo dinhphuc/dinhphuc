@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We become what we think about.**
+**I can and I will. Watch me.**
 
-Earl Nightingale
+Carrie Green
