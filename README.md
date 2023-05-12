@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Courage is the birthplace of confidence.**
+**Success is the ability to go from one failure to another with no loss of enthusiasm.**
 
-Debbie Millman
+Winston Churchill
