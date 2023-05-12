@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence comes not from always being right but from not fearing to be wrong.**
+**Great minds discuss ideas; average minds discuss events; small minds discuss people.**
 
-Peter T. Mcintyre
+Eleanor Roosevelt
