@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is the ability to go from one failure to another with no loss of enthusiasm.**
+**The very best thing you can do for the whole world is to make the best of yourself.**
 
-Winston Churchill
+Anonymous
