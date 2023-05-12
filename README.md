@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Rise up. Start fresh. See the bright opportunity in each new day.**
+**In order to carry a positive action we must develop here a positive vision.**
 
-Anonymous
+Dalai Lama
