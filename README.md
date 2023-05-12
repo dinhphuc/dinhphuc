@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The supreme art of war is to subdue the enemy without fighting.**
+**Confidence comes not from always being right but from not fearing to be wrong.**
 
-Sun Tzu
+Peter T. Mcintyre
