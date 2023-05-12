@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Smile, it is the key that fits the lock of everybody's heart.**
+**The supreme art of war is to subdue the enemy without fighting.**
 
-Anthony J D'Angelo
+Sun Tzu
