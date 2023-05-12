@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Great minds discuss ideas; average minds discuss events; small minds discuss people.**
+**Nothing is more beautiful than the smile that has struggled through the tears.**
 
-Eleanor Roosevelt
+Demi Lovato
