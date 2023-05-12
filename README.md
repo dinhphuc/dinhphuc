@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You will find only what you bring in.**
+**The difference between ordinary and extraordinary is that little extra.**
 
-Yoda
+Jimmy Johnson
