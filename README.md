@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't give up on yourself. You're worth it.**
+**Rise up. Start fresh. See the bright opportunity in each new day.**
 
 Anonymous
