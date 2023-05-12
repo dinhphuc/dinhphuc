@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Once we accept our limits, we go beyond them.**
+**You walk through life much easier with a smile on your face.**
 
-Albert Einstein
+Sweet Paul
