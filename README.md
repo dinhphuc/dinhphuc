@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing is more beautiful than the smile that has struggled through the tears.**
+**Everywhere you go, take a smile with you.**
 
-Demi Lovato
+Sasha Azevedo
