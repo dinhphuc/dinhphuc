@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I can and I will. Watch me.**
+**You will find only what you bring in.**
 
-Carrie Green
+Yoda
