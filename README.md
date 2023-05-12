@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**In order to carry a positive action we must develop here a positive vision.**
+**An attitude of positive expectation is the mark of the superior personality.**
 
-Dalai Lama
+Brian Tracy
