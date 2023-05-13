@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Decide what matters most to you and do it.**
+**Once we accept our limits, we go beyond them.**
 
-Anonymous
+Albert Einstein
