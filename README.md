@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be crazy. Be stupid. Be silly. Be weird. Be whatever. Because life is too short to be anything but happy.**
+**In a dark place we find ourselves, and a little more knowledge lights our way.**
 
-Anonymous
+Yoda
