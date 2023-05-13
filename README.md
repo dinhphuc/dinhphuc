@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Successful people are not gifted; they just work hard, then succeed on purpose.**
+**Wanting to be someone else is a waste of the person you are.**
 
-G.K. Nielson
+Marilyn Monroe
