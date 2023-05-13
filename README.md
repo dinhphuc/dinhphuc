@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**'Thank you' is the best prayer that anyone could say.**
+**There may be people that have more talent than you, but theres no excuse for anyone to work harder than you.**
 
-Alice Walker
+Derek Jeter
