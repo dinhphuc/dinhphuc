@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't let the silly little things steal your happiness.**
+**You may be disappointed if you fail, but you are doomed if you don't try.**
 
-Anonymous
+Beverly Sills
