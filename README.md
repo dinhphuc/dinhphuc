@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We can't be brave without fear.**
+**There is nothing permanent except change.**
 
-Muhammad Ali
+Heraclitus
