@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There is nothing permanent except change.**
+**It's not who you are that holds you back, it's who you think you're not.**
 
-Heraclitus
+Anonymous
