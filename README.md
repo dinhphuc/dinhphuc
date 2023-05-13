@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm alone, but I'm not lonely. I like who I am. I like who I'm becoming.**
+**The will to win means nothing without the will to prepare.**
 
-Deena Kastor
+Juma Ikangaa
