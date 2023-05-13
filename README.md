@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The very best thing you can do for the whole world is to make the best of yourself.**
+**'Thank you' is the best prayer that anyone could say.**
 
-Anonymous
+Alice Walker
