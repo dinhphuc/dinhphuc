@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Setting goals is the first step into turning the invisible into the visible.**
+**Many of life's failures are people who did not realize how close they were to success when they gave up.**
 
-Tony Robbins
+Thomas A. Edison
