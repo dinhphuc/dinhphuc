@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**In a dark place we find ourselves, and a little more knowledge lights our way.**
+**Setting goals is the first step into turning the invisible into the visible.**
 
-Yoda
+Tony Robbins
