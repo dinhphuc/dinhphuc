@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you look at what you have in life, you'll always have more. If you look at what you don't have in life, you'll never have enough.**
+**We should never change our minds about where we are going, but always be curious about different ways to get there.**
 
-Oprah Winfrey
+Simon Sinek
