@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Wanting to be someone else is a waste of the person you are.**
+**Hardships often prepare ordinary people for an extraordinary destiny.**
 
-Marilyn Monroe
+C.S. Lewis
