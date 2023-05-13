@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I will not follow where the path may lead, but I will go where there is no path, and I will leave a trail.**
+**Work on being in love with the person in the mirror who has been through so much but is still standing.**
 
-Muriel Strode
+Anonymous
