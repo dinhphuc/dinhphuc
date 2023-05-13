@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Hardships often prepare ordinary people for an extraordinary destiny.**
+**Your problem isn't the problem, it's your attitude about the problem.**
 
-C.S. Lewis
+Ann Brashares
