@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Many of life's failures are people who did not realize how close they were to success when they gave up.**
+**I never dreamed about success. I worked for it.**
 
-Thomas A. Edison
+Estee Lauder
