@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You may be disappointed if you fail, but you are doomed if you don't try.**
+**You must do the thing you think you cannot do.**
 
-Beverly Sills
+Eleanor Roosevelt
