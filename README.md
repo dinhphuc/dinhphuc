@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I am an ordinary man who worked hard to develop the talent I was given. I believed in myself, and I believe in the goodness of others.**
+**Many of life's failures are people who did not realize how close they were to success when they gave up.**
 
-Muhammad Ali
+Thomas A. Edison
