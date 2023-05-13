@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You must do the thing you think you cannot do.**
+**Be crazy. Be stupid. Be silly. Be weird. Be whatever. Because life is too short to be anything but happy.**
 
-Eleanor Roosevelt
+Anonymous
