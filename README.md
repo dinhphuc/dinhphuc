@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The happiness of your life depends upon the quality of your thoughts.**
+**A warm smile is the universal language of kindness.**
 
-Marcus Aurelius
+William Arthur Ward
