@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Once we accept our limits, we go beyond them.**
+**Learn to value yourself, which means: fight for your happiness.**
 
-Albert Einstein
+Ayn Rand
