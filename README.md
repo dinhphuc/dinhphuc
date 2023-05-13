@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The will to win means nothing without the will to prepare.**
+**We can't be brave without fear.**
 
-Juma Ikangaa
+Muhammad Ali
