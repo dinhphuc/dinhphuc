@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It takes but one positive thought when given a chance to survive and thrive to overpower an entire army of negative thoughts.**
+**Pain is temporary. Quitting lasts forever.**
 
-Robert H. Schuller
+Lance Armstrong
