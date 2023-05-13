@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Pain is temporary. Quitting lasts forever.**
+**Decide what matters most to you and do it.**
 
-Lance Armstrong
+Anonymous
