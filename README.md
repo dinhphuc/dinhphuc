@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The very best thing you can do for the whole world is to make the best of yourself.**
+**I'm alone, but I'm not lonely. I like who I am. I like who I'm becoming.**
 
-Anonymous
+Deena Kastor
