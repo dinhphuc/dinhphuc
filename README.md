@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Work on being in love with the person in the mirror who has been through so much but is still standing.**
+**It takes but one positive thought when given a chance to survive and thrive to overpower an entire army of negative thoughts.**
 
-Anonymous
+Robert H. Schuller
