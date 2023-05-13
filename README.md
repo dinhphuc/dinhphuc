@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There is nothing on this earth more to be prized than true friendship.**
+**Successful people are not gifted; they just work hard, then succeed on purpose.**
 
-Thomas Aquinas
+G.K. Nielson
