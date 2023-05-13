@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Learn from the past, set vivid, detailed goals for the future, and live in the only moment of time over which you have any control: now.**
+**Relationships are based on four principles: respect, understanding, acceptance and appreciation.**
 
-Denis Waitley
+Mahatma Gandhi
