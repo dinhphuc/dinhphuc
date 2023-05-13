@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter who you are, no matter what you did, no matter where you've come from, you can always change, and become a better version of yourself.**
+**The very best thing you can do for the whole world is to make the best of yourself.**
 
-Madonna
+Anonymous
