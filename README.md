@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I never dreamed about success. I worked for it.**
+**Don't let the silly little things steal your happiness.**
 
-Estee Lauder
+Anonymous
