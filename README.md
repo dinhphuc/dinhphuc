@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We should never change our minds about where we are going, but always be curious about different ways to get there.**
+**Learn from the past, set vivid, detailed goals for the future, and live in the only moment of time over which you have any control: now.**
 
-Simon Sinek
+Denis Waitley
