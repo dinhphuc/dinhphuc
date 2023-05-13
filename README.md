@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There may be people that have more talent than you, but theres no excuse for anyone to work harder than you.**
+**The happiness of your life depends upon the quality of your thoughts.**
 
-Derek Jeter
+Marcus Aurelius
