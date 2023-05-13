@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Why worry? If you've done the very best you can, worrying won't make it any better.**
+**The positive thinker sees the invisible, feels the intangible, and achieves the impossible.**
 
-Walt Disney
+Winston Churchill
