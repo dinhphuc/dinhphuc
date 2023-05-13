@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Many of life's failures are people who did not realize how close they were to success when they gave up.**
+**Why worry? If you've done the very best you can, worrying won't make it any better.**
 
-Thomas A. Edison
+Walt Disney
