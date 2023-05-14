@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Good judgment comes from experience, and a lot of that comes from bad judgment.**
+**Try to be a rainbow in someone's cloud.**
 
-Will Rogers
+Maya Angelou
