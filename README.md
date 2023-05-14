@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**As I look back on my life, I realize that every time I thought I was being rejected from something good, I was actually being re-directed to something better.**
+**The more you praise and celebrate your life, the more there is in life to celebrate.**
 
-Anonymous
+Oprah Winfrey
