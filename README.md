@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Because of your smile, you make life more beautiful.**
+**The reason we race isn't so much to beat each other,... but to be with each other.**
 
-Thich Nhat Hanh
+Christopher McDougall
