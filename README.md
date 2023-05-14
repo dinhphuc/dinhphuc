@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest teacher, failure is.**
+**Learn from the past, set vivid, detailed goals for the future, and live in the only moment of time over which you have any control: now.**
 
-Yoda
+Denis Waitley
