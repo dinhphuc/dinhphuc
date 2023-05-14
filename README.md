@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I failed my way to success.**
+**Life is too short to spend it at war with yourself.**
 
-Thomas Edison
+Anonymous
