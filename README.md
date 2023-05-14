@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I don't care how long it takes me, but I'm going somewhere beautiful.**
+**Don't cry because it's over, smile because it happened.**
 
-Anonymous
+Dr. Seuss
