@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is not out there, it's in you.**
+**Only those who dare to fail greatly can ever achieve greatly.**
 
-Anonymous
+Robert F. Kennedy
