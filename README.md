@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Learning never exhausts the mind.**
+**Before you score, you first must have a goal.**
 
-Leonardo da Vinci
+Greek Proverb
