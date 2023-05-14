@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's hard to beat a person who never gives up.**
+**The greatest teacher, failure is.**
 
-Anonymous
+Yoda
