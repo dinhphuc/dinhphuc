@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Courage doesn't always roar, sometimes it's the quiet voice at the end of the day whispering 'I will try again tomorrow'.**
+**Good judgment comes from experience, and a lot of that comes from bad judgment.**
 
-Mary Anne Radmacher
+Will Rogers
