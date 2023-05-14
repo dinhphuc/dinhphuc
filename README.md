@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't cry because it's over, smile because it happened.**
+**Everytime you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**
 
-Dr. Seuss
+Mother Teresa
