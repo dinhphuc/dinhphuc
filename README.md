@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever happens, just keep smiling and lose yourself in love.**
+**Winners make a habit of manufacturing their own positive expectations in advance of the event.**
 
-Rumi
+Brian Tracy
