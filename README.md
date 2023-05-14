@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Being happy is the greatest form of success.**
+**Our greatest glory is not in never falling, but in rising every time we fall.**
 
-Anonymous
+Confucius
