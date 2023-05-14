@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your problem isn't the problem, it's your attitude about the problem.**
+**Do not dwell in the past, do not dream of the future, concentrate the mind on the present moment.**
 
-Ann Brashares
+Buddha
