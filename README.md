@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The biggest adventure you can take is to live the life of your dreams.**
+**I don't care how long it takes me, but I'm going somewhere beautiful.**
 
-Oprah Winfrey
+Anonymous
