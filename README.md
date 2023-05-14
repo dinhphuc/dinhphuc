@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The good life is a process, not a state of being. It is a direction, not a destination.**
+**There is nothing on this earth more to be prized than true friendship.**
 
-Carl Rogers
+Thomas Aquinas
