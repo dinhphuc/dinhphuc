@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't count the days, make the days count.**
+**Because of your smile, you make life more beautiful.**
 
-Muhammad Ali
+Thich Nhat Hanh
