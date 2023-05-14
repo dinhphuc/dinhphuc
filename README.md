@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Before you score, you first must have a goal.**
+**Pessimism leads to weakness, optimism to power.**
 
-Greek Proverb
+William James
