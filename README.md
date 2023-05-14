@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't cry because it's over, smile because it happened.**
+**Life without love is like a tree without blossoms or fruit.**
 
-Dr. Seuss
+Khalil Gibran
