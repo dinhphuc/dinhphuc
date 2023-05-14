@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The reason we race isn't so much to beat each other,... but to be with each other.**
+**The good life is a process, not a state of being. It is a direction, not a destination.**
 
-Christopher McDougall
+Carl Rogers
