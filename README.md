@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The more you praise and celebrate your life, the more there is in life to celebrate.**
+**It's not bragging if you can back it up.**
 
-Oprah Winfrey
+Muhammed Ali
