@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not bragging if you can back it up.**
+**Set a goal that makes you want to jump out of bed in the morning.**
 
-Muhammed Ali
+Anonymous
