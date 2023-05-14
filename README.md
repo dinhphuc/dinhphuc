@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Everytime you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**
+**If you don't fall, how are you going to know what getting up feels like?**
 
-Mother Teresa
+Stephen Curry
