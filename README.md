@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you hold in your mind on a consistent basis is exactly what you will experience in your life.**
+**Don't count the days, make the days count.**
 
-Tony Robbins
+Muhammad Ali
