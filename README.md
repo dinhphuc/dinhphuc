@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Try to be a rainbow in someone's cloud.**
+**Happiness is not out there, it's in you.**
 
-Maya Angelou
+Anonymous
