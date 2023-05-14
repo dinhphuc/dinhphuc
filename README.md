@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Set a goal that makes you want to jump out of bed in the morning.**
+**Whatever you hold in your mind on a consistent basis is exactly what you will experience in your life.**
 
-Anonymous
+Tony Robbins
