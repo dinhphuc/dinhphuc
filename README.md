@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is too short to spend it at war with yourself.**
+**'Thank you' is the best prayer that anyone could say.**
 
-Anonymous
+Alice Walker
