@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**'Thank you' is the best prayer that anyone could say.**
+**Limitations live only in our minds. But if we use our imaginations, our possibilities become limitless.**
 
-Alice Walker
+Jamie Paolinetti
