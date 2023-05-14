@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Limitations live only in our minds. But if we use our imaginations, our possibilities become limitless.**
+**It's hard to beat a person who never gives up.**
 
-Jamie Paolinetti
+Anonymous
