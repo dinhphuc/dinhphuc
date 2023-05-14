@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Pessimism leads to weakness, optimism to power.**
+**Being happy is the greatest form of success.**
 
-William James
+Anonymous
