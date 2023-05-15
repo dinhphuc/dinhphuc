@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The real opportunity for success lies within the person and not in the job.**
+**You don't manifest dreams without taking chances.**
 
-Zig Ziglar
+Stephen Richards
