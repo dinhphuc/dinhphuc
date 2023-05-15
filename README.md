@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Only those who dare to fail greatly can ever achieve greatly.**
+**Being deeply loved by someone gives you strength, while loving someone deeply gives you courage.**
 
-Robert F. Kennedy
+Lao-Tzu
