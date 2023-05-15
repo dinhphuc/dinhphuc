@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you are enthusiastic about what you do, you feel this positive energy. It's very simple.**
+**Challenges are what make life interesting and overcoming them is what makes life meaningful.**
 
-Paulo Coelho
+Joshua Marine
