@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Victory is always possible for the person who refuses to stop fighting.**
+**If you're presenting yourself with confidence, you can pull off pretty much anything.**
 
-Napoleon Hill
+Katy Perry
