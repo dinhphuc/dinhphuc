@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Challenges are what make life interesting and overcoming them is what makes life meaningful.**
+**If you set your goals ridiculously high and it's a failure, you will fail above everyone else's success.**
 
-Joshua Marine
+James Cameron
