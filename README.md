@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The man who views the world at 50 the same as he did at 20 has wasted 30 years of his life.**
+**A good life is doing what you love as much as you can and doing what you must as much as you should.**
 
-Muhammad Ali
+Savania China
