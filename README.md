@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you set your goals ridiculously high and it's a failure, you will fail above everyone else's success.**
+**Simple to open a shop; another thing to keep it open.**
 
-James Cameron
+Chinese Proverb
