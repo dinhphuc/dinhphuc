@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Being deeply loved by someone gives you strength, while loving someone deeply gives you courage.**
+**Champions play to win. Failure is just feedback. There's everything to gain by trying your best.**
 
-Lao-Tzu
+Jim Afremow
