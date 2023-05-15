@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It matters not what someone is born, but what they grow to be.**
+**Happiness is letting go of what you think your life is supposed to look like and enjoying it for everything that it is.**
 
-Master Oogway
+Mandy Hale
