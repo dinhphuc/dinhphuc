@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The more positive thoughts you have, the better you feel, which causes you to have more positive thoughts, then you feel even better.**
+**Confidence comes not from always being right but from not fearing to be wrong.**
 
-James Borg
+Peter T. Mcintyre
