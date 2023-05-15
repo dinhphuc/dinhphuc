@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're presenting yourself with confidence, you can pull off pretty much anything.**
+**The man who views the world at 50 the same as he did at 20 has wasted 30 years of his life.**
 
-Katy Perry
+Muhammad Ali
