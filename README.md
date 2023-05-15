@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't manifest dreams without taking chances.**
+**Do all things with love.**
 
-Stephen Richards
+Og Mandino
