@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is either a daring adventure or nothing at all.**
+**Wherever you go, go with all your heart.**
 
-Helen Keller
+Confucius
