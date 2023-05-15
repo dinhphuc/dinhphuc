@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not in the stars to hold our destiny but in ourselves.**
+**In matters of style, swim with the current; in matters of principle, stand like a rock.**
 
-William Shakespeare
+Thomas Jefferson
