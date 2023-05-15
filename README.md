@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**In matters of style, swim with the current; in matters of principle, stand like a rock.**
+**Push yourself because no one else is going to do it for you.**
 
-Thomas Jefferson
+Anonymous
