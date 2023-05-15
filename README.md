@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Champions play to win. Failure is just feedback. There's everything to gain by trying your best.**
+**The real opportunity for success lies within the person and not in the job.**
 
-Jim Afremow
+Zig Ziglar
