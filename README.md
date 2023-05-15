@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**He who always thinks it is too soon is sure to come too late.**
+**It matters not what someone is born, but what they grow to be.**
 
-German Proverb
+Master Oogway
