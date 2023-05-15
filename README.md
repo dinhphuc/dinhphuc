@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Simple to open a shop; another thing to keep it open.**
+**Hustle until your haters ask if you are hiring.**
 
-Chinese Proverb
+Anonymous
