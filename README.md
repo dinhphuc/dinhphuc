@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't sacrifice for what you want, what you wants becomes the sacrifice.**
+**Always be yourself and have faith in yourself. Do not go out and look for a successful personality and try to duplicate it.**
 
-Anonymous
+Bruce Lee
