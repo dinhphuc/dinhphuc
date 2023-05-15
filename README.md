@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Hustle until your haters ask if you are hiring.**
+**Victory is always possible for the person who refuses to stop fighting.**
 
-Anonymous
+Napoleon Hill
