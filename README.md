@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Push yourself because no one else is going to do it for you.**
+**I have found that if you love life, life will love you back.**
 
-Anonymous
+Arthur Rubinstein
