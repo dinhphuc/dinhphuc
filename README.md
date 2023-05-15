@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do all things with love.**
+**He who always thinks it is too soon is sure to come too late.**
 
-Og Mandino
+German Proverb
