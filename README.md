@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Beauty lies in the eye of the beholder.**
+**If you don't sacrifice for what you want, what you wants becomes the sacrifice.**
 
-English Proverb
+Anonymous
