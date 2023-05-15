@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever the mind can conceive and believe, it can achieve.**
+**You are a masterpiece.**
 
-Napoleon Hill
+Anonymous
