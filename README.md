@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not how much we have, but how much we enjoy, that makes happiness.**
+**When you are enthusiastic about what you do, you feel this positive energy. It's very simple.**
 
-Charles Spurgeon
+Paulo Coelho
