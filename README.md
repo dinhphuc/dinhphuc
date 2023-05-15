@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I have found that if you love life, life will love you back.**
+**Beauty lies in the eye of the beholder.**
 
-Arthur Rubinstein
+English Proverb
