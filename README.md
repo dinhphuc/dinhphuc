@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Always be yourself and have faith in yourself. Do not go out and look for a successful personality and try to duplicate it.**
+**It is not how much we have, but how much we enjoy, that makes happiness.**
 
-Bruce Lee
+Charles Spurgeon
