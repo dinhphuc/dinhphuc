@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence comes not from always being right but from not fearing to be wrong.**
+**It is not in the stars to hold our destiny but in ourselves.**
 
-Peter T. Mcintyre
+William Shakespeare
