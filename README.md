@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Find a place inside where there's joy, and the joy will burn out the pain.**
+**Once I realized the problem was not you but within me. I found inner peace and was able to harness the flow of the universe.**
 
-Joseph Campbell
+Master Shifu
