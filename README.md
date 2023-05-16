@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When a new day begins, dare to smile gratefully.**
+**Believe in yourself and you can be anything.**
 
-Steve Maraboli
+Katy Perry
