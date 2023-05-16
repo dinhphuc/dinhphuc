@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Running is therapy anyone can afford.**
+**Whether you think you can or can't, you're right.**
 
-Toni Sorenson
+Henry Ford
