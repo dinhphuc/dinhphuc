@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.**
+**You don't gain anything from stressing. Remember that.**
 
-Henry Ford
+Anonymous
