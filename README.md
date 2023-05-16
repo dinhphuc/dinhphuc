@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You have to fight through some bad days to earn the best days of your life.**
+**It ain't as bad as you think. It will look better in the morning.**
 
-Anonymous
+Colin Powell
