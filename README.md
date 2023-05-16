@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe in yourself and you can be anything.**
+**Spread love everywhere you go. Let no one ever come to you without leaving happier.**
 
-Katy Perry
+Mother Teresa
