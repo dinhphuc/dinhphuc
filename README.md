@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no charm equal to tenderness of heart.**
+**I attribute my success to this: I never gave or took any excuse.**
 
-Jane Austen
+Florence Nightingale
