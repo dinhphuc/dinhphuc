@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I alone cannot change the world, but I can cast a stone across the water to create many ripples.**
+**When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.**
 
-Mother Teresa
+Henry Ford
