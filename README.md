@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Spread love everywhere you go. Let no one ever come to you without leaving happier.**
+**It is not human nature to enjoy what we get with no effort.**
 
-Mother Teresa
+Sri Chinmoy
