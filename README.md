@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not human nature to enjoy what we get with no effort.**
+**The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.**
 
-Sri Chinmoy
+William Arthur Ward
