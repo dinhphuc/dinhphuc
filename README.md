@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Passion first and everything will fall into place.**
+**There is no charm equal to tenderness of heart.**
 
-Holly Holm
+Jane Austen
