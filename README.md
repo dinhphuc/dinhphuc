@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It ain't as bad as you think. It will look better in the morning.**
+**Running is therapy anyone can afford.**
 
-Colin Powell
+Toni Sorenson
