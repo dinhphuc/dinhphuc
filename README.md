@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Hardships often prepare ordinary people for an extraordinary destiny.**
+**Change yourself and fortune will change.**
 
-C.S. Lewis
+Portuguese Proverb
