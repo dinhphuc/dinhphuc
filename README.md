@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be humble in your confidence yet courageous in your character.**
+**The man who views the world at 50 the same as he did at 20 has wasted 30 years of his life.**
 
-Melanie Koulouris
+Muhammad Ali
