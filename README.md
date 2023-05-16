@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A hero is an ordinary individual who finds the strength to persevere and endure in spite of overwhelming obstacles.**
+**Good, better, best. Never let it rest. Until your good is better and your better is best.**
 
-Christopher Reeve
+Tim Duncan
