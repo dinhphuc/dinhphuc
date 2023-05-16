@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is a journey ... not a destination.**
+**Float like a butterfly, sting like a bee. The hands can't hit what the eyes can't see.**
 
-Ben Sweetland
+Muhammad Ali
