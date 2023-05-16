@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't fall, how are you going to know what getting up feels like?**
+**No matter where you are on your journey, that's exactly where you need to be.**
 
-Stephen Curry
+Oprah Winfrey
