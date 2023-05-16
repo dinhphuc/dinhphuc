@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success usually comes to those who are too busy to be looking for it.**
+**Happiness is a journey ... not a destination.**
 
-Henry David Thoreau
+Ben Sweetland
