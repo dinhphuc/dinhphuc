@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Because of your smile, you make life more beautiful.**
+**When it rains look for rainbows.**
 
-Thich Nhat Hanh
+Oscar Wilde
