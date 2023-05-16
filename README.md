@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Good, better, best. Never let it rest. Until your good is better and your better is best.**
+**Be humble in your confidence yet courageous in your character.**
 
-Tim Duncan
+Melanie Koulouris
