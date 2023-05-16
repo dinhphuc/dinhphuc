@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Change yourself and fortune will change.**
+**Success consists of getting up just one more time than you fall.**
 
-Portuguese Proverb
+Oliver Goldsmith
