@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A new command I give you: Love one another.**
+**Attitude will always define who we are in life.**
 
-Jesus Christ
+Mark A. Brennan
