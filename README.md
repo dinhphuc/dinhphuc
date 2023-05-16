@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not in the stars to hold our destiny but in ourselves.**
+**Find a place inside where there's joy, and the joy will burn out the pain.**
 
-William Shakespeare
+Joseph Campbell
