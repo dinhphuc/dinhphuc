@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success consists of getting up just one more time than you fall.**
+**Passion first and everything will fall into place.**
 
-Oliver Goldsmith
+Holly Holm
