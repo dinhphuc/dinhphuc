@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When it rains look for rainbows.**
+**When a new day begins, dare to smile gratefully.**
 
-Oscar Wilde
+Steve Maraboli
