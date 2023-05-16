@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are a masterpiece.**
+**Hardships often prepare ordinary people for an extraordinary destiny.**
 
-Anonymous
+C.S. Lewis
