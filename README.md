@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Float like a butterfly, sting like a bee. The hands can't hit what the eyes can't see.**
+**You have to fight through some bad days to earn the best days of your life.**
 
-Muhammad Ali
+Anonymous
