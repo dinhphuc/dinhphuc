@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It takes courage to grow up and become who you really are.**
+**It is not in the stars to hold our destiny but in ourselves.**
 
-E.E. Cummings
+William Shakespeare
