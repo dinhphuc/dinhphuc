@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I attribute my success to this: I never gave or took any excuse.**
+**Because of your smile, you make life more beautiful.**
 
-Florence Nightingale
+Thich Nhat Hanh
