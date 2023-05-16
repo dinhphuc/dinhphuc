@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Attitude will always define who we are in life.**
+**It takes courage to grow up and become who you really are.**
 
-Mark A. Brennan
+E.E. Cummings
