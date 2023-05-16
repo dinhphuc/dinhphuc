@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Once I realized the problem was not you but within me. I found inner peace and was able to harness the flow of the universe.**
+**Many of the truths that we cling to depend on our point of view.**
 
-Master Shifu
+Yoda
