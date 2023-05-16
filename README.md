@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Every strike brings me closer to the next home run.**
+**Spend more of your time on what gives you energy and less of your time on what takes it away.**
 
-Babe Ruth
+Anonymous
