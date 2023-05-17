@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Relationships are based on four principles: respect, understanding, acceptance and appreciation.**
+**Be helpful. When you see a person without a smile, give them yours.**
 
-Mahatma Gandhi
+Zig Ziglar
