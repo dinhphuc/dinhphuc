@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is the ability to go from one failure to another with no loss of enthusiasm.**
+**I'm alone, but I'm not lonely. I like who I am. I like who I'm becoming.**
 
-Winston Churchill
+Deena Kastor
