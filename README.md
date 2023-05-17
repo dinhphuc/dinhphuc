@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You have a choice. You can throw in the towel, or you can use it to wipe the sweat off of your face.**
+**Spread love everywhere you go. Let no one ever come to you without leaving happier.**
 
-Gatorade
+Mother Teresa
