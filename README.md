@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't let the silly little things steal your happiness.**
+**There are two ways of spreading light: to be the candle, or the mirror that reflects it.**
 
-Anonymous
+Edith Wharton
