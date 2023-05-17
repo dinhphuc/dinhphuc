@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm alone, but I'm not lonely. I like who I am. I like who I'm becoming.**
+**If you set your goals ridiculously high and it's a failure, you will fail above everyone else's success.**
 
-Deena Kastor
+James Cameron
