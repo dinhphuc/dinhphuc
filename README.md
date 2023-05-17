@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There are two ways of spreading light: to be the candle, or the mirror that reflects it.**
+**Do not blame the world. Find a solution.**
 
-Edith Wharton
+Sri Chinmoy
