@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Spend more of your time on what gives you energy and less of your time on what takes it away.**
+**Running is therapy anyone can afford.**
 
-Anonymous
+Toni Sorenson
