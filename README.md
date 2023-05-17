@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Blessed are they who see beautiful things in humble places where other people see nothing.**
+**It is only possible to live happily ever after on a daily basis.**
 
-Camille Pissaro
+Anonymous
