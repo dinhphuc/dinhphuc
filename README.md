@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Train your mind to see the positive in any situation and keep going.**
+**Age is whatever you think it is. You are as old as you think you are.**
 
-Anonymous
+Muhammad Ali
