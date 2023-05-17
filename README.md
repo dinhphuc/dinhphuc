@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your hardest times often lead to the greatest moments of your life. Keep going. Tough situations build strong people in the end.**
+**Do not dwell in the past, do not dream of the future, concentrate the mind on the present moment.**
 
-Roy T. Bennett
+Buddha
