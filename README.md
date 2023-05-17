@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you look at what you have in life, you'll always have more. If you look at what you don't have in life, you'll never have enough.**
+**Your hardest times often lead to the greatest moments of your life. Keep going. Tough situations build strong people in the end.**
 
-Oprah Winfrey
+Roy T. Bennett
