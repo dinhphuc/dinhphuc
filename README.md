@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**This a wonderful day. I've never seen this one before.**
+**Train your mind to see the positive in any situation and keep going.**
 
-Maya Angelou
+Anonymous
