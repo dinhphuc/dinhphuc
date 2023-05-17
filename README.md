@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**One conquers the world by conquering himself.**
+**Whoever is happy will make others happy too.**
 
-Zeno of Citium
+Anonymous
