@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The starting point of all achievement is desire.**
+**Success is the ability to go from one failure to another with no loss of enthusiasm.**
 
-Napoleon Hill
+Winston Churchill
