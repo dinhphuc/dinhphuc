@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The good life is a process, not a state of being. It is a direction, not a destination.**
+**Wherever you go, go with all your heart.**
 
-Carl Rogers
+Confucius
