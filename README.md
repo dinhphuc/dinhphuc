@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You may be disappointed if you fail, but you are doomed if you don't try.**
+**Believe in yourself and you can be anything.**
 
-Beverly Sills
+Katy Perry
