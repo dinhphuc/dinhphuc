@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Age is whatever you think it is. You are as old as you think you are.**
+**There are only two mistakes one can make along the road to truth; not going all the way, and not starting.**
 
-Muhammad Ali
+Buddha
