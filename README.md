@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Wherever you go, go with all your heart.**
+**The starting point of all achievement is desire.**
 
-Confucius
+Napoleon Hill
