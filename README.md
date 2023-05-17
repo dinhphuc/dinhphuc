@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Focus on being productive instead of busy.**
+**Relationships are based on four principles: respect, understanding, acceptance and appreciation.**
 
-Tim Ferris
+Mahatma Gandhi
