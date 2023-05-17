@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**More smiling, less worrying. More compassion, less judgment. More blessed, less stressed. More love, less hate.**
+**This a wonderful day. I've never seen this one before.**
 
-Roy T. Bennett
+Maya Angelou
