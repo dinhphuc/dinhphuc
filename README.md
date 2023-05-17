@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There are only two mistakes one can make along the road to truth; not going all the way, and not starting.**
+**You may be disappointed if you fail, but you are doomed if you don't try.**
 
-Buddha
+Beverly Sills
