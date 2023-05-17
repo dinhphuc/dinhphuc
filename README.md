@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe in yourself, take on your challenges, dig deep within yourself to conquer fears. Never let anyone bring you down. You got to keep going.**
+**Blessed are they who see beautiful things in humble places where other people see nothing.**
 
-Chantal Sutherland
+Camille Pissaro
