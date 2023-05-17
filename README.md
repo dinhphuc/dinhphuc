@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**One often meets his destiny on the road he takes to avoid it.**
+**There is no cosmetic for beauty like happiness.**
 
-Master Oogway
+Maria Mitchell
