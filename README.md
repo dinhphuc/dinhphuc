@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do not blame the world. Find a solution.**
+**The good life is a process, not a state of being. It is a direction, not a destination.**
 
-Sri Chinmoy
+Carl Rogers
