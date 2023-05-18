@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We can be who we are without the pleasures but we could not be who we are not without the hardships.**
+**Don't try to be perfect. Just try to be better than you were yesterday.**
 
 Anonymous
