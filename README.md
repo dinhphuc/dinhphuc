@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing will work unless you do.**
+**Success is the sum of small efforts repeated day-in and day-out.**
 
-Maya Angelou
+Robert Collier
