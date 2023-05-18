@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe and act as if it were impossible to fail.**
+**If you really look closely, most overnight successes took a long time.**
 
-Charles Kettering
+Steve Jobs
