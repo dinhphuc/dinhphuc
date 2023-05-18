@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You matter.**
+**My attitude is if you push me towards a weakness, I will turn that weakness into a strength.**
 
-Anonymous
+Michael Jordan
