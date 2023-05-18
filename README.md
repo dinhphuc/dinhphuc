@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Always remember that you are absolutely unique. Just like everyone else.**
+**We can be who we are without the pleasures but we could not be who we are not without the hardships.**
 
-Margaret Mead
+Anonymous
