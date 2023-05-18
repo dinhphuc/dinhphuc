@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There are two ways of spreading light: to be the candle, or the mirror that reflects it.**
+**I didn't fail the test. I just found 100 ways to do it wrong.**
 
-Edith Wharton
+Benjamin Franklin
