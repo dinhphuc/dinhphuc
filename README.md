@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**All you need is love.**
+**The future belongs to those who believe in the beauty of their dreams.**
 
-The Beatles
+Franklin D. Roosevelt
