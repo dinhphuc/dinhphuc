@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Another day another blessing.**
+**You matter.**
 
 Anonymous
