@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you have exhausted all possibilities, remember this: you haven't.**
+**Nothing will work unless you do.**
 
-Thomas Edison
+Maya Angelou
