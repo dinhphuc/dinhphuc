@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I didn't fail the test. I just found 100 ways to do it wrong.**
+**Like the morning sun, you too shall rise and continue to shine.**
 
-Benjamin Franklin
+Anonymous
