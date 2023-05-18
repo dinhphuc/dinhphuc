@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Peace begins When expectation ends.**
+**Teachers open the door; you enter by yourself.**
 
-Sri Chinmoy
+Chinese Proverb
