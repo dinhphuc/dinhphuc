@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't miss out on something that could be great just because it could also be difficult.**
+**Another day another blessing.**
 
 Anonymous
