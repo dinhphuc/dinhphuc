@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Anyone who has grown mentally, physically or spiritually knows that growth is not found in comfort.**
+**Keep your face always toward the sunshine - and shadows will fall behind you.**
 
-Anonymous
+Walt Whitman
