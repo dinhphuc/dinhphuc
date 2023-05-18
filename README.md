@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you really look closely, most overnight successes took a long time.**
+**The real opportunity for success lies within the person and not in the job.**
 
-Steve Jobs
+Zig Ziglar
