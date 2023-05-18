@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep your face always toward the sunshine - and shadows will fall behind you.**
+**There are two ways of spreading light: to be the candle, or the mirror that reflects it.**
 
-Walt Whitman
+Edith Wharton
