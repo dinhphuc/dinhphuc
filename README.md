@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You can if you think you can.**
+**Let your unique awesomeness and positive energy inspire confidence in others.**
 
-George Reeves
+Anonymous
