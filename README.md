@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Mind what you have learned. Save you it can.**
+**To be calm is the highest achievement of the self.**
 
-Yoda
+Zen Proverb
