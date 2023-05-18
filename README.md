@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Let your unique awesomeness and positive energy inspire confidence in others.**
+**Anyone who has grown mentally, physically or spiritually knows that growth is not found in comfort.**
 
 Anonymous
