@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Teachers open the door; you enter by yourself.**
+**Mind what you have learned. Save you it can.**
 
-Chinese Proverb
+Yoda
