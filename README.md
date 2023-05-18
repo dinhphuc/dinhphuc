@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The real opportunity for success lies within the person and not in the job.**
+**Don't miss out on something that could be great just because it could also be difficult.**
 
-Zig Ziglar
+Anonymous
