@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You will find only what you bring in.**
+**Believe and act as if it were impossible to fail.**
 
-Yoda
+Charles Kettering
