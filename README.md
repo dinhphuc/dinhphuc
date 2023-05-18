@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Words should be weighed, not counted.**
+**Always remember that you are absolutely unique. Just like everyone else.**
 
-Yiddish Proverb
+Margaret Mead
