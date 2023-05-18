@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to change the world, start with yourself.**
+**Words should be weighed, not counted.**
 
-Mahatma Gandhi
+Yiddish Proverb
