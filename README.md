@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**My attitude is if you push me towards a weakness, I will turn that weakness into a strength.**
+**Why worry? If you've done the very best you can, worrying won't make it any better.**
 
-Michael Jordan
+Walt Disney
