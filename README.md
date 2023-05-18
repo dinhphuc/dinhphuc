@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**To be calm is the highest achievement of the self.**
+**You can if you think you can.**
 
-Zen Proverb
+George Reeves
