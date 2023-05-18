@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Why worry? If you've done the very best you can, worrying won't make it any better.**
+**When you have exhausted all possibilities, remember this: you haven't.**
 
-Walt Disney
+Thomas Edison
