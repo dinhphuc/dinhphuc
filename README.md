@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You may encounter many defeats, but you must not be defeated.**
+**You will find only what you bring in.**
 
-Maya Angelou
+Yoda
