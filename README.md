@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**To fall in love with yourself is the first secret to happiness.**
+**When the 'why' is clear, the 'how' is easy.**
 
-Robert Morley
+Anonymous
