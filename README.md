@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The very best thing you can do for the whole world is to make the best of yourself.**
+**The journey of a thousand miles begins with one step.**
 
-Anonymous
+Lao Tzu
