@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of success is to do the common thing uncommonly well.**
+**Whatever you hold in your mind on a consistent basis is exactly what you will experience in your life.**
 
-John D. Rockefeller Jr
+Tony Robbins
