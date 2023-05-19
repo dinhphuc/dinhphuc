@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Doubt kills more dreams than failure ever will.**
+**Every next level of your life will demand a different version of you.**
 
-Suzy Kassem
+Anonymous
