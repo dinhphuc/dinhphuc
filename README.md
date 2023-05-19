@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't try to be perfect. Just try to be better than you were yesterday.**
+**Nothing is more beautiful than the smile that has struggled through the tears.**
 
-Anonymous
+Demi Lovato
