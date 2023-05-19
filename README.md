@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Hard work beats talent when talent doesn't work hard.**
+**Focus on being productive instead of busy.**
 
-Tim Notke
+Tim Ferris
