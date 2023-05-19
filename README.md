@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do something today that your future self will thank you for.**
+**Optimism is a happiness magnet. If you stay positive, good things and good people will be drawn to you.**
 
-Anonymous
+Mary Lou Retton
