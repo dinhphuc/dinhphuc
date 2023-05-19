@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Each time I thought I had achieved my life's purpose, I discovered it was only another step in my journey.**
+**It's a good day to be happy.**
 
-Muhammad Ali
+Anonymous
