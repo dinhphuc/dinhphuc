@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The only thing worse than starting something and failing... is not starting something.**
+**Smile in the mirror. Do that every morning and you'll start to see a big difference in your life.**
 
-Seth Godin
+Yoko Ono
