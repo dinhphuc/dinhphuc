@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest glory in living lies not in never falling, but in rising every time we fall.**
+**Success is not final, failure is not fatal: it is the courage to continue that counts.**
 
-Nelson Mandela
+Winston Churchill
