@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The journey of a thousand miles begins with one step.**
+**You cannot shake hands with a clenched fist.**
 
-Lao Tzu
+Indira Gandhi
