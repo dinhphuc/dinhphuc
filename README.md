@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you hold in your mind on a consistent basis is exactly what you will experience in your life.**
+**A truly rich man is one whose children run into his arms when his hands are empty.**
 
-Tony Robbins
+Unknown
