@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Hate. It has caused a lot of problems in this world but has not solved one yet.**
+**Hard work beats talent when talent doesn't work hard.**
 
-Maya Angelou
+Tim Notke
