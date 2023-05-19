@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing is more beautiful than the smile that has struggled through the tears.**
+**If you want to find happiness, find gratitude.**
 
-Demi Lovato
+Steve Maraboli
