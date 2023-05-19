@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Optimism is a happiness magnet. If you stay positive, good things and good people will be drawn to you.**
+**Hate. It has caused a lot of problems in this world but has not solved one yet.**
 
-Mary Lou Retton
+Maya Angelou
