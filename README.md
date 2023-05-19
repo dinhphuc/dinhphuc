@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Every next level of your life will demand a different version of you.**
+**You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously.**
 
-Anonymous
+Steve Maraboli
