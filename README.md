@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Perseverance is the hard work you do after you get tired of doing the hard work you already did.**
+**Train your mind to see the positive in any situation and keep going.**
 
-Newt Gingrich
+Anonymous
