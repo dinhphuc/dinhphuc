@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to find happiness, find gratitude.**
+**The journey of a thousand miles begins with one step.**
 
-Steve Maraboli
+Lao Tzu
