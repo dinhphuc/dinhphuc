@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you stumble, make it part of the dance.**
+**Each time I thought I had achieved my life's purpose, I discovered it was only another step in my journey.**
 
-Anonymous
+Muhammad Ali
