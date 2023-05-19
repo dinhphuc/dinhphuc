@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A smile is the beauty of the soul.**
+**For every minute you are angry you lose sixty seconds of happiness.**
 
-Lailah Gifty
+Ralph Waldo Emerson
