@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot shake hands with a clenched fist.**
+**The secret of success is to do the common thing uncommonly well.**
 
-Indira Gandhi
+John D. Rockefeller Jr
