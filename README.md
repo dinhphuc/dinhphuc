@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your life does not get better by chance, it gets better by change.**
+**Control, control, you must learn control!**
 
-Anonymous
+Yoda
