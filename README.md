@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The journey of a thousand miles begins with one step.**
+**Happens to every guy sometimes this does.**
 
-Lao Tzu
+Yoda
