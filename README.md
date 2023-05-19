@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A truly rich man is one whose children run into his arms when his hands are empty.**
+**There are two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle.**
 
-Unknown
+Albert Einstein
