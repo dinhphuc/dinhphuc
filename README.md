@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Train your mind to see the positive in any situation and keep going.**
+**A smile is the beauty of the soul.**
 
-Anonymous
+Lailah Gifty
