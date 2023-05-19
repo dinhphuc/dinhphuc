@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember that guy that gave up? Neither does anyone else.**
+**Open your eyes and notice the beauty of this wonderful world.**
 
 Anonymous
