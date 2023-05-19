@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Control, control, you must learn control!**
+**The only thing worse than starting something and failing... is not starting something.**
 
-Yoda
+Seth Godin
