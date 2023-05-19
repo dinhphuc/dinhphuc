@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When the 'why' is clear, the 'how' is easy.**
+**Your life does not get better by chance, it gets better by change.**
 
 Anonymous
