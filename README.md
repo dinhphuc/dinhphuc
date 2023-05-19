@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously.**
+**Do something today that your future self will thank you for.**
 
-Steve Maraboli
+Anonymous
