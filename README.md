@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**For every minute you are angry you lose sixty seconds of happiness.**
+**The very best thing you can do for the whole world is to make the best of yourself.**
 
-Ralph Waldo Emerson
+Anonymous
