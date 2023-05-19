@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We should never change our minds about where we are going, but always be curious about different ways to get there.**
+**If you stumble, make it part of the dance.**
 
-Simon Sinek
+Anonymous
