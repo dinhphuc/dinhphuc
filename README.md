@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be so good they can't ignore you.**
+**You don't go up to the top, you grow up to the top.**
 
-Steve Martin
+John C. Maxwell
