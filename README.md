@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Wake up every morning with the thought that something wonderful is about to happen.**
+**It's not who you are that holds you back, it's who you think you're not.**
 
 Anonymous
