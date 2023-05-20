@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It is far better to be alone, than to be in bad company.**
+**You will be exactly as happy as you decide to be.**
 
-George Washington
+Anonymous
