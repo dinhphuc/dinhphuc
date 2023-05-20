@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Easy choices, hard life. Hard choices, easy life.**
+**It is not how much we have, but how much we enjoy, that makes happiness.**
 
-Jerzy Gregorek
+Charles Spurgeon
