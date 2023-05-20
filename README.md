@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Pain has taught me to appreciate the things that don't hurt.**
+**The question isn't who is going to let me; it's who is going to stop me.**
 
-Melissa Tripp
+Ayn Rand
