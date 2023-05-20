@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything will work out in the end. You don't need to know how. You just have to trust that it will.**
+**Only in the darkness can you see the stars.**
 
-Anonymous
+Martin Luther King, Jr.
