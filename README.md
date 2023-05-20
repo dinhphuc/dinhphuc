@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A new command I give you: Love one another.**
+**Change your thoughts and you change your world.**
 
-Jesus Christ
+Norman Vincent Peale
