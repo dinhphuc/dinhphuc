@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I failed my way to success.**
+**Never give up. Great things take time. Be patient.**
 
-Thomas Edison
+Anonymous
