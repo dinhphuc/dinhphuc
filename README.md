@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I didn't come this far to only come this far.**
+**Count your age by friends, not years. Count your life by smiles, not tears.**
 
-Anonymous
+John Lennon
