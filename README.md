@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Even the smallest shift in perspective can bring about the greatest healing.**
+**Relationships are based on four principles: respect, understanding, acceptance and appreciation.**
 
-Joshua Kai
+Mahatma Gandhi
