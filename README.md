@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Relationships are based on four principles: respect, understanding, acceptance and appreciation.**
+**Wake up every morning with the thought that something wonderful is about to happen.**
 
-Mahatma Gandhi
+Anonymous
