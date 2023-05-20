@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Count your age by friends, not years. Count your life by smiles, not tears.**
+**Wake up every morning with the thought that something wonderful is about to happen.**
 
-John Lennon
+Anonymous
