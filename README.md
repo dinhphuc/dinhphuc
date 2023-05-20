@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I learned that courage was not the absence of fear, but the triumph over it.**
+**Everything will work out in the end. You don't need to know how. You just have to trust that it will.**
 
-Nelson Mandela
+Anonymous
