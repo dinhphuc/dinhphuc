@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't go up to the top, you grow up to the top.**
+**I learned that courage was not the absence of fear, but the triumph over it.**
 
-John C. Maxwell
+Nelson Mandela
