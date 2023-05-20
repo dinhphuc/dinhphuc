@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Once you're beat mentally, you might as well not even go to the starting line.**
+**Great works are performed, not by strength, but by perseverance.**
 
-Todd Williams
+Samuel Johnson
