@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are the only one who can limit your greatness.**
+**Once you're beat mentally, you might as well not even go to the starting line.**
 
-Anonymous
+Todd Williams
