@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's a good day to be happy.**
+**Don't just glov, dazzle.**
 
 Anonymous
