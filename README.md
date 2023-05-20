@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You have brains in your head. You have feet in your shoes. You can steer yourself any direction you choose.**
+**It is far better to be alone, than to be in bad company.**
 
-Dr. Seuss
+George Washington
