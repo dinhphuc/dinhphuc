@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The sweat. The time. The devotion. It pays off.**
+**It always seems impossible until it's done.**
 
-Anonymous
+Nelson Mandela
