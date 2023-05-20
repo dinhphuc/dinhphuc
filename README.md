@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Wake up every morning with the thought that something wonderful is about to happen.**
+**I am not a product of my circumstances. I am a product of my decisions.**
 
-Anonymous
+Stephen Covey
