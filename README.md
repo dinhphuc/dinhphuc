@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Motivation is what gets you started. Habit is what keeps you going.**
+**It is not in the stars to hold our destiny but in ourselves.**
 
-Jim Rohn
+William Shakespeare
