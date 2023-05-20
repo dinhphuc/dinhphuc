@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not in the stars to hold our destiny but in ourselves.**
+**You are the only one who can limit your greatness.**
 
-William Shakespeare
+Anonymous
