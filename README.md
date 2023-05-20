@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**In this life we cannot do great things. We can only do small things with great love.**
+**The sweat. The time. The devotion. It pays off.**
 
-Mother Teresa
+Anonymous
