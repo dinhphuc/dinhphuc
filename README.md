@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Pain has taught me to appreciate the things that don't hurt.**
+**Even the smallest shift in perspective can bring about the greatest healing.**
 
-Melissa Tripp
+Joshua Kai
