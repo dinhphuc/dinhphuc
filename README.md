@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be tolerant with others and strict with yourself.**
+**Easy choices, hard life. Hard choices, easy life.**
 
-Marcus Aurelius
+Jerzy Gregorek
