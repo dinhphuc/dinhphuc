@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not how much we have, but how much we enjoy, that makes happiness.**
+**Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no hope at all.**
 
-Charles Spurgeon
+Dale Carnegie
