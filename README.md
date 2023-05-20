@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot fail at being yourself.**
+**In this life we cannot do great things. We can only do small things with great love.**
 
-Wayne Dyer
+Mother Teresa
