@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I am not a product of my circumstances. I am a product of my decisions.**
+**Motivation is what gets you started. Habit is what keeps you going.**
 
-Stephen Covey
+Jim Rohn
