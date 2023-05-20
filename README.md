@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**My attitude is if you push me towards a weakness, I will turn that weakness into a strength.**
+**Pain has taught me to appreciate the things that don't hurt.**
 
-Michael Jordan
+Melissa Tripp
