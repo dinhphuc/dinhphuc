@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Great works are performed, not by strength, but by perseverance.**
+**You cannot fail at being yourself.**
 
-Samuel Johnson
+Wayne Dyer
