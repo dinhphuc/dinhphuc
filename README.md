@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If no mistake have you made, yet losing you are... a different game you should play.**
+**A problem is a chance for you to do your best.**
 
-Yoda
+Duke Ellington
