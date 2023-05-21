@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Push yourself because no one else is going to do it for you.**
+**Tough times don't last. Tough people do.**
 
-Anonymous
+Robert H. Schuller
