@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you decide to do, make sure it makes you happy.**
+**Happiness resides not in possessions, and not in gold, happiness dwells in the soul.**
 
-Anonymous
+Democritus
