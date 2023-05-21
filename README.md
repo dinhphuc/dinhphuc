@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**None of us is as smart as all of us.**
+**I was angry that I had no shoes. Then I met a man who had no feet.**
 
-Ken Blanchard
+Chinese Proverb
