@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I was angry that I had no shoes. Then I met a man who had no feet.**
+**Once you're beat mentally, you might as well not even go to the starting line.**
 
-Chinese Proverb
+Todd Williams
