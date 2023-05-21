@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You have to fight through some bad days to earn the best days of your life.**
+**To handle yourself, use your head; to handle others, use your heart.**
 
-Anonymous
+Eleanor Roosevelt
