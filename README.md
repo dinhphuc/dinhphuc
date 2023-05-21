@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe with all of your heart that you will do what you were made to do.**
+**Don't think about what might go wrong. Think about what might go right.**
 
-Orison Swett Marden
+Anonymous
