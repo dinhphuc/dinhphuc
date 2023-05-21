@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Once you're beat mentally, you might as well not even go to the starting line.**
+**Earn your confidence, nurture it, then help to build it in others.**
 
-Todd Williams
+Alex Malley
