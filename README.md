@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your life does not get better by chance, it gets better by change.**
+**The greatest teacher, failure is.**
 
-Anonymous
+Yoda
