@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Earn your confidence, nurture it, then help to build it in others.**
+**Focus on your goal. Don't look in any direction but ahead.**
 
-Alex Malley
+Anonymous
