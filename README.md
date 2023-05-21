@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Inhale confidence. Exhale doubt.**
+**Your life does not get better by chance, it gets better by change.**
 
 Anonymous
