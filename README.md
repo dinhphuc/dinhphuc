@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Tough times don't last. Tough people do.**
+**You have to fight through some bad days to earn the best days of your life.**
 
-Robert H. Schuller
+Anonymous
