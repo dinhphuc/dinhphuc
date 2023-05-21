@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Work hard in silence. Let success make the noise.**
+**Believe with all of your heart that you will do what you were made to do.**
 
-Anonymous
+Orison Swett Marden
