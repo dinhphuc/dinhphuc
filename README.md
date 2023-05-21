@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Focus on your goal. Don't look in any direction but ahead.**
+**Inhale confidence. Exhale doubt.**
 
 Anonymous
