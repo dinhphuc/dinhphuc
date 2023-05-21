@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**To handle yourself, use your head; to handle others, use your heart.**
+**Work hard in silence. Let success make the noise.**
 
-Eleanor Roosevelt
+Anonymous
