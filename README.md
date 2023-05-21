@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The marathon can humble you.**
+**There are two things a person should never be angry at: what they can help, and what they cannot.**
 
-Bill Rodgers
+Plato
