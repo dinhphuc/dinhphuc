@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Luck is what happens when preparation meets opportunity.**
+**Love isn't something you find. Love is something that finds you.**
 
-Seneca
+Loretta Young
