@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever can happen at any time can happen today.**
+**To be a great champion you must believe you are the best. If you're not, pretend you are.**
 
-Seneca
+Muhammad Ali
