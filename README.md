@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Who begins too much accomplishes little.**
+**Whatever can happen at any time can happen today.**
 
-German Proverb
+Seneca
