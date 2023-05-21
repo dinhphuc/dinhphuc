@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do something today that your future self will thank you for.**
+**The only impossible journey is the one you never begin.**
 
-Anonymous
+Tony Robbins
