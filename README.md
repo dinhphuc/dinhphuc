@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness resides not in possessions, and not in gold, happiness dwells in the soul.**
+**None of us is as smart as all of us.**
 
-Democritus
+Ken Blanchard
