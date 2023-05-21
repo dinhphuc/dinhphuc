@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The only impossible journey is the one you never begin.**
+**Luck is what happens when preparation meets opportunity.**
 
-Tony Robbins
+Seneca
