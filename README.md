@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Change your thoughts and you change your world.**
+**If no mistake have you made, yet losing you are... a different game you should play.**
 
-Norman Vincent Peale
+Yoda
