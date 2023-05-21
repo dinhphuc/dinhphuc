@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest teacher, failure is.**
+**Speed is irrelevant if you are going in the wrong direction.**
 
-Yoda
+Mahatma Gandhi
