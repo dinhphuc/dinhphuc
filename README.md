@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Speed is irrelevant if you are going in the wrong direction.**
+**Do something today that your future self will thank you for.**
 
-Mahatma Gandhi
+Anonymous
