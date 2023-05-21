@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**To be a great champion you must believe you are the best. If you're not, pretend you are.**
+**We can complain because rose bushes have thorns, or rejoice because thorns have roses.**
 
-Muhammad Ali
+Alphonse Karr
