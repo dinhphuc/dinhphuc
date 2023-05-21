@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A problem is a chance for you to do your best.**
+**Whatever you decide to do, make sure it makes you happy.**
 
-Duke Ellington
+Anonymous
