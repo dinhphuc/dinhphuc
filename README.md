@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't think about what might go wrong. Think about what might go right.**
+**Who begins too much accomplishes little.**
 
-Anonymous
+German Proverb
