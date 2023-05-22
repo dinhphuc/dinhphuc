@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Wisdom is knowing when you can't be wise.**
+**Speed is irrelevant if you are going in the wrong direction.**
 
-Muhammad Ali
+Mahatma Gandhi
