@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**With virtue, you can't be completely poor; without it, you can't be truly rich.**
+**There are two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle.**
 
-Chinese Proverb
+Albert Einstein
