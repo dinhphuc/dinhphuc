@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You came into the world to do something; So... do something!**
+**Virtually nothing is impossible in this world if you just put your mind to it and maintain a positive attitude.**
 
-Johnnie Dent Jr
+Lou Holtz
