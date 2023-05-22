@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm not here to be average, I'm here to be awesome.**
+**Your time is limited, so don't waste it living someone else's life.**
 
-Anonymous
+Steve Jobs
