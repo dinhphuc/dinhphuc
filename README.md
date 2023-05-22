@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever the mind can conceive and believe, it can achieve.**
+**Motivation is what gets you started. Habit is what keeps you going.**
 
-Napoleon Hill
+Jim Rohn
