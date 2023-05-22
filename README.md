@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We are made to persist. That's how we find out who we are.**
+**Successful people are not gifted; they just work hard, then succeed on purpose.**
 
-Tobias Wolff
+G.K. Nielson
