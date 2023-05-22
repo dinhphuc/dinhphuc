@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When times are good, be grateful, and when times are tough, be graceful.**
+**Make today so awesome yesterday gets jealous.**
 
-Dustin Poirier
+Anonymous
