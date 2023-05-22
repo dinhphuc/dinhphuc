@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Make today so awesome yesterday gets jealous.**
+**Always find opportunities to make someone smile, and to offer random acts of kindness in everyday life.**
 
-Anonymous
+Roy T. Bennett
