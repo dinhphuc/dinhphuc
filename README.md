@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There's never enough time to do everything, but there's always enough time to do the most important thing.**
+**Winners make a habit of manufacturing their own positive expectations in advance of the event.**
 
-Dean Bokhari
+Brian Tracy
