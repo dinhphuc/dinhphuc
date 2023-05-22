@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do not blame the world. Find a solution.**
+**I'm not here to be average, I'm here to be awesome.**
 
-Sri Chinmoy
+Anonymous
