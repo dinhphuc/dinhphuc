@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The real opportunity for success lies within the person and not in the job.**
+**With virtue, you can't be completely poor; without it, you can't be truly rich.**
 
-Zig Ziglar
+Chinese Proverb
