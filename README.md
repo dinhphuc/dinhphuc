@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be patient, good things are coming your way.**
+**You came into the world to do something; So... do something!**
 
-Anonymous
+Johnnie Dent Jr
