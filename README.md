@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Motivation is what gets you started. Habit is what keeps you going.**
+**We are made to persist. That's how we find out who we are.**
 
-Jim Rohn
+Tobias Wolff
