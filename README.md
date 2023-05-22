@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to change the world, start with yourself.**
+**Don't be afraid of your fears. They're not there to scare you. They're there to let you know that something is worth it.**
 
-Mahatma Gandhi
+C. JoyBell C
