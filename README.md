@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**In the end, it's not the years in your life that count. It's the life in your years.**
+**Some people ask me 'How to be happy' and my answer is always the same: just be happy!**
 
-Abraham Lincoln
+Anonymous
