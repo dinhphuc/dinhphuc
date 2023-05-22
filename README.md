@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Relationships are based on four principles: respect, understanding, acceptance and appreciation.**
+**Working hard for something we don't care about is called stress; working hard for somthing we love is called passion.**
 
-Mahatma Gandhi
+Simon Sinek
