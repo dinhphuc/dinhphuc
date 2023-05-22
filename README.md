@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is about making an impact, not making an income.**
+**You cannot change the direction of the wind - only alter the angle of your sails.**
 
-Kevin Kruse
+Anonymous
