@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Winners make a habit of manufacturing their own positive expectations in advance of the event.**
+**Whatever the mind can conceive and believe, it can achieve.**
 
-Brian Tracy
+Napoleon Hill
