@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you feel like giving up, just look back on how far you are already.**
+**Life is about making an impact, not making an income.**
 
-Anonymous
+Kevin Kruse
