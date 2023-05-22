@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Virtually nothing is impossible in this world if you just put your mind to it and maintain a positive attitude.**
+**The real opportunity for success lies within the person and not in the job.**
 
-Lou Holtz
+Zig Ziglar
