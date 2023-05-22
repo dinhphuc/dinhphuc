@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no cosmetic for beauty like happiness.**
+**Friends show their love in times of trouble, not in happiness.**
 
-Maria Mitchell
+Euripides
