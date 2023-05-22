@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Good, better, best. Never let it rest. Until your good is better and your better is best.**
+**In the end, it's not the years in your life that count. It's the life in your years.**
 
-Tim Duncan
+Abraham Lincoln
