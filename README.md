@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot change the direction of the wind - only alter the angle of your sails.**
+**When times are good, be grateful, and when times are tough, be graceful.**
 
-Anonymous
+Dustin Poirier
