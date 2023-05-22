@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be afraid of your fears. They're not there to scare you. They're there to let you know that something is worth it.**
+**There's never enough time to do everything, but there's always enough time to do the most important thing.**
 
-C. JoyBell C
+Dean Bokhari
