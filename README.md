@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There are two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle.**
+**Relationships are based on four principles: respect, understanding, acceptance and appreciation.**
 
-Albert Einstein
+Mahatma Gandhi
