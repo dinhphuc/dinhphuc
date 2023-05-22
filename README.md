@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Working hard for something we don't care about is called stress; working hard for somthing we love is called passion.**
+**I am thankful for all those difficult people in my life. They have shown me exactly who I do not want to be.**
 
-Simon Sinek
+Anonymous
