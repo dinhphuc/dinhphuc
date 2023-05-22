@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Friends show their love in times of trouble, not in happiness.**
+**Do not blame the world. Find a solution.**
 
-Euripides
+Sri Chinmoy
