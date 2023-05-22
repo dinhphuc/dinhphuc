@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Speed is irrelevant if you are going in the wrong direction.**
+**If you feel like giving up, just look back on how far you are already.**
 
-Mahatma Gandhi
+Anonymous
