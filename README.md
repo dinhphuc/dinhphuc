@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Spend more of your time on what gives you energy and less of your time on what takes it away.**
+**If you want to change the world, start with yourself.**
 
-Anonymous
+Mahatma Gandhi
