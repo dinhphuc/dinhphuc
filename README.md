@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is trying things to see if they work.**
+**Be so good they can't ignore you.**
 
-Ray Bradbury
+Steve Martin
