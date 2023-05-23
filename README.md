@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If it is not right, do not do it, if it is not true, do not say it.**
+**Be gentle with yourself. You're doing the best you can.**
 
-Marcus Aurelius
+Anonymous
