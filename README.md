@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be gentle with yourself. You're doing the best you can.**
+**Failure is simply the opportunity to begin again. Except this time more intelligently.**
 
-Anonymous
+Henry Ford
