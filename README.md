@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Make sure your worst enemy doesn't live between your own two ears.**
+**When we help ourselves, we find moments of happiness. When we help others, we find lasting fulfillment.**
 
-Laird Hamilton
+Simon Sinek
