@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Some people ask me 'How to be happy' and my answer is always the same: just be happy!**
+**If you really look closely, most overnight successes took a long time.**
 
-Anonymous
+Steve Jobs
