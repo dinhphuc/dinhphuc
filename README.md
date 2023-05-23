@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember, most of your stress comes from the way you respond, not the way life is.**
+**Keep going. Everything you need will come to you at the perfect time.**
 
 Anonymous
