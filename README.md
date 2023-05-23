@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When we help ourselves, we find moments of happiness. When we help others, we find lasting fulfillment.**
+**Go fast enough to get there, but slow enough to see.**
 
-Simon Sinek
+Jimmy Buffett
