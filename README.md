@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is not out there, it's in you.**
+**You can't use up creativity. The more you use, the more you have.**
 
-Anonymous
+Maya Angelou
