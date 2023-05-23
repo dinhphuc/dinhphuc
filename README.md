@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**In the end, it's not the years in your life that count. It's the life in your years.**
+**Confidence comes not from always being right but from not fearing to be wrong.**
 
-Abraham Lincoln
+Peter T. Mcintyre
