@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Good judgment comes from experience, and a lot of that comes from bad judgment.**
+**In the end, it's not the years in your life that count. It's the life in your years.**
 
-Will Rogers
+Abraham Lincoln
