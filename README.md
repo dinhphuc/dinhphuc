@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't use up creativity. The more you use, the more you have.**
+**Life is trying things to see if they work.**
 
-Maya Angelou
+Ray Bradbury
