@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be afraid of your fears. They're not there to scare you. They're there to let you know that something is worth it.**
+**Working hard for something we don't care about is called stress; working hard for somthing we love is called passion.**
 
-C. JoyBell C
+Simon Sinek
