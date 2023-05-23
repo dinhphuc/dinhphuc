@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**What you see in yourself is what you see in the world.**
+**Make the most of yourself....for that is all there is of you.**
 
-Afghan Proverb
+Ralph Waldo Emerson
