@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nobody who ever gave their best regretted it.**
+**Make sure your worst enemy doesn't live between your own two ears.**
 
-George Halas
+Laird Hamilton
