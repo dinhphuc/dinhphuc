@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength isn't about how much you can handle before you break. It's about how much you can endure after you've been broken.**
+**I am thankful for all those difficult people in my life. They have shown me exactly who I do not want to be.**
 
 Anonymous
