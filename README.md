@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No man can paddle two canoes at the same time.**
+**It's not about perfect. It's about effort.**
 
-Bantu Proverb
+Jillian Michaels
