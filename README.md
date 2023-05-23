@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure is simply the opportunity to begin again. Except this time more intelligently.**
+**What you see in yourself is what you see in the world.**
 
-Henry Ford
+Afghan Proverb
