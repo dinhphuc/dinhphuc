@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you really look closely, most overnight successes took a long time.**
+**The one who falls and gets up is so much stronger than the one who never fell.**
 
-Steve Jobs
+Anonymous
