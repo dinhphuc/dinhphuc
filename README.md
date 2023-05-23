@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Go fast enough to get there, but slow enough to see.**
+**Good judgment comes from experience, and a lot of that comes from bad judgment.**
 
-Jimmy Buffett
+Will Rogers
