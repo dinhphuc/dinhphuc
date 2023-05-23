@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Better than a thousand days of diligent study is one day with a great teacher.**
+**It's not who you are that holds you back, it's who you think you're not.**
 
-Jim Afremow
+Anonymous
