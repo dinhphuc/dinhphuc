@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Make the most of yourself....for that is all there is of you.**
+**Happiness is not out there, it's in you.**
 
-Ralph Waldo Emerson
+Anonymous
