@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You will never always be motivated. You have to learn to be disciplined.**
+**Don't be afraid of your fears. They're not there to scare you. They're there to let you know that something is worth it.**
 
-Anonymous
+C. JoyBell C
