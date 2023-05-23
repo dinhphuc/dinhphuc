@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**One who moves a mountain begins by carrying away small stones.**
+**Remember, most of your stress comes from the way you respond, not the way life is.**
 
-Confucius
+Anonymous
