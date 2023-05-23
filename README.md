@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence comes not from always being right but from not fearing to be wrong.**
+**If you can't find the opportunities you're looking for...create them.**
 
-Peter T. Mcintyre
+Anonymous
