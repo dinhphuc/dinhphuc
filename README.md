@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If only we'd stop trying to be happy we could have a pretty good time.**
+**If it is not right, do not do it, if it is not true, do not say it.**
 
-Edith Wharton
+Marcus Aurelius
