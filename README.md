@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Working hard for something we don't care about is called stress; working hard for somthing we love is called passion.**
+**Better than a thousand days of diligent study is one day with a great teacher.**
 
-Simon Sinek
+Jim Afremow
