@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest mistake you can make in life is to continually fear that you will make one.**
+**You miss 100% of the shots you don't take.**
 
-Elbert Hubbard
+Wayne Gretzky
