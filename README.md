@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Challenges are what make life interesting and overcoming them is what makes life meaningful.**
+**A truly rich man is one whose children run into his arms when his hands are empty.**
 
-Joshua Marine
+Unknown
