@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.**
+**It's not what you look at that matters, it's what you see.**
 
-Samuel Beckett
+Henry David Thoreau
