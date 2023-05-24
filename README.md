@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how you feel, get up, dress up, show up and never give up.**
+**The greatest mistake you can make in life is to continually fear that you will make one.**
 
-Anonymous
+Elbert Hubbard
