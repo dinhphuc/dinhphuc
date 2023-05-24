@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not what you look at that matters, it's what you see.**
+**The best feeling of happiness is when you're happy because you've made somebody else happy.**
 
-Henry David Thoreau
+Anonymous
