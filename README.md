@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It never gets easier. You just get better.**
+**There are two ways of spreading light: to be the candle, or the mirror that reflects it.**
 
-Jordan Hoechlin
+Edith Wharton
