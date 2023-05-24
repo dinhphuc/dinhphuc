@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The secret of being happy is accepting where you are in life and making the most out of everyday.**
+**Love is not running away or giving up, it is standing and fighting for every moment.**
 
-Anonymous
+M.F. Moonzajer
