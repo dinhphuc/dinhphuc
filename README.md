@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**People who make you feel better about yourself when you're sad are so important.**
+**Happiness is a habit - cultivate it.**
 
-Anonymous
+Elbert Hubbard
