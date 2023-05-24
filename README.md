@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You miss 100% of the shots you don't take.**
+**An inch of gold can't buy an inch of time.**
 
-Wayne Gretzky
+Chinese Proverb
