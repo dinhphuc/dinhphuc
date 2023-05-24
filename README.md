@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There are two ways of spreading light: to be the candle, or the mirror that reflects it.**
+**People who make you feel better about yourself when you're sad are so important.**
 
-Edith Wharton
+Anonymous
