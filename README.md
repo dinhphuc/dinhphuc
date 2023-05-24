@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching.**
+**All things equal, people will do business with, and refer business to, people they know trust and like.**
 
-Satchel Paige
+Bob Burg
