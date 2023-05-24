@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A truly rich man is one whose children run into his arms when his hands are empty.**
+**You've got to be willing to lose everything to gain yourself.**
 
-Unknown
+Iyanla Vanzant
