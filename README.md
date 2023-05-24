@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you stumble, make it part of the dance.**
+**Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.**
 
-Anonymous
+Samuel Beckett
