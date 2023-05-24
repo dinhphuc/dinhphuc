@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There's no shortage of remarkable ideas, what's missing is the will to execute them.**
+**Fear is temporary. Regret is forever.**
 
-Seth Godin
+Anonymous
