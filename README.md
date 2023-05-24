@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't stop until you're proud.**
+**You need to spend time crawling alone through shadows to truly appreciate what it is to stand in the sun.**
 
-Anonymous
+Shaun Hick
