@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You've got to be willing to lose everything to gain yourself.**
+**I failed my way to success.**
 
-Iyanla Vanzant
+Thomas Edison
