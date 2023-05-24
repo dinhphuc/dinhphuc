@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are loved.**
+**If you look the right way, you can see that the whole world is a garden.**
 
-Anonymous
+Frances Hodgson Burnett
