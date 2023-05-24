@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The people who make you smile from just seeing them, those are my favorite people.**
+**Challenges are what make life interesting and overcoming them is what makes life meaningful.**
 
-Koi Fresco
+Joshua Marine
