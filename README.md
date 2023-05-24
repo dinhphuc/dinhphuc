@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Sometimes the bravest thing you can do is to keep going when you really feel like giving up.**
+**Only those who risk going too far, can possibly find out how far one can go.**
 
-Anonymous
+T.S. Elliot
