@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**An inch of gold can't buy an inch of time.**
+**Believe in yourself and you can be anything.**
 
-Chinese Proverb
+Katy Perry
