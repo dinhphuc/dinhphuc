@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**He who lives in harmony with himself lives in harmony with the universe.**
+**Don't stop until you're proud.**
 
-Marcus Aurelius
+Anonymous
