@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe in yourself and you can be anything.**
+**The secret of being happy is accepting where you are in life and making the most out of everyday.**
 
-Katy Perry
+Anonymous
