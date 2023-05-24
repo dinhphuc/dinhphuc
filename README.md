@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**All things equal, people will do business with, and refer business to, people they know trust and like.**
+**Sometimes the bravest thing you can do is to keep going when you really feel like giving up.**
 
-Bob Burg
+Anonymous
