@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Fear is temporary. Regret is forever.**
+**No matter how you feel, get up, dress up, show up and never give up.**
 
 Anonymous
