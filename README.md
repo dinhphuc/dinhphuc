@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you look the right way, you can see that the whole world is a garden.**
+**'Thank you' is the best prayer that anyone could say.**
 
-Frances Hodgson Burnett
+Alice Walker
