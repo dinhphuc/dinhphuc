@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When we point to obstacles we inhibit progress. When we offer solutions we advance.**
+**We can be who we are without the pleasures but we could not be who we are not without the hardships.**
 
-Simon Sinek
+Anonymous
