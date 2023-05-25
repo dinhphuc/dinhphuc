@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Shared joy is a double joy; shared sorrow is half a sorrow.**
+**Life is a magical ride. Enjoy every moment.**
 
-Swedish Proverb
+Anonymous
