@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
+**If you want it, you'll find a way. If you don't, you'll find an excuse.**
 
-Wayne Dyer
+Anonymous
