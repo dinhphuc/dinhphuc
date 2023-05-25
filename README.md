@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We can be who we are without the pleasures but we could not be who we are not without the hardships.**
+**None of us is as smart as all of us.**
 
-Anonymous
+Ken Blanchard
