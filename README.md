@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want it, you'll find a way. If you don't, you'll find an excuse.**
+**There is always something more to learn. Even for a master.**
 
-Anonymous
+Master Oogway
