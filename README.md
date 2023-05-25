@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is a magical ride. Enjoy every moment.**
+**I compete only with myself, and I try to become a better human being. This is my goal.**
 
-Anonymous
+Sri Chinmoy
