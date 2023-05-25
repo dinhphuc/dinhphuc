@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Change your thoughts and you change your world.**
+**Wisdom is knowing when you can't be wise.**
 
-Norman Vincent Peale
+Muhammad Ali
