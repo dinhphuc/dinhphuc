@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**And in the end, the love you take, is equal to the love you make.**
+**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**
 
-The Beatles
+Wayne Dyer
