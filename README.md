@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The only impossible journey is the one you never begin.**
+**You can't blame gravity for falling in love.**
 
-Tony Robbins
+Albert Einstein
