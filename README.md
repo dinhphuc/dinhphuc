@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Wisdom is knowing when you can't be wise.**
+**And in the end, the love you take, is equal to the love you make.**
 
-Muhammad Ali
+The Beatles
