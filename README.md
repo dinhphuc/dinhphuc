@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Just one smile, immensely increases the beauty, of the universe.**
+**Your positive action combined with positive thinking results in success.**
 
-Sri Chinmoy
+Anonymous
