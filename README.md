@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The only impossible journey is the one you never begin.**
+**When we point to obstacles we inhibit progress. When we offer solutions we advance.**
 
-Tony Robbins
+Simon Sinek
