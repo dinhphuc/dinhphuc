@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is a habit - cultivate it.**
+**I'm too grateful to be hateful. I am too blessed to be stressed.**
 
-Elbert Hubbard
+El DeBarge
