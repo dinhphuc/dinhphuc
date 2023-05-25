@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I compete only with myself, and I try to become a better human being. This is my goal.**
+**The critics only made me work harder.**
 
-Sri Chinmoy
+Muhammad Ali
