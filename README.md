@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.**
+**Life is too short to spend it at war with yourself.**
 
-Henry Ford
+Anonymous
