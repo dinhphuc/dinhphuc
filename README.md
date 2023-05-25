@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**None of us is as smart as all of us.**
+**Once I realized the problem was not you but within me. I found inner peace and was able to harness the flow of the universe.**
 
-Ken Blanchard
+Master Shifu
