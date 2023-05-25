@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The critics only made me work harder.**
+**Life's most persistent and urgent question is, 'What are you doing for others?'**
 
-Muhammad Ali
+Martin Luther King
