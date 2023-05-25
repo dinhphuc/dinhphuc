@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Kindness is free. Sprinkle that stuff everywhere.**
+**When you are enthusiastic about what you do, you feel this positive energy. It's very simple.**
 
-Anonymous
+Paulo Coelho
