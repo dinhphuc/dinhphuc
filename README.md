@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Mistakes are proof that you are trying.**
+**Life is a magical ride. Enjoy every moment.**
 
 Anonymous
