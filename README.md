@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Always be yourself and have faith in yourself. Do not go out and look for a successful personality and try to duplicate it.**
+**How long are you going to wait before you demand the best for yourself?**
 
-Bruce Lee
+Epictetus
