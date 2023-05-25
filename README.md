@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't blame gravity for falling in love.**
+**Change your thoughts and you change your world.**
 
-Albert Einstein
+Norman Vincent Peale
