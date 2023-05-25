@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I'm too grateful to be hateful. I am too blessed to be stressed.**
+**Just one smile, immensely increases the beauty, of the universe.**
 
-El DeBarge
+Sri Chinmoy
