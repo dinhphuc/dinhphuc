@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your positive action combined with positive thinking results in success.**
+**When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.**
 
-Anonymous
+Henry Ford
