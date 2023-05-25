@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There is always something more to learn. Even for a master.**
+**The only impossible journey is the one you never begin.**
 
-Master Oogway
+Tony Robbins
