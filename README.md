@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life's most persistent and urgent question is, 'What are you doing for others?'**
+**Kindness is free. Sprinkle that stuff everywhere.**
 
-Martin Luther King
+Anonymous
