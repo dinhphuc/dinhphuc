@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You have to be at your strongest when you're feeling at your weakest.**
+**Learn to be thankful for what you already have, while you pursue all that you want.**
 
-Anonymous
+Jim Rohn
