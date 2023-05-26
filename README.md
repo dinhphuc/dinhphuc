@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A beautiful thing is never perfect.**
+**Even the smallest shift in perspective can bring about the greatest healing.**
 
-Egyptian Proverb
+Joshua Kai
