@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Everywhere you go, take a smile with you.**
+**You have to be at your strongest when you're feeling at your weakest.**
 
-Sasha Azevedo
+Anonymous
