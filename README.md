@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't want to look back and know you could have done better.**
+**Hope never abandons you, you abandon it.**
 
-Anonymous
+George Weinberg
