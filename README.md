@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The sweat. The time. The devotion. It pays off.**
+**A beautiful thing is never perfect.**
 
-Anonymous
+Egyptian Proverb
