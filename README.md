@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Use your smile to change the world; don't let the world change your smile.**
+**If you're going through hell, keep going.**
 
-Chinese proverb
+Winston Churchill
