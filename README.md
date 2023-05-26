@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**To fall in love with yourself is the first secret to happiness.**
+**I attribute my success to this: I never gave or took any excuse.**
 
-Robert Morley
+Florence Nightingale
