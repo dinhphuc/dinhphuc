@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Learn to be thankful for what you already have, while you pursue all that you want.**
+**I would rather die of passion than of boredom.**
 
-Jim Rohn
+Vincent van Gogh
