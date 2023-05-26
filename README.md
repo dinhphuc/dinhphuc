@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no shame in not knowing; the shame lies in not finding out.**
+**The best preparation for tomorrow is doing your best today.**
 
-Russian Proverb
+H. Jackson Brown, Jr
