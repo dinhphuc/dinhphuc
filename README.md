@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There are no mistakes, only lessons. Growth is a process of trial and error.**
+**Failure is simply the opportunity to begin again. Except this time more intelligently.**
 
-Anonymous
+Henry Ford
