@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I would rather die of passion than of boredom.**
+**Plenty of people miss their share of happiness, not because they never found it, but because they didn't stop to enjoy it.**
 
-Vincent van Gogh
+William Feather
