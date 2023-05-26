@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I never dreamed about success. I worked for it.**
+**Use your smile to change the world; don't let the world change your smile.**
 
-Estee Lauder
+Chinese proverb
