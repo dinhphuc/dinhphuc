@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Focus on your goal. Don't look in any direction but ahead.**
+**Be aware as often as possible of the great transformation process you are going through.**
 
 Anonymous
