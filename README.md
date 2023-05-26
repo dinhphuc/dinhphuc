@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Two wrongs don't make a right.**
+**Do what makes you happy.**
 
-English Proverb
+Rachel Ann Nunes
