@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not how much we have, but how much we enjoy, that makes happiness.**
+**Before you score, you first must have a goal.**
 
-Charles Spurgeon
+Greek Proverb
