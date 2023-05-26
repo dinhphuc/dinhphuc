@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no cosmetic for beauty like happiness.**
+**I never dreamed about success. I worked for it.**
 
-Maria Mitchell
+Estee Lauder
