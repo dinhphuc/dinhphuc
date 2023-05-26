@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure is simply the opportunity to begin again. Except this time more intelligently.**
+**Difficulty is what wakes up the genius.**
 
-Henry Ford
+Nassim Nicholas Taleb
