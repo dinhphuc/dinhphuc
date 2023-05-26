@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Feel the force!**
+**There is no shame in not knowing; the shame lies in not finding out.**
 
-Yoda
+Russian Proverb
