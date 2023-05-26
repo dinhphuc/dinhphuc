@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Hope never abandons you, you abandon it.**
+**It is not how much we have, but how much we enjoy, that makes happiness.**
 
-George Weinberg
+Charles Spurgeon
