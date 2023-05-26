@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The best preparation for tomorrow is doing your best today.**
+**Focus on your goal. Don't look in any direction but ahead.**
 
-H. Jackson Brown, Jr
+Anonymous
