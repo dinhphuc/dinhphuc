@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Plenty of people miss their share of happiness, not because they never found it, but because they didn't stop to enjoy it.**
+**The sweat. The time. The devotion. It pays off.**
 
-William Feather
+Anonymous
