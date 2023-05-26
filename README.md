@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Once I realized the problem was not you but within me. I found inner peace and was able to harness the flow of the universe.**
+**There are no mistakes, only lessons. Growth is a process of trial and error.**
 
-Master Shifu
+Anonymous
