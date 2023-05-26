@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The only thing worse than starting something and failing... is not starting something.**
+**Learn to be thankful for what you already have, while you pursue all that you want.**
 
-Seth Godin
+Jim Rohn
