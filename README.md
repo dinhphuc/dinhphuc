@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Difficulty is what wakes up the genius.**
+**Live your life for you.**
 
-Nassim Nicholas Taleb
+Anonymous
