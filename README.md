@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Successful people build each other up. They inspire, motivate, and push each other. Unsuccessful people just hate, blame, and complain.**
+**Do more of what lights you up and makes you feel alive. The world needs your spark.**
 
 Anonymous
