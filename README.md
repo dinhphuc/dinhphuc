@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I attribute my success to this: I never gave or took any excuse.**
+**Everyone wants happiness. No one wants pain. But you can't have a rainbow, without a little rain.**
 
-Florence Nightingale
+Anonymous
