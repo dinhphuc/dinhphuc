@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The reputation of a thousand years may be determined by the conduct of one hour.**
+**To fall in love with yourself is the first secret to happiness.**
 
-Japanese Proverb
+Robert Morley
