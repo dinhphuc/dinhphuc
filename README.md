@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do more of what lights you up and makes you feel alive. The world needs your spark.**
+**The reputation of a thousand years may be determined by the conduct of one hour.**
 
-Anonymous
+Japanese Proverb
