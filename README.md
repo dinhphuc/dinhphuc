@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Live your life for you.**
+**Two wrongs don't make a right.**
 
-Anonymous
+English Proverb
