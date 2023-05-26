@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Before you score, you first must have a goal.**
+**Everywhere you go, take a smile with you.**
 
-Greek Proverb
+Sasha Azevedo
