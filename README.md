@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do what makes you happy.**
+**You don't want to look back and know you could have done better.**
 
-Rachel Ann Nunes
+Anonymous
