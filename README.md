@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Find a place inside where there's joy, and the joy will burn out the pain.**
+**Always believe that something wonderful is about to happen.**
 
-Joseph Campbell
+Anonymous
