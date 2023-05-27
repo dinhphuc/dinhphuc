@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life isn't about getting and having, it's about giving and being.**
+**A hero is an ordinary individual who finds the strength to persevere and endure in spite of overwhelming obstacles.**
 
-Kevin Kruse
+Christopher Reeve
