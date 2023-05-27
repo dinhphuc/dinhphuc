@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Virtually nothing is impossible in this world if you just put your mind to it and maintain a positive attitude.**
+**Often it isn't the mountains ahead that wear you out, it's the little pebble in your shoe.**
 
-Lou Holtz
+Muhammad Ali
