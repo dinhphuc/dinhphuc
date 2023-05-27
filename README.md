@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be humble in your confidence yet courageous in your character.**
+**Think gold and never settle for silver.**
 
-Melanie Koulouris
+Jim Afremow
