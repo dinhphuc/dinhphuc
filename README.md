@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not in the stars to hold our destiny but in ourselves.**
+**All that matters is how you see yourself.**
 
-William Shakespeare
+Conor McGregor
