@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're going through hell, keep going.**
+**If you are not willing to risk the usual, you will have to settle for the ordinary.**
 
-Winston Churchill
+Jim Rohn
