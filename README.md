@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It only takes one person to make you happy and change your life: YOU.**
+**The only person who can pull me down is myself, and I'm not going to let myself pull me down anymore.**
 
-Charles Orlando
+C. JoyBell C
