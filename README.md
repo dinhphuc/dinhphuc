@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do what makes you happy.**
+**Accept yourself, love yourself, and keep moving forward.**
 
-Rachel Ann Nunes
+Roy T. Bennett
