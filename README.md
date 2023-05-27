@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There are two days in the year that we can not do anything, yesterday and tomorrow.**
+**If you can't live longer, live deeper.**
 
-Mahatma Gandhi
+Italian Proverb
