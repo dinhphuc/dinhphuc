@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I survived because the fire inside me burned brighter than the fire around me.**
+**Shared joy is a double joy; shared sorrow is half a sorrow.**
 
-Joshua Graham
+Swedish Proverb
