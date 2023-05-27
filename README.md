@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Shared joy is a double joy; shared sorrow is half a sorrow.**
+**Do what makes you happy.**
 
-Swedish Proverb
+Rachel Ann Nunes
