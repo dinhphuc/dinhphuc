@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Work hard and be nice to people.**
+**Inhale confidence. Exhale doubt.**
 
 Anonymous
