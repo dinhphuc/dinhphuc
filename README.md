@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No man can paddle two canoes at the same time.**
+**Be who you are and say what you feel because those who mind don't matter and those who matter don't mind.**
 
-Bantu Proverb
+Dr. Seuss
