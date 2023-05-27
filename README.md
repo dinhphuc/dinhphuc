@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Think gold and never settle for silver.**
+**Just one smile, immensely increases the beauty, of the universe.**
 
-Jim Afremow
+Sri Chinmoy
