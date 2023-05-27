@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There is nothing permanent except change.**
+**To be willing is only half the task.**
 
-Heraclitus
+Armenian Proverb
