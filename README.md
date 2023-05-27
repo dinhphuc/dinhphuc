@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**For every minute you are angry you lose sixty seconds of happiness.**
+**Always believe that something wonderful is about to happen.**
 
-Ralph Waldo Emerson
+Anonymous
