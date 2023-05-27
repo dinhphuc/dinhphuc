@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**What you choose to focus on expands and grows.**
+**Happy people don't have the best of everything they make the best of everything.**
 
 Anonymous
