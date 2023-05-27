@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Often it isn't the mountains ahead that wear you out, it's the little pebble in your shoe.**
+**Find a place inside where there's joy, and the joy will burn out the pain.**
 
-Muhammad Ali
+Joseph Campbell
