@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Until you're broken, you don't know what you're made of.**
+**Work hard and be nice to people.**
 
 Anonymous
