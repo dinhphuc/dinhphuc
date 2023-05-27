@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is what happens after you have survived all of your disappointments.**
+**There is nothing permanent except change.**
 
-Anonymous
+Heraclitus
