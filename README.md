@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Inhale confidence. Exhale doubt.**
+**Be humble in your confidence yet courageous in your character.**
 
-Anonymous
+Melanie Koulouris
