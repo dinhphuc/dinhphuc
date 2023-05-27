@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happy people don't have the best of everything they make the best of everything.**
+**It is not in the stars to hold our destiny but in ourselves.**
 
-Anonymous
+William Shakespeare
