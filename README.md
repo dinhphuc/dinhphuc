@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Accept yourself, love yourself, and keep moving forward.**
+**It only takes one person to make you happy and change your life: YOU.**
 
-Roy T. Bennett
+Charles Orlando
