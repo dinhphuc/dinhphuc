@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you are not willing to risk the usual, you will have to settle for the ordinary.**
+**Success is what happens after you have survived all of your disappointments.**
 
-Jim Rohn
+Anonymous
