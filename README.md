@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If we feel inwardly strong, we will have no need or desire to speak ill of others.**
+**Life isn't about getting and having, it's about giving and being.**
 
-Sri Chinmoy
+Kevin Kruse
