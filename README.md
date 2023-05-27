@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Always believe that something wonderful is about to happen.**
+**Live for yourself and don't ever stop.**
 
-Anonymous
+John Tew
