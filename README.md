@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The only person who can pull me down is myself, and I'm not going to let myself pull me down anymore.**
+**If we feel inwardly strong, we will have no need or desire to speak ill of others.**
 
-C. JoyBell C
+Sri Chinmoy
