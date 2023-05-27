@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you can't live longer, live deeper.**
+**No man can paddle two canoes at the same time.**
 
-Italian Proverb
+Bantu Proverb
