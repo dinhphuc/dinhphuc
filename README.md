@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Just one smile, immensely increases the beauty, of the universe.**
+**Doing what you like is freedom. Liking what you do is happiness.**
 
-Sri Chinmoy
+Anonymous
