@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**All that matters is how you see yourself.**
+**There are two days in the year that we can not do anything, yesterday and tomorrow.**
 
-Conor McGregor
+Mahatma Gandhi
