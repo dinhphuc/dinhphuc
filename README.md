@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Of all the things you wear, your expression is the most important.**
+**Attachment leads to jealously. The shadow of greed, that is.**
 
-Janet Lane
+Yoda
