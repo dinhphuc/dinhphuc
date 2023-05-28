@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't fear moving slowly forward...fear standing still.**
+**If you want to achieve greatness, stop asking for permission.**
 
-Kathleen Harris
+Anonymous
