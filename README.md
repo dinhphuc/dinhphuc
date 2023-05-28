@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're going through hell, keep going.**
+**Impossible is nothing.**
 
-Winston Churchill
+Muhammad Ali
