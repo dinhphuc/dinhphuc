@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The first place where self-esteem begins its journey is within us.**
+**Blessed are they who see beautiful things in humble places where other people see nothing.**
 
-Stephen Richards
+Camille Pissaro
