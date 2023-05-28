@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You were born to win. But to be a winner, you must plan to win, prepare to win, and expect to win.**
+**You need to spend time crawling alone through shadows to truly appreciate what it is to stand in the sun.**
 
-Zig Ziglar
+Shaun Hick
