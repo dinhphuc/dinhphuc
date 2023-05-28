@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The purpose of our lives is to be happy.**
+**You were born to win. But to be a winner, you must plan to win, prepare to win, and expect to win.**
 
-Dalai Lama
+Zig Ziglar
