@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The best way to gain self-confidence is to do what you are afraid to do.**
+**Of all the things you wear, your expression is the most important.**
 
-Swati Sharma
+Janet Lane
