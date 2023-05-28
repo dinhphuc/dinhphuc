@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Make the most of yourself....for that is all there is of you.**
+**I've failed over and over and over again in my life and that is why I succeed.**
 
-Ralph Waldo Emerson
+Michael Jordan
