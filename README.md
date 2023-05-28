@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**To give anything less than your best is to sacrifice the gift.**
+**The best way to gain self-confidence is to do what you are afraid to do.**
 
-Steve Prefontaine
+Swati Sharma
