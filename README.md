@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**To be a great champion you must believe you are the best. If you're not, pretend you are.**
+**Life is never fair, and perhaps it is a good thing for most of us that it is not.**
 
-Muhammad Ali
+Oscar Wilde
