@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up. You only get one life. Go for it.**
+**The greatest glory in living lies not in never falling, but in rising every time we fall.**
 
-Richard E. Grant
+Nelson Mandela
