@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Look at this tree. I cannot make it blossom when it suits me, nor make it bear fruit before its time.**
+**It's not what you look at that matters, it's what you see.**
 
-Master Oogway
+Henry David Thoreau
