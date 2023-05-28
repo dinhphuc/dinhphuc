@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The trophy is earned in the hours that no one is watching.**
+**To be a great champion you must believe you are the best. If you're not, pretend you are.**
 
-Anonymous
+Muhammad Ali
