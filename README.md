@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to achieve greatness, stop asking for permission.**
+**Acting on a good idea is better than just having a good idea.**
 
-Anonymous
+Robert Half
