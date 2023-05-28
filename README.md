@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You will be exactly as happy as you decide to be.**
+**The trophy is earned in the hours that no one is watching.**
 
 Anonymous
