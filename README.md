@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whoever loves much, performs much, and can accomplish much, and what is done in love is done well.**
+**Go fast enough to get there, but slow enough to see.**
 
-Vincent van Gogh
+Jimmy Buffett
