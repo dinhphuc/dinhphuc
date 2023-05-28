@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**In life, many things don't go according to plan. If you fall, get back up. If you stumble, regain your balance. Never give up.**
+**The question isn't who is going to let me; it's who is going to stop me.**
 
-Anonymous
+Ayn Rand
