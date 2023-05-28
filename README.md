@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is letting go of what you think your life is supposed to look like and enjoying it for everything that it is.**
+**Even if I knew that tomorrow the world would go to pieces, I would still plant my apple tree.**
 
-Mandy Hale
+Martin Luther
