@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You need to spend time crawling alone through shadows to truly appreciate what it is to stand in the sun.**
+**Happy are those who take life day by day, complain very little, and are thankful for the little things in life.**
 
-Shaun Hick
+Anonymous
