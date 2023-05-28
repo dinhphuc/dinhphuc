@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**'Thank you' is the best prayer that anyone could say.**
+**The first place where self-esteem begins its journey is within us.**
 
-Alice Walker
+Stephen Richards
