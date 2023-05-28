@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your path you must decide.**
+**When things are bad, remember: it won't always be this way. Take one day at a time.**
 
-Yoda
+Anonymous
