@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Blessed are they who see beautiful things in humble places where other people see nothing.**
+**To give anything less than your best is to sacrifice the gift.**
 
-Camille Pissaro
+Steve Prefontaine
