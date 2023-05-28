@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Acting on a good idea is better than just having a good idea.**
+**Make the most of yourself....for that is all there is of you.**
 
-Robert Half
+Ralph Waldo Emerson
