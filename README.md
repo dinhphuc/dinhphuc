@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happy are those who take life day by day, complain very little, and are thankful for the little things in life.**
+**Being entirely honest with oneself is a good exercise.**
 
-Anonymous
+Sigmund Freud
