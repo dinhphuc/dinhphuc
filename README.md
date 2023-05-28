@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When things are bad, remember: it won't always be this way. Take one day at a time.**
+**The purpose of our lives is to be happy.**
 
-Anonymous
+Dalai Lama
