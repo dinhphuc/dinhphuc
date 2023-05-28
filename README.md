@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not what you look at that matters, it's what you see.**
+**You've never lived this day before, and you never will again. Make the most of it!**
 
-Henry David Thoreau
+Anonymous
