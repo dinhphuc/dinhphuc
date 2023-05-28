@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success usually comes to those who are too busy to be looking for it.**
+**Never give up. You only get one life. Go for it.**
 
-Henry David Thoreau
+Richard E. Grant
