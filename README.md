@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Impossible is nothing.**
+**Don't fear moving slowly forward...fear standing still.**
 
-Muhammad Ali
+Kathleen Harris
