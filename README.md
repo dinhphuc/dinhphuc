@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Attachment leads to jealously. The shadow of greed, that is.**
+**Whoever loves much, performs much, and can accomplish much, and what is done in love is done well.**
 
-Yoda
+Vincent van Gogh
