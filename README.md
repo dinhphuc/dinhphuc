@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Being entirely honest with oneself is a good exercise.**
+**The difference between the impossible and the possible lies in a person's determination.**
 
-Sigmund Freud
+Tommy Lasorda
