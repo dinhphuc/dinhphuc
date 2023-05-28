@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Go fast enough to get there, but slow enough to see.**
+**One often meets his destiny on the road he takes to avoid it.**
 
-Jimmy Buffett
+Master Oogway
