@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest glory in living lies not in never falling, but in rising every time we fall.**
+**If you're going through hell, keep going.**
 
-Nelson Mandela
+Winston Churchill
