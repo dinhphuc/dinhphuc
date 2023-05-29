@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how you feel, get up, dress up, show up and never give up.**
+**He who sweats more in training bleeds less in war.**
 
-Anonymous
+Greek Proverb
