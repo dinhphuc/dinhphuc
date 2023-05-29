@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**To know the road ahead, ask those coming back.**
+**The more positive thoughts you have, the better you feel, which causes you to have more positive thoughts, then you feel even better.**
 
-Chinese Proverb
+James Borg
