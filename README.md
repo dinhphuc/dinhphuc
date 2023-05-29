@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you depersonalize abrasive behavior and see it as a call for help you become a catalyst for the best kind of change.**
+**Nothing is impossible, the word itself says "I'm possible"!**
 
-Marilyn Suttle
+Audrey Hepburn
