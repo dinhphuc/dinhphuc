@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing is impossible, the word itself says "I'm possible"!**
+**When it gets difficult is often right before you succeed.**
 
-Audrey Hepburn
+Jeffrey Walker
