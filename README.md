@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Surround yourself with only people who are going to lift you higher.**
+**The first duty of love is to listen.**
 
-Oprah
+Paul Tillich
