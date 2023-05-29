@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I failed my way to success.**
+**No matter how old I get, the race remains one of life's most rewarding experiences.**
 
-Thomas Edison
+George Sheehan
