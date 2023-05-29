@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When it gets difficult is often right before you succeed.**
+**It takes but one positive thought when given a chance to survive and thrive to overpower an entire army of negative thoughts.**
 
-Jeffrey Walker
+Robert H. Schuller
