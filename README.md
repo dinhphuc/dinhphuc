@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is an attitude. We either make ourselves miserable, or happy and strong. The amount of work is the same.**
+**There are two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle.**
 
-Francesca Reigler
+Albert Einstein
