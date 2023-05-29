@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be happy. It really annoys negative people.**
+**To know the road ahead, ask those coming back.**
 
-Ricky Gervais
+Chinese Proverb
