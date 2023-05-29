@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**In life, many things do not go according to plan. If you fall, get back up.**
+**The man who views the world at 50 the same as he did at 20 has wasted 30 years of his life.**
 
-Anonymous
+Muhammad Ali
