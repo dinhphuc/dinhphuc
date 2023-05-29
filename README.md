@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be you. Do you. For you.**
+**Push yourself because no one else is going to do it for you.**
 
 Anonymous
