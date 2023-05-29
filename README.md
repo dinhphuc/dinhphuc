@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your task is not to seek for love, but merely to seek and find all the barriers within yourself that you have built against it.**
+**Find a place inside where there's joy, and the joy will burn out the pain.**
 
-Rumi
+Joseph Campbell
