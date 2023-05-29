@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When written in Chinese the word "crisis" is composed of two characters - one represents danger and the other represents opportunity.**
+**Surround yourself with only people who are going to lift you higher.**
 
-John F. Kennedy
+Oprah
