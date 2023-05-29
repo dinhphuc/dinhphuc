@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter how old I get, the race remains one of life's most rewarding experiences.**
+**Find a place inside where there's joy, and the joy will burn out the pain.**
 
-George Sheehan
+Joseph Campbell
