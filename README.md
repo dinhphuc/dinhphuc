@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Until you're broken, you don't know what you're made of.**
+**In life, many things do not go according to plan. If you fall, get back up.**
 
 Anonymous
