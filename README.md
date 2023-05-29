@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Dream big. Start small. But most of all, start.**
+**The people who make you smile from just seeing them, those are my favorite people.**
 
-Simon Sinek
+Koi Fresco
