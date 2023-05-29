@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Before you score, you first must have a goal.**
+**Be happy. It really annoys negative people.**
 
-Greek Proverb
+Ricky Gervais
