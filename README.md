@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Find a place inside where there's joy, and the joy will burn out the pain.**
+**We love life, not because we are used to living but because we are used to loving.**
 
-Joseph Campbell
+Friedrich Nietzsche
