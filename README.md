@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Find a place inside where there's joy, and the joy will burn out the pain.**
+**When we help ourselves, we find moments of happiness. When we help others, we find lasting fulfillment.**
 
-Joseph Campbell
+Simon Sinek
