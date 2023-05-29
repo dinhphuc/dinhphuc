@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Push yourself because no one else is going to do it for you.**
+**No matter how you feel, get up, dress up, show up and never give up.**
 
 Anonymous
