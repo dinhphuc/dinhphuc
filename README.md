@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The first duty of love is to listen.**
+**Blessed are they who see beautiful things in humble places where other people see nothing.**
 
-Paul Tillich
+Camille Pissaro
