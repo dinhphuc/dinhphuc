@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot fail at being yourself.**
+**Never give up. Great things take time. Be patient.**
 
-Wayne Dyer
+Anonymous
