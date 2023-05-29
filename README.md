@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up. Great things take time. Be patient.**
+**We must embrace pain and burn it as fuel for our journey.**
 
-Anonymous
+Kenji Miyazawa
