@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Beauty lies in the eye of the beholder.**
+**Blessed are they who see beautiful things in humble places where other people see nothing.**
 
-English Proverb
+Camille Pissaro
