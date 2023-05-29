@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**He who sweats more in training bleeds less in war.**
+**Happy are those who take life day by day, complain very little, and are thankful for the little things in life.**
 
-Greek Proverb
+Anonymous
