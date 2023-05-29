@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happy are those who take life day by day, complain very little, and are thankful for the little things in life.**
+**Happiness is an attitude. We either make ourselves miserable, or happy and strong. The amount of work is the same.**
 
-Anonymous
+Francesca Reigler
