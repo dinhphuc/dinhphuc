@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The people who make you smile from just seeing them, those are my favorite people.**
+**If you look at what you have in life, you'll always have more. If you look at what you don't have in life, you'll never have enough.**
 
-Koi Fresco
+Oprah Winfrey
