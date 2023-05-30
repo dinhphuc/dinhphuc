@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Only those who risk going too far, can possibly find out how far one can go.**
+**Stop beating yourself up. You are a work in progress which means you get there a little at a time, not all at once.**
 
-T.S. Elliot
+Anonymous
