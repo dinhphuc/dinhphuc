@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Forgiving yourself, believing in yourself and choosing to love yourself are the best gifts one could receive.**
+**Happiness is a habit - cultivate it.**
 
-Brittany Burgunder
+Elbert Hubbard
