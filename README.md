@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Perseverance is the hard work you do after you get tired of doing the hard work you already did.**
+**Forgiving yourself, believing in yourself and choosing to love yourself are the best gifts one could receive.**
 
-Newt Gingrich
+Brittany Burgunder
