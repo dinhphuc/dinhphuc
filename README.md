@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We last longer if we compete against ourselves for the good of others instead of competing against others for the good of ourselves.**
+**Your life does not get better by chance, it gets better by change.**
 
-Simon Sinek
+Anonymous
