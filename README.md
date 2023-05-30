@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't downgrade your dream just to fit your reality. Upgrade your conviction to match your destiny.**
+**Working hard for something we don't care about is called stress; working hard for somthing we love is called passion.**
 
-John Assaraf
+Simon Sinek
