@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't downgrade your dream just to fit your reality. Upgrade your conviction to match your destiny.**
+**There is nothing on this earth more to be prized than true friendship.**
 
-John Assaraf
+Thomas Aquinas
