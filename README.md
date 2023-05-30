@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't just glov, dazzle.**
+**I can and I will. Watch me.**
 
-Anonymous
+Carrie Green
