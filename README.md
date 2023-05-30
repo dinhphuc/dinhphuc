@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I can and I will. Watch me.**
+**No man can paddle two canoes at the same time.**
 
-Carrie Green
+Bantu Proverb
