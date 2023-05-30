@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence is not 'They will like me'. Confidence is 'I'll be fine if they don't'.**
+**Don't downgrade your dream just to fit your reality. Upgrade your conviction to match your destiny.**
 
-Anonymous
+John Assaraf
