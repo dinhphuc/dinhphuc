@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When written in Chinese the word "crisis" is composed of two characters - one represents danger and the other represents opportunity.**
+**Always remember you are braver than you believe, stronger than you seem, and smarter than you think.**
 
-John F. Kennedy
+Christopher Robin
