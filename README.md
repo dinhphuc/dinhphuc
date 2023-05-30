@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It is not in the stars to hold our destiny but in ourselves.**
+**Measure a thousand times and cut once.**
 
-William Shakespeare
+Turkish Proverb
