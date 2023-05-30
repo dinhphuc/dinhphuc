@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't criticize, condemn or complain.**
+**All souls are lost until they are found.**
 
-Dale Carnegie
+Kate McGahan
