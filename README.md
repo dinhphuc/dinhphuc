@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success is the ability to go from one failure to another with no loss of enthusiasm.**
+**It is not in the stars to hold our destiny but in ourselves.**
 
-Winston Churchill
+William Shakespeare
