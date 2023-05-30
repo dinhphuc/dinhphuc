@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Remember the entrance to the sanctuary is inside you.**
+**A truly happy person is one who can enjoy the scenery when they have made a wrong turn.**
 
-Rumi
+Anonymous
