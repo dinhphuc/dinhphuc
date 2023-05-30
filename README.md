@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Stop beating yourself up. You are a work in progress which means you get there a little at a time, not all at once.**
+**We last longer if we compete against ourselves for the good of others instead of competing against others for the good of ourselves.**
 
-Anonymous
+Simon Sinek
