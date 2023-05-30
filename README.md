@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There's nothing that you can do that can't be done.**
+**You are what you believe yourself to be.**
 
-The Beatles
+Paulo Coelho
