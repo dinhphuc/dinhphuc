@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It does not matter how slowly you go as long as you do not stop.**
+**If you stumble, make it part of the dance.**
 
-Confucius
+Anonymous
