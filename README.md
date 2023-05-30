@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is an attitude. We either make ourselves miserable, or happy and strong. The amount of work is the same.**
+**It's not so much that I began to run, but that I continued.**
 
-Francesca Reigler
+Hal Higdon
