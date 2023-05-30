@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Measure a thousand times and cut once.**
+**Don't just glov, dazzle.**
 
-Turkish Proverb
+Anonymous
