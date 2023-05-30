@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you stumble, make it part of the dance.**
+**The only person you are destined to become is the person you decide to be.**
 
-Anonymous
+Ralph Waldo Emerson
