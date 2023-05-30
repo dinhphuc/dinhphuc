@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You yourself, as much as anybody in the entire universe, deserve your love and affection.**
+**There's nothing that you can do that can't be done.**
 
-Buddha
+The Beatles
