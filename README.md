@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Many of life's failures are people who did not realize how close they were to success when they gave up.**
+**There are only two mistakes one can make along the road to truth; not going all the way, and not starting.**
 
-Thomas A. Edison
+Buddha
