@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your life does not get better by chance, it gets better by change.**
+**Confidence is not 'They will like me'. Confidence is 'I'll be fine if they don't'.**
 
 Anonymous
