@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The only person you are destined to become is the person you decide to be.**
+**Remember the entrance to the sanctuary is inside you.**
 
-Ralph Waldo Emerson
+Rumi
