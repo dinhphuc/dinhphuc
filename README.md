@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No man can paddle two canoes at the same time.**
+**Perseverance is the hard work you do after you get tired of doing the hard work you already did.**
 
-Bantu Proverb
+Newt Gingrich
