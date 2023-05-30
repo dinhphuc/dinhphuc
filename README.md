@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Focus on being productive instead of busy.**
+**Only those who risk going too far, can possibly find out how far one can go.**
 
-Tim Ferris
+T.S. Elliot
