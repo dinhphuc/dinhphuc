@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you believe it will work out, you'll see opportunities. If you believe it won't, you will see obstacles.**
+**Success is the ability to go from one failure to another with no loss of enthusiasm.**
 
-Wayne Dyer
+Winston Churchill
