@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**All souls are lost until they are found.**
+**You yourself, as much as anybody in the entire universe, deserve your love and affection.**
 
-Kate McGahan
+Buddha
