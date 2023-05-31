@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I don't care how long it takes me, but I'm going somewhere beautiful.**
+**He who sweats more in training bleeds less in war.**
 
-Anonymous
+Greek Proverb
