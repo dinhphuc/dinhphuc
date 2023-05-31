@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is made of ever so many partings welded together.**
+**You can alter mood by running.**
 
-Charles Dickens
+Tumpal Sihombing
