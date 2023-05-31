@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Feel the force!**
+**Earn your confidence, nurture it, then help to build it in others.**
 
-Yoda
+Alex Malley
