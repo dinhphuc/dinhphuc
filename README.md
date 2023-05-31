@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**He who sweats more in training bleeds less in war.**
+**Strength is the product of struggle. You must do what others don't to achieve what others wont.**
 
-Greek Proverb
+Henry Rollins
