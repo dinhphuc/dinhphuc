@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Self-belief and hard work will always earn you success.**
+**Winners make a habit of manufacturing their own positive expectations in advance of the event.**
 
-Virat Kohli
+Brian Tracy
