@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Winners make a habit of manufacturing their own positive expectations in advance of the event.**
+**A little progress each day adds up to big results.**
 
-Brian Tracy
+Satya Nani
