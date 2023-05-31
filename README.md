@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whoever gossips to you will gossip about you.**
+**Learning never exhausts the mind.**
 
-Spanish Proverb
+Leonardo da Vinci
