@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You can alter mood by running.**
+**Go fast enough to get there, but slow enough to see.**
 
-Tumpal Sihombing
+Jimmy Buffett
