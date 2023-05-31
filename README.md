@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Learning never exhausts the mind.**
+**If you don't love what you do, you won't do it with much conviction or passion.**
 
-Leonardo da Vinci
+Mia Hamm
