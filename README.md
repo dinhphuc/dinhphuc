@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A team is not a group of people that work together. A team is a group of people that trust each other.**
+**Feel the force!**
 
-Simon Sinek
+Yoda
