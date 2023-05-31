@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Start where you are. Use what you have. Do what you can.**
+**There is nothing on this earth more to be prized than true friendship.**
 
-Arthur Ashe
+Thomas Aquinas
