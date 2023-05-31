@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Strength is the product of struggle. You must do what others don't to achieve what others wont.**
+**Whoever gossips to you will gossip about you.**
 
-Henry Rollins
+Spanish Proverb
