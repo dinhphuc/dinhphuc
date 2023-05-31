@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**How long are you going to wait before you demand the best for yourself?**
+**Life is made of ever so many partings welded together.**
 
-Epictetus
+Charles Dickens
