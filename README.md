@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Confidence is not 'They will like me'. Confidence is 'I'll be fine if they don't'.**
+**When the sun rises, it rises for everyone.**
 
-Anonymous
+Cuban Proverb
