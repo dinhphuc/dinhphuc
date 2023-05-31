@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Wherever you go, no matter what the weather, always bring your own sunshine.**
+**Start where you are. Use what you have. Do what you can.**
 
-Anthony J. D'Angelo
+Arthur Ashe
