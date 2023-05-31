@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not so much that I began to run, but that I continued.**
+**Self-belief and hard work will always earn you success.**
 
-Hal Higdon
+Virat Kohli
