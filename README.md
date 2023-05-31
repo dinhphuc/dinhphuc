@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The pain you feel today will be the strength you feel tomorrow.**
+**The trick is to enjoy life. Don't wish away your days, waiting for better ones ahead.**
 
-Anonymous
+Marjorie Pay Hinckley
