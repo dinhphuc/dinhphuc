@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When the sun rises, it rises for everyone.**
+**Don't explain your philosophy. Embody it.**
 
-Cuban Proverb
+Epictetus
