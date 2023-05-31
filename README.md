@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Earn your confidence, nurture it, then help to build it in others.**
+**No marathon gets easier later. The halfway point only marks the end of the beginning.**
 
-Alex Malley
+Joe Henderson
