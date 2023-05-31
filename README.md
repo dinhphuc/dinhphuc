@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you don't love what you do, you won't do it with much conviction or passion.**
+**I attribute my success to this: I never gave or took any excuse.**
 
-Mia Hamm
+Florence Nightingale
