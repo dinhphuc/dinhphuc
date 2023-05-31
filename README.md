@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**In a battle between elephants, the ants get squashed.**
+**Do what makes you happy.**
 
-Thai Proverb
+Rachel Ann Nunes
