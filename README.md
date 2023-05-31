@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Gratitude is the sweetest thing in a seeker's life- in all human life. If there is gratitude in your heart, then there will be tremendous sweetness in your eyes.**
+**In a battle between elephants, the ants get squashed.**
 
-Sri Chinmoy
+Thai Proverb
