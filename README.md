@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I attribute my success to this: I never gave or took any excuse.**
+**The happiness of your life depends upon the quality of your thoughts.**
 
-Florence Nightingale
+Marcus Aurelius
