@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**What you think of yourself is much more important than what people think of you.**
+**Confidence is not 'They will like me'. Confidence is 'I'll be fine if they don't'.**
 
 Anonymous
