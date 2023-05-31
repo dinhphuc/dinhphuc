@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success usually comes to those who are too busy to be looking for it.**
+**I don't care how long it takes me, but I'm going somewhere beautiful.**
 
-Henry David Thoreau
+Anonymous
