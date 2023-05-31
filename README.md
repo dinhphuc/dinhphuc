@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No marathon gets easier later. The halfway point only marks the end of the beginning.**
+**How long are you going to wait before you demand the best for yourself?**
 
-Joe Henderson
+Epictetus
