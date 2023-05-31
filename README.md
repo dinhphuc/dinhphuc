@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Go fast enough to get there, but slow enough to see.**
+**Success usually comes to those who are too busy to be looking for it.**
 
-Jimmy Buffett
+Henry David Thoreau
