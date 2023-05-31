@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do what makes you happy.**
+**The pain you feel today will be the strength you feel tomorrow.**
 
-Rachel Ann Nunes
+Anonymous
