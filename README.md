@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you set your goals ridiculously high and it's a failure, you will fail above everyone else's success.**
+**A team is not a group of people that work together. A team is a group of people that trust each other.**
 
-James Cameron
+Simon Sinek
