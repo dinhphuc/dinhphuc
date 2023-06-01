@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The only person you are destined to become is the person you decide to be.**
+**Love who you are, embrace who you are. Love yourself.**
 
-Ralph Waldo Emerson
+Lilly Singh
