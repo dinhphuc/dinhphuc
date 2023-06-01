@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Another day another blessing.**
+**Running is therapy anyone can afford.**
 
-Anonymous
+Toni Sorenson
