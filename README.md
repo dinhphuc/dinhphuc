@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There's no shortage of remarkable ideas, what's missing is the will to execute them.**
+**Action is the foundational key to all success.**
 
-Seth Godin
+Pablo Picasso
