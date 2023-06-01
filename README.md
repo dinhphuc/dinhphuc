@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Not all those who wander are lost.**
+**Life becomes easier and more beautiful when we can see the good in other people.**
 
-J. R. R. Tolkien
+Roy T. Bennett
