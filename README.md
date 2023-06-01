@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There are two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle.**
+**Don't wait around for other people to be happy for you. Any happiness you get, you've got to make yourself.**
 
-Albert Einstein
+Alice Walker
