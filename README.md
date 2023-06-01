@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is not a problem to be solved, but a reality to be experienced.**
+**I have not failed. I've just found 10,000 ways that won't work.**
 
-Soren Kierkegaard
+Thomas Edison
