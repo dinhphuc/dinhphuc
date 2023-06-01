@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be strong enough to let go and patient enough to wait for what you deserve.**
+**Whenever you see a successful person, you only see the public glories, never the private sacrifices to reach them.**
 
-Anonymous
+Vaibhav Shah
