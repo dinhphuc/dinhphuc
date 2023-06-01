@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A gentle word, a kind look, a good-natured smile can work wonders and accomplish miracles.**
+**Believe in yourself. You are braver than you think, more talented than you know, and capable of more than you imagine.**
 
-William Hazlitt
+Roy T. Bennett
