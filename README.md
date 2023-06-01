@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Nothing builds self-esteem and self-confidence like accomplishment.**
+**Strength does not come from physical capacity. It comes from an indomitable will.**
 
-Thomas Carlyle
+Mahatma Gandhi
