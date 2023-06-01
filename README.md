@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Love cures people - both the ones who give it and the ones who receive it.**
+**May the Force be with you.**
 
-Karl A. Menninger
+Yoda
