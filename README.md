@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Believe in yourself. You are braver than you think, more talented than you know, and capable of more than you imagine.**
+**Whether you think you can or can't, you're right.**
 
-Roy T. Bennett
+Henry Ford
