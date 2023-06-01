@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up. Keep going.**
+**There's no shortage of remarkable ideas, what's missing is the will to execute them.**
 
-Anonymous
+Seth Godin
