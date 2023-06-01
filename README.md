@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Climb the mountains to see lowlands.**
+**Nothing builds self-esteem and self-confidence like accomplishment.**
 
-Chinese Proverb
+Thomas Carlyle
