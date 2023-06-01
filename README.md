@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whenever you see a successful person, you only see the public glories, never the private sacrifices to reach them.**
+**It is during our darkest moments that we must focus to see the light.**
 
-Vaibhav Shah
+Aristotle Onassis
