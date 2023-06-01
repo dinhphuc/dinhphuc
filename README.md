@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The pessimist sees difficulty in every opportunity. The optimist sees opportunity in every difficulty.**
+**Life is not a problem to be solved, but a reality to be experienced.**
 
-Winston Churchill
+Soren Kierkegaard
