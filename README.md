@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life becomes easier and more beautiful when we can see the good in other people.**
+**There is nothing on this earth more to be prized than true friendship.**
 
-Roy T. Bennett
+Thomas Aquinas
