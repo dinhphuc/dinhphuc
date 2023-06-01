@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whether you think you can or can't, you're right.**
+**Love cures people - both the ones who give it and the ones who receive it.**
 
-Henry Ford
+Karl A. Menninger
