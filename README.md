@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It is during our darkest moments that we must focus to see the light.**
+**A gentle word, a kind look, a good-natured smile can work wonders and accomplish miracles.**
 
-Aristotle Onassis
+William Hazlitt
