@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**All you need is love.**
+**Be strong enough to let go and patient enough to wait for what you deserve.**
 
-The Beatles
+Anonymous
