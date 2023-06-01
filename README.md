@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your hardest times often lead to the greatest moments of your life. Keep going. Tough situations build strong people in the end.**
+**The only person you are destined to become is the person you decide to be.**
 
-Roy T. Bennett
+Ralph Waldo Emerson
