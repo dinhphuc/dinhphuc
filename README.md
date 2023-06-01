@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Running is therapy anyone can afford.**
+**We can complain because rose bushes have thorns, or rejoice because thorns have roses.**
 
-Toni Sorenson
+Alphonse Karr
