@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**May the Force be with you.**
+**Not all those who wander are lost.**
 
-Yoda
+J. R. R. Tolkien
