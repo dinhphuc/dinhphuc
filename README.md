@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Love who you are, embrace who you are. Love yourself.**
+**All you need is love.**
 
-Lilly Singh
+The Beatles
