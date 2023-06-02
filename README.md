@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whoever gossips to you will gossip about you.**
+**You miss 100% of the shots you don't take.**
 
-Spanish Proverb
+Wayne Gretzky
