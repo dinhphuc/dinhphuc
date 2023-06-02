@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A hero is an ordinary individual who finds the strength to persevere and endure in spite of overwhelming obstacles.**
+**Wherever you go, go with all your heart.**
 
-Christopher Reeve
+Confucius
