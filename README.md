@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I never dreamed about success. I worked for it.**
+**It always seems impossible until it's done.**
 
-Estee Lauder
+Nelson Mandela
