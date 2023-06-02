@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A warm smile is the universal language of kindness.**
+**Examine what is said, not who speaks.**
 
-William Arthur Ward
+Arab Proverb
