@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are somebody's reason to smile.**
+**You can alter mood by running.**
 
-Anonymous
+Tumpal Sihombing
