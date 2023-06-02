@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you stumble, make it part of the dance.**
+**Hate. It has caused a lot of problems in this world but has not solved one yet.**
 
-Anonymous
+Maya Angelou
