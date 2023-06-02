@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The more positive thoughts you have, the better you feel, which causes you to have more positive thoughts, then you feel even better.**
+**The pain you feel today will be the strength you feel tomorrow.**
 
-James Borg
+Anonymous
