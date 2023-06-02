@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**What we achieve inwardly will change outer reality.**
+**The more positive thoughts you have, the better you feel, which causes you to have more positive thoughts, then you feel even better.**
 
-Plutarch
+James Borg
