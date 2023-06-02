@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be afraid to start over. It's a brand new opportunity to rebuild what you truly want.**
+**If you stumble, make it part of the dance.**
 
 Anonymous
