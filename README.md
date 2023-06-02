@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Live as if you were to die tomorrow. Learn as if you were to live forever.**
+**Focus on being productive instead of busy.**
 
-Mahatma Gandhi
+Tim Ferris
