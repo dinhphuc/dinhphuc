@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The pain you feel today will be the strength you feel tomorrow.**
+**Even the smallest shift in perspective can bring about the greatest healing.**
 
-Anonymous
+Joshua Kai
