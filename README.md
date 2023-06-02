@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest discovery of all time is that a person can change their future by merely changing their attitude.**
+**Pass on what you have learned.**
 
-Oprah Winfrey
+Yoda
