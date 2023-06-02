@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do all things with love.**
+**A warm smile is the universal language of kindness.**
 
-Og Mandino
+William Arthur Ward
