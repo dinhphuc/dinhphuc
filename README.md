@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You miss 100% of the shots you don't take.**
+**As we express our gratitude, we must never forget that the highest appreciation is not to utter words, but to live by them.**
 
-Wayne Gretzky
+John F. Kennedy
