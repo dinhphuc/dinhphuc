@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Even the smallest shift in perspective can bring about the greatest healing.**
+**The greatest discovery of all time is that a person can change their future by merely changing their attitude.**
 
-Joshua Kai
+Oprah Winfrey
