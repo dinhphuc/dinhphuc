@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Pass on what you have learned.**
+**Do all things with love.**
 
-Yoda
+Og Mandino
