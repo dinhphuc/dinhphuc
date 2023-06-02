@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Like the morning sun, you too shall rise and continue to shine.**
+**Whoever loves much, performs much, and can accomplish much, and what is done in love is done well.**
 
-Anonymous
+Vincent van Gogh
