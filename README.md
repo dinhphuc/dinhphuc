@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Examine what is said, not who speaks.**
+**Whoever gossips to you will gossip about you.**
 
-Arab Proverb
+Spanish Proverb
