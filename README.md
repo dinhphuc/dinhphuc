@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You need to spend time crawling alone through shadows to truly appreciate what it is to stand in the sun.**
+**When you want to succeed as bad as you want to breathe, you will be successful.**
 
-Shaun Hick
+Eric Thomas
