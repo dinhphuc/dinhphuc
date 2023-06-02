@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Every day may not be good... but there's something good in every day.**
+**Life is never fair, and perhaps it is a good thing for most of us that it is not.**
 
-Alice Morse Earle
+Oscar Wilde
