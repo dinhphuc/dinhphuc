@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You can alter mood by running.**
+**You need to spend time crawling alone through shadows to truly appreciate what it is to stand in the sun.**
 
-Tumpal Sihombing
+Shaun Hick
