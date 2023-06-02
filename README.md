@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't always control what goes on outside, but you can always control what goes on inside.**
+**Like the morning sun, you too shall rise and continue to shine.**
 
-Wayne Dyer
+Anonymous
