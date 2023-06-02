@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you want to succeed as bad as you want to breathe, you will be successful.**
+**You can't always control what goes on outside, but you can always control what goes on inside.**
 
-Eric Thomas
+Wayne Dyer
