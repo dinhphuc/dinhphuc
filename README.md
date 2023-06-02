@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Spread love everywhere you go. Let no one ever come to you without leaving happier.**
+**Don't be afraid to start over. It's a brand new opportunity to rebuild what you truly want.**
 
-Mother Teresa
+Anonymous
