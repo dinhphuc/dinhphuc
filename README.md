@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Action is the foundational key to all success.**
+**You are somebody's reason to smile.**
 
-Pablo Picasso
+Anonymous
