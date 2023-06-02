@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It always seems impossible until it's done.**
+**Every day may not be good... but there's something good in every day.**
 
-Nelson Mandela
+Alice Morse Earle
