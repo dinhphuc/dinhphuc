@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Everyone wants happiness. No one wants pain. But you can't have a rainbow, without a little rain.**
+**I never dreamed about success. I worked for it.**
 
-Anonymous
+Estee Lauder
