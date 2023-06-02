@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Wherever you go, go with all your heart.**
+**Hardships often prepare ordinary people for an extraordinary destiny.**
 
-Confucius
+C.S. Lewis
