@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Focus on being productive instead of busy.**
+**Spread love everywhere you go. Let no one ever come to you without leaving happier.**
 
-Tim Ferris
+Mother Teresa
