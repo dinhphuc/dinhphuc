@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Hate. It has caused a lot of problems in this world but has not solved one yet.**
+**Be crazy. Be stupid. Be silly. Be weird. Be whatever. Because life is too short to be anything but happy.**
 
-Maya Angelou
+Anonymous
