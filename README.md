@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest.**
+**When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.**
 
-Sri Chinmoy
+Henry Ford
