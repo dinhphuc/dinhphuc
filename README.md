@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life without love is like a tree without blossoms or fruit.**
+**If you're presenting yourself with confidence, you can pull off pretty much anything.**
 
-Khalil Gibran
+Katy Perry
