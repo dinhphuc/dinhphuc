@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The positive thinker sees the invisible, feels the intangible, and achieves the impossible.**
+**The difference between the impossible and the possible lies in a person's determination.**
 
-Winston Churchill
+Tommy Lasorda
