@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The pessimist sees difficulty in every opportunity. The optimist sees opportunity in every difficulty.**
+**Stop beating yourself up. You are a work in progress which means you get there a little at a time, not all at once.**
 
-Winston Churchill
+Anonymous
