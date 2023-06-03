@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Push yourself because no one else is going to do it for you.**
+**I am happy because I choose to be happy no matter what the situation is.**
 
 Anonymous
