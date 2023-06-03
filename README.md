@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Measure a thousand times and cut once.**
+**Victory is always possible for the person who refuses to stop fighting.**
 
-Turkish Proverb
+Napoleon Hill
