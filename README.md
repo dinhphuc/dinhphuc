@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No act of kindness, no matter how small, is ever wasted.**
+**We are all in the gutter, but some of us are looking at the stars.**
 
-Aesop
+Oscar Wilde
