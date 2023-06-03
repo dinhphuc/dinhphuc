@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**All our dreams can come true, if we have the courage to pursue them.**
+**Wanting to be someone else is a waste of the person you are.**
 
-Walt Disney
+Marilyn Monroe
