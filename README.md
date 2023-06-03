@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Stop beating yourself up. You are a work in progress which means you get there a little at a time, not all at once.**
+**It is during our darkest moments that we must focus to see the light.**
 
-Anonymous
+Aristotle Onassis
