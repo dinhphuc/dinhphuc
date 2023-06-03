@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You may be disappointed if you fail, but you are doomed if you don't try.**
+**The only person who can pull me down is myself, and I'm not going to let myself pull me down anymore.**
 
-Beverly Sills
+C. JoyBell C
