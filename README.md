@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's better to light a candle than curse the darkness.**
+**Opportunities don't happen. You create them.**
 
-Chinese Proverb
+Chris Grosser
