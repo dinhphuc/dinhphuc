@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I am happy because I choose to be happy no matter what the situation is.**
+**Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.**
 
-Anonymous
+Napoleon Hill
