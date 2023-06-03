@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A fault confessed is half redressed.**
+**Run when you can, walk if you have to, crawl if you must; just never give up.**
 
-Zulu Proverb
+Dean Karnazes
