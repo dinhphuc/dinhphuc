@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Wanting to be someone else is a waste of the person you are.**
+**Push yourself because no one else is going to do it for you.**
 
-Marilyn Monroe
+Anonymous
