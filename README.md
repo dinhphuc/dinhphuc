@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Keep going. Everything you need will come to you at the perfect time.**
+**For every minute you are angry you lose sixty seconds of happiness.**
 
-Anonymous
+Ralph Waldo Emerson
