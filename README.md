@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.**
+**Smiling doesn't necessarily mean you're happy. Sometimes it just means you're strong.**
 
-Henry Ford
+Anonymous
