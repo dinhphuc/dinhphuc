@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The only person who can pull me down is myself, and I'm not going to let myself pull me down anymore.**
+**Hustle until your haters ask if you are hiring.**
 
-C. JoyBell C
+Anonymous
