@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Smiling doesn't necessarily mean you're happy. Sometimes it just means you're strong.**
+**No act of kindness, no matter how small, is ever wasted.**
 
-Anonymous
+Aesop
