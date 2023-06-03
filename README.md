@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Run when you can, walk if you have to, crawl if you must; just never give up.**
+**The positive thinker sees the invisible, feels the intangible, and achieves the impossible.**
 
-Dean Karnazes
+Winston Churchill
