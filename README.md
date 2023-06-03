@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Victory is always possible for the person who refuses to stop fighting.**
+**A fault confessed is half redressed.**
 
-Napoleon Hill
+Zulu Proverb
