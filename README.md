@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We are all in the gutter, but some of us are looking at the stars.**
+**Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no hope at all.**
 
-Oscar Wilde
+Dale Carnegie
