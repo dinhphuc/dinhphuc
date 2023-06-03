@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I hated every minute of training, but I said, 'Don't quit. Suffer now and live the rest of your life as a champion'.**
+**A truly rich man is one whose children run into his arms when his hands are empty.**
 
-Muhammad Ali
+Unknown
