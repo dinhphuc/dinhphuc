@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between the impossible and the possible lies in a person's determination.**
+**Keep going. Everything you need will come to you at the perfect time.**
 
-Tommy Lasorda
+Anonymous
