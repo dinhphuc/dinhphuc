@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are so much more than what you are going through.**
+**Wanting to be someone else is a waste of the person you are.**
 
-John Tew
+Marilyn Monroe
