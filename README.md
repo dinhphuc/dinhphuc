@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The sun itself is weak when it first rises, and gathers strength and courage as the day gets on.**
+**All our dreams can come true, if we have the courage to pursue them.**
 
-Charles Dickens
+Walt Disney
