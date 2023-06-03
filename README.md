@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you're presenting yourself with confidence, you can pull off pretty much anything.**
+**You may be disappointed if you fail, but you are doomed if you don't try.**
 
-Katy Perry
+Beverly Sills
