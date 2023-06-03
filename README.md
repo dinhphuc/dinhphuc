@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Opportunities don't happen. You create them.**
+**Measure a thousand times and cut once.**
 
-Chris Grosser
+Turkish Proverb
