@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**One day you will wake up and there won't be any time to do the things you've always wanted to do. Do it now.**
+**When you are enthusiastic about what you do, you feel this positive energy. It's very simple.**
 
 Paulo Coelho
