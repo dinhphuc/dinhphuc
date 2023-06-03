@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Hustle until your haters ask if you are hiring.**
+**Anyone who has grown mentally, physically or spiritually knows that growth is not found in comfort.**
 
 Anonymous
