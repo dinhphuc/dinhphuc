@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Love who you are, embrace who you are. Love yourself.**
+**Goals may give focus, but dreams give power.**
 
-Lilly Singh
+John Maxwell
