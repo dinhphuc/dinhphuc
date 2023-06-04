@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If one dream should fall and break into a thousand pieces, never be afraid to pick one of those pieces up and begin again.**
+**In every success story, you will find someone who made a courageous decision.**
 
-Flavia Weedn
+Peter Drucker
