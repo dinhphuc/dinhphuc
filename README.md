@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Goals may give focus, but dreams give power.**
+**It's lack of faith that makes people afraid of meeting challenges, and I believed in myself.**
 
-John Maxwell
+Muhammad Ali
