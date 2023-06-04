@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's important to feel good about yourself. When you feel good about yourself, nothing negative can touch you.**
+**Be so good they can't ignore you.**
 
-Anonymous
+Steve Martin
