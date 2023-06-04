@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you find your why, you find a way to make it happen.**
+**Be so good they can't ignore you.**
 
-Eric Thomas
+Steve Martin
