@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Every accomplishment begins with the decision to try.**
+**When times are good, be grateful, and when times are tough, be graceful.**
 
-Anonymous
+Dustin Poirier
