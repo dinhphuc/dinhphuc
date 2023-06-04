@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Everywhere you go, take a smile with you.**
+**I am not a product of my circumstances. I am a product of my decisions.**
 
-Sasha Azevedo
+Stephen Covey
