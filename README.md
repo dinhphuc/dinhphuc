@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't stop until you're proud.**
+**Luck is what happens when preparation meets opportunity.**
 
-Anonymous
+Seneca
