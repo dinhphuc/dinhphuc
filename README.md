@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When times are good, be grateful, and when times are tough, be graceful.**
+**The difference between stumbling blocks and stepping stones is how you use them.**
 
-Dustin Poirier
+Anonymous
