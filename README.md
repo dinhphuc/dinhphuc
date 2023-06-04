@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The trophy is earned in the hours that no one is watching.**
+**You cannot shake hands with a clenched fist.**
 
-Anonymous
+Indira Gandhi
