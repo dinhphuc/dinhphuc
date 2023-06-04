@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We know what we are, but know not what we may be.**
+**Trust the process of life.**
 
-William Shakespeare
+Anonymous
