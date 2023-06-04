@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The pessimist sees difficulty in every opportunity. The optimist sees opportunity in every difficulty.**
+**Every accomplishment begins with the decision to try.**
 
-Winston Churchill
+Anonymous
