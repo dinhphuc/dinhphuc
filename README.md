@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Luck is what happens when preparation meets opportunity.**
+**Life isn't about waiting for the storm to pass, it's about learning how to dance in the rain.**
 
-Seneca
+Vivian Greene
