@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**In every success story, you will find someone who made a courageous decision.**
+**Laugh. It's free medicine you don't need insurance for.**
 
-Peter Drucker
+Anonymous
