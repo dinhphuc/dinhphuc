@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be so good they can't ignore you.**
+**Hope never abandons you, you abandon it.**
 
-Steve Martin
+George Weinberg
