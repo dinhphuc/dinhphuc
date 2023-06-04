@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you are enthusiastic about what you do, you feel this positive energy. It's very simple.**
+**The difference between stumbling blocks and stepping stones is how you use them.**
 
-Paulo Coelho
+Anonymous
