@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I am not a product of my circumstances. I am a product of my decisions.**
+**Shine like the whole universe is yours.**
 
-Stephen Covey
+Rumi
