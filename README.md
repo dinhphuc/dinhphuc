@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Friends show their love in times of trouble, not in happiness.**
+**Of all the things you wear, your expression is the most important.**
 
-Euripides
+Janet Lane
