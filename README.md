@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be so good they can't ignore you.**
+**You are somebody's reason to smile.**
 
-Steve Martin
+Anonymous
