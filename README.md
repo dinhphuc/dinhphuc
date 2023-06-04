@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't go up to the top, you grow up to the top.**
+**It's hard to beat a person who never gives up.**
 
-John C. Maxwell
+Anonymous
