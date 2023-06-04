@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Smaller in number are we, but larger in mind.**
+**Love who you are, embrace who you are. Love yourself.**
 
-Yoda
+Lilly Singh
