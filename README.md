@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's lack of faith that makes people afraid of meeting challenges, and I believed in myself.**
+**Friends show their love in times of trouble, not in happiness.**
 
-Muhammad Ali
+Euripides
