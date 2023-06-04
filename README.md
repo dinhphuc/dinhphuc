@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be happy. It really annoys negative people.**
+**We know what we are, but know not what we may be.**
 
-Ricky Gervais
+William Shakespeare
