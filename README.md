@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between stumbling blocks and stepping stones is how you use them.**
+**When you find your why, you find a way to make it happen.**
 
-Anonymous
+Eric Thomas
