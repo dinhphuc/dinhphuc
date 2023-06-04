@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between stumbling blocks and stepping stones is how you use them.**
+**Everywhere you go, take a smile with you.**
 
-Anonymous
+Sasha Azevedo
