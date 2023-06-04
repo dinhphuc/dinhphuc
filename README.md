@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot shake hands with a clenched fist.**
+**Don't stop until you're proud.**
 
-Indira Gandhi
+Anonymous
