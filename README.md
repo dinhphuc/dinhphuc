@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Laugh. It's free medicine you don't need insurance for.**
+**The trophy is earned in the hours that no one is watching.**
 
 Anonymous
