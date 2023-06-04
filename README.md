@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Of all the things you wear, your expression is the most important.**
+**Every accomplishment begins with the decision to try.**
 
-Janet Lane
+Anonymous
