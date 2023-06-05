@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Great minds discuss ideas; average minds discuss events; small minds discuss people.**
+**It never gets easier. You just get better.**
 
-Eleanor Roosevelt
+Jordan Hoechlin
