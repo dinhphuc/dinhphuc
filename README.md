@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you are enthusiastic about what you do, you feel this positive energy. It's very simple.**
+**The wise listens to her mind, the foolish to the mob.**
 
-Paulo Coelho
+Chinese Proverb
