@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A hero is an ordinary individual who finds the strength to persevere and endure in spite of overwhelming obstacles.**
+**Good friends are like stars. You don't always see them, but you know they're always there.**
 
-Christopher Reeve
+Christy Evans
