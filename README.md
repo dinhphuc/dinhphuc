@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The wise listens to her mind, the foolish to the mob.**
+**You cannot afford to live in potential for the rest of your life; at some point, you have to unleash the potential and make your move.**
 
-Chinese Proverb
+Eric Thomas
