@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be happy not because everything is good, but because you can see the good side of everything.**
+**Build your own dreams, or someone else will hire you to build theirs.**
 
-Anonymous
+Farrah Gray
