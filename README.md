@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Find a place inside where there's joy, and the joy will burn out the pain.**
+**Always remember that you are absolutely unique. Just like everyone else.**
 
-Joseph Campbell
+Margaret Mead
