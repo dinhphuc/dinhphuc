@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You came into the world to do something; So... do something!**
+**A house is made of bricks and beams. A home is made of hopes and dreams.**
 
-Johnnie Dent Jr
+Anonymous
