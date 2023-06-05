@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's hard to beat a person who never gives up.**
+**The only time you fail is when you fall down and stay down.**
 
-Anonymous
+Stephen Richards
