@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Everything you can imagine is real.**
+**Wherever you go, no matter what the weather, always bring your own sunshine.**
 
-Pablo Picasso
+Anthony J. D'Angelo
