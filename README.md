@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Wherever you go, no matter what the weather, always bring your own sunshine.**
+**When you are enthusiastic about what you do, you feel this positive energy. It's very simple.**
 
-Anthony J. D'Angelo
+Paulo Coelho
