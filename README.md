@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I can and I will. Watch me.**
+**Be gentle with yourself. You're doing the best you can.**
 
-Carrie Green
+Anonymous
