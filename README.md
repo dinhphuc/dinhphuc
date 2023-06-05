@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You are somebody's reason to smile.**
+**I learned that courage was not the absence of fear, but the triumph over it.**
 
-Anonymous
+Nelson Mandela
