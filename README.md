@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I learned that courage was not the absence of fear, but the triumph over it.**
+**Education is the most powerful weapon which you can use to change the world.**
 
 Nelson Mandela
