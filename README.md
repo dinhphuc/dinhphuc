@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be gentle with yourself. You're doing the best you can.**
+**Life without love is like a tree without blossoms or fruit.**
 
-Anonymous
+Khalil Gibran
