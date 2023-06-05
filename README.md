@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life without love is like a tree without blossoms or fruit.**
+**When the sun rises, it rises for everyone.**
 
-Khalil Gibran
+Cuban Proverb
