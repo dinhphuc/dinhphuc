@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be frightened by difficulties.**
+**Don't wait around for other people to be happy for you. Any happiness you get, you've got to make yourself.**
 
-Ryan Holiday
+Alice Walker
