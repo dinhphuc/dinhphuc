@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't wait around for other people to be happy for you. Any happiness you get, you've got to make yourself.**
+**When we are no longer able to change a situation - we are challenged to change ourselves.**
 
-Alice Walker
+Viktor E. Frankl
