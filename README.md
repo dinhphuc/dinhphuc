@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It never gets easier. You just get better.**
+**Everything you can imagine is real.**
 
-Jordan Hoechlin
+Pablo Picasso
