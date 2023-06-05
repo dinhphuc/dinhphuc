@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The only time you fail is when you fall down and stay down.**
+**The biggest adventure you can take is to live the life of your dreams.**
 
-Stephen Richards
+Oprah Winfrey
