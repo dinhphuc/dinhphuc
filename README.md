@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I can and I will. Watch me.**
+**You came into the world to do something; So... do something!**
 
-Carrie Green
+Johnnie Dent Jr
