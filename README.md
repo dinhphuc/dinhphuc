@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**And in the end, the love you take, is equal to the love you make.**
+**I have learned over the years that when one's mind is made up, this diminishes fear.**
 
-The Beatles
+Rosa Parks
