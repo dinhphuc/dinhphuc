@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Build your own dreams, or someone else will hire you to build theirs.**
+**Don't be frightened by difficulties.**
 
-Farrah Gray
+Ryan Holiday
