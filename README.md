@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We don't develop courage by being happy every day. We develop it by surviving difficult times and challenging adversity.**
+**Be happy not because everything is good, but because you can see the good side of everything.**
 
-Barbara De Angelis
+Anonymous
