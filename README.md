@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Work hard and be nice to people.**
+**And in the end, the love you take, is equal to the love you make.**
 
-Anonymous
+The Beatles
