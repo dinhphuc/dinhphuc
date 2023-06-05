@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Always remember that you are absolutely unique. Just like everyone else.**
+**I can and I will. Watch me.**
 
-Margaret Mead
+Carrie Green
