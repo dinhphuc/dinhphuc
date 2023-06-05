@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I have learned over the years that when one's mind is made up, this diminishes fear.**
+**Find a place inside where there's joy, and the joy will burn out the pain.**
 
-Rosa Parks
+Joseph Campbell
