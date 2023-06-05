@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When the sun rises, it rises for everyone.**
+**Be you. Do you. For you.**
 
-Cuban Proverb
+Anonymous
