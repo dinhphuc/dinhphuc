@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Even the smallest shift in perspective can bring about the greatest healing.**
+**In a dark place we find ourselves, and a little more knowledge lights our way.**
 
-Joshua Kai
+Yoda
