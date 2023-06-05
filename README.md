@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Education is the most powerful weapon which you can use to change the world.**
+**A hero is an ordinary individual who finds the strength to persevere and endure in spite of overwhelming obstacles.**
 
-Nelson Mandela
+Christopher Reeve
