@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**One of the best ways of being happy with life is to make someone happy.**
+**Many of the truths that we cling to depend on our point of view.**
 
-Anonymous
+Yoda
