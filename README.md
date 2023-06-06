@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Through challenge and difficulty, we learn to see life differently than before.**
+**May you live all the days of your life.**
 
-Auliq-Ice
+Jonathan Swift
