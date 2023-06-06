@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is the secret to all beauty. There is no beauty without happiness.**
+**Attitude will always define who we are in life.**
 
-Christian Dior
+Mark A. Brennan
