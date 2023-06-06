@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We should never change our minds about where we are going, but always be curious about different ways to get there.**
+**The difference between ordinary and extraordinary is that little extra.**
 
-Simon Sinek
+Jimmy Johnson
