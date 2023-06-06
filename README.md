@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Doing what you like is freedom. Liking what you do is happiness.**
+**One of the best ways of being happy with life is to make someone happy.**
 
 Anonymous
