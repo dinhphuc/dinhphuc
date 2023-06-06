@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A difficult time can be more readily endured if we retain the conviction that our existence holds a purpose - a cause to pursue, a person to love, a goal to achieve.**
+**There are only two options regarding commitment. You're either IN or you're OUT. There is no such thing as life in-between.**
 
-John Maxwell
+Pat Riley
