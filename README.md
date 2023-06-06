@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Hustle until your haters ask if you are hiring.**
+**Happiness is the secret to all beauty. There is no beauty without happiness.**
 
-Anonymous
+Christian Dior
