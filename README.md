@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A beautiful thing is never perfect.**
+**Doing what you like is freedom. Liking what you do is happiness.**
 
-Egyptian Proverb
+Anonymous
