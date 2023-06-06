@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There are only two options regarding commitment. You're either IN or you're OUT. There is no such thing as life in-between.**
+**Spend your life with people who make you smile, laugh, and feel loved.**
 
-Pat Riley
+Roy T. Bennett
