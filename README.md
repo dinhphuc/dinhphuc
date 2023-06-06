@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If only we'd stop trying to be happy we could have a pretty good time.**
+**Hustle until your haters ask if you are hiring.**
 
-Edith Wharton
+Anonymous
