@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between ordinary and extraordinary is that little extra.**
+**Whatever you decide to do, make sure it makes you happy.**
 
-Jimmy Johnson
+Anonymous
