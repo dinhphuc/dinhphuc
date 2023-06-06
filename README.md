@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When we are no longer able to change a situation - we are challenged to change ourselves.**
+**A beautiful thing is never perfect.**
 
-Viktor E. Frankl
+Egyptian Proverb
