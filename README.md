@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Many of the truths that we cling to depend on our point of view.**
+**Successful people are not gifted; they just work hard, then succeed on purpose.**
 
-Yoda
+G.K. Nielson
