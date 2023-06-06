@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't be afraid to give up the good to go for the great.**
+**To be the best, you must be able to handle the worst.**
 
-John D. Rockefeller
+Wilson Kanadi
