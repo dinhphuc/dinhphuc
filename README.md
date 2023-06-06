@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Whatever you decide to do, make sure it makes you happy.**
+**You can't blame gravity for falling in love.**
 
-Anonymous
+Albert Einstein
