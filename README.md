@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**May you live all the days of your life.**
+**Never give up. Keep going.**
 
-Jonathan Swift
+Anonymous
