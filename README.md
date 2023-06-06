@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't gain anything from stressing. Remember that.**
+**Where love reigns, the impossible may be attained.**
 
-Anonymous
+Indian Proverb
