@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If we feel inwardly strong, we will have no need or desire to speak ill of others.**
+**What you think of yourself is much more important than what people think of you.**
 
-Sri Chinmoy
+Anonymous
