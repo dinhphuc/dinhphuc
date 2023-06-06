@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No act of kindness, no matter how small, is ever wasted.**
+**You don't gain anything from stressing. Remember that.**
 
-Aesop
+Anonymous
