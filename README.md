@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Never give up. Keep going.**
+**Hustle until your haters ask if you are hiring.**
 
 Anonymous
