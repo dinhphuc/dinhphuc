@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't blame gravity for falling in love.**
+**Don't be afraid to give up the good to go for the great.**
 
-Albert Einstein
+John D. Rockefeller
