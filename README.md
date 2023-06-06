@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot shake hands with a clenched fist.**
+**It's not whether you get knocked down. It's whether you get back up.**
 
-Indira Gandhi
+Vince Lombardi
