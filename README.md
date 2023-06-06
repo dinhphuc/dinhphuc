@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When we are no longer able to change a situation - we are challenged to change ourselves.**
+**You cannot shake hands with a clenched fist.**
 
-Viktor E. Frankl
+Indira Gandhi
