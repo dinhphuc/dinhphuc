@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**To be the best, you must be able to handle the worst.**
+**If we feel inwardly strong, we will have no need or desire to speak ill of others.**
 
-Wilson Kanadi
+Sri Chinmoy
