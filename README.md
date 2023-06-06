@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Great works are performed, not by strength, but by perseverance.**
+**If opportunity doesn't knock, build a door.**
 
-Samuel Johnson
+Milton Berle
