@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Where love reigns, the impossible may be attained.**
+**A difficult time can be more readily endured if we retain the conviction that our existence holds a purpose - a cause to pursue, a person to love, a goal to achieve.**
 
-Indian Proverb
+John Maxwell
