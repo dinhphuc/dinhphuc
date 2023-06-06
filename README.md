@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be happy. It really annoys negative people.**
+**When we are no longer able to change a situation - we are challenged to change ourselves.**
 
-Ricky Gervais
+Viktor E. Frankl
