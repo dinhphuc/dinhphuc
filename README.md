@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not whether you get knocked down. It's whether you get back up.**
+**If only we'd stop trying to be happy we could have a pretty good time.**
 
-Vince Lombardi
+Edith Wharton
