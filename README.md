@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Enjoy the little things, for one day you may look back and realize they were the big things.**
+**Great works are performed, not by strength, but by perseverance.**
 
-Robert Brault
+Samuel Johnson
