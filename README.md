@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Many of life's failures are people who did not realize how close they were to success when they gave up.**
+**Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.**
 
-Thomas A. Edison
+Samuel Beckett
