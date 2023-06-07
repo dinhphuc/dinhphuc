@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Yesterday is not ours to recover, but tomorrow is ours to win or lose.**
+**It's not so much that I began to run, but that I continued.**
 
-Lyndon B. Johnson
+Hal Higdon
