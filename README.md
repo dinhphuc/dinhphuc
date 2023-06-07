@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you only do what you can do, you will never be more than you are now.**
+**Happiness resides not in possessions, and not in gold, happiness dwells in the soul.**
 
-Master Oogway
+Democritus
