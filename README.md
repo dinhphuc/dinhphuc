@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**What you think of yourself is much more important than what people think of you.**
+**Work hard in silence. Let success make the noise.**
 
 Anonymous
