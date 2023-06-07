@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**More smiling, less worrying. More compassion, less judgment. More blessed, less stressed. More love, less hate.**
+**Whatever you decide to do, make sure it makes you happy.**
 
-Roy T. Bennett
+Anonymous
