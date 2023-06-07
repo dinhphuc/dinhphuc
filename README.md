@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The man who views the world at 50 the same as he did at 20 has wasted 30 years of his life.**
+**Once you're beat mentally, you might as well not even go to the starting line.**
 
-Muhammad Ali
+Todd Williams
