@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence.**
+**Earn your confidence, nurture it, then help to build it in others.**
 
-Helen Keller
+Alex Malley
