@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I alone cannot change the world, but I can cast a stone across the water to create many ripples.**
+**When we are no longer able to change a situation - we are challenged to change ourselves.**
 
-Mother Teresa
+Viktor E. Frankl
