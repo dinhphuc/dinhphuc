@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You must do the thing you think you cannot do.**
+**If it is not right, do not do it, if it is not true, do not say it.**
 
-Eleanor Roosevelt
+Marcus Aurelius
