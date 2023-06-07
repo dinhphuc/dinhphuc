@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The greatest mistake you can make in life is to continually fear that you will make one.**
+**Yesterday is not ours to recover, but tomorrow is ours to win or lose.**
 
-Elbert Hubbard
+Lyndon B. Johnson
