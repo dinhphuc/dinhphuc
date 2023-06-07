@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You're allowed to scream. You're allowed to cry. But don't give up.**
+**More smiling, less worrying. More compassion, less judgment. More blessed, less stressed. More love, less hate.**
 
-Anonymous
+Roy T. Bennett
