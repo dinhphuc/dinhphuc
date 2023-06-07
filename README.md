@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Work hard in silence. Let success make the noise.**
+**Once you choose hope, anything's possible.**
 
-Anonymous
+Christopher Reeve
