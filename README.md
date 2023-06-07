@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I have learned over the years that when one's mind is made up, this diminishes fear.**
+**Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence.**
 
-Rosa Parks
+Helen Keller
