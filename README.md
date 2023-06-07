@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Between stimulus and response, there is a space. In that space is our power to choose our response.**
+**I alone cannot change the world, but I can cast a stone across the water to create many ripples.**
 
-Viktor Frankl
+Mother Teresa
