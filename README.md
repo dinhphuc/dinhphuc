@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When we are no longer able to change a situation - we are challenged to change ourselves.**
+**Let your smile change the world, but don't let the world change your smile.**
 
-Viktor E. Frankl
+Anonymous
