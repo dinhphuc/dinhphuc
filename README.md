@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.**
+**If you only do what you can do, you will never be more than you are now.**
 
-Samuel Beckett
+Master Oogway
