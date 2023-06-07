@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Always remember you are braver than you believe, stronger than you seem, and smarter than you think.**
+**Acting on a good idea is better than just having a good idea.**
 
-Christopher Robin
+Robert Half
