@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness resides not in possessions, and not in gold, happiness dwells in the soul.**
+**Build your own dreams, or someone else will hire you to build theirs.**
 
-Democritus
+Farrah Gray
