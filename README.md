@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Earn your confidence, nurture it, then help to build it in others.**
+**The greatest mistake you can make in life is to continually fear that you will make one.**
 
-Alex Malley
+Elbert Hubbard
