@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Once you choose hope, anything's possible.**
+**Happiness is not out there, it's in you.**
 
-Christopher Reeve
+Anonymous
