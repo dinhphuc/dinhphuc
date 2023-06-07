@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Build your own dreams, or someone else will hire you to build theirs.**
+**Between stimulus and response, there is a space. In that space is our power to choose our response.**
 
-Farrah Gray
+Viktor Frankl
