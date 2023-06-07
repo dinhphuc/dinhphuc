@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Acting on a good idea is better than just having a good idea.**
+**Believe in yourself. You are braver than you think, more talented than you know, and capable of more than you imagine.**
 
-Robert Half
+Roy T. Bennett
