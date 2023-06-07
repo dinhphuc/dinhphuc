@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We are all in the gutter, but some of us are looking at the stars.**
+**I have learned over the years that when one's mind is made up, this diminishes fear.**
 
-Oscar Wilde
+Rosa Parks
