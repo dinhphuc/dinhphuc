@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Make each day your masterpiece.**
+**We are all in the gutter, but some of us are looking at the stars.**
 
-John Wooden
+Oscar Wilde
