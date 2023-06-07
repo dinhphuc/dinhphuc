@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It's not so much that I began to run, but that I continued.**
+**Don't count the days, make the days count.**
 
-Hal Higdon
+Muhammad Ali
