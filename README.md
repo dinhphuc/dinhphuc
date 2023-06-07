@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If it is not right, do not do it, if it is not true, do not say it.**
+**Make each day your masterpiece.**
 
-Marcus Aurelius
+John Wooden
