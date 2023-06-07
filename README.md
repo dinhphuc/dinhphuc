@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't count the days, make the days count.**
+**Happy are those who take life day by day, complain very little, and are thankful for the little things in life.**
 
-Muhammad Ali
+Anonymous
