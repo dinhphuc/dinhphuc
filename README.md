@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Once you're beat mentally, you might as well not even go to the starting line.**
+**Always remember you are braver than you believe, stronger than you seem, and smarter than you think.**
 
-Todd Williams
+Christopher Robin
