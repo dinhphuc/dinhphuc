@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happy are those who take life day by day, complain very little, and are thankful for the little things in life.**
+**The man who views the world at 50 the same as he did at 20 has wasted 30 years of his life.**
 
-Anonymous
+Muhammad Ali
