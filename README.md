@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your true success in life begins only when you make the commitment to become excellent at what you do.**
+**Rock bottom became the solid foundation on which I rebuilt my life.**
 
-Brian Tracy
+J.K. Rowling
