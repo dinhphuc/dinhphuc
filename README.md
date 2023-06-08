@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The vision of a champion is someone who is bent over, drenched in sweat, at the point of exhaustion when no one else is watching.**
+**Smiling doesn't necessarily mean you're happy. Sometimes it just means you're strong.**
 
-Jim Afremow
+Anonymous
