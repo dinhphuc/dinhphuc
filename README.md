@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you want to talk about who made me, you talk to me. Who made me is ME.**
+**Until you're broken, you don't know what you're made of.**
 
-Muhammad Ali
+Anonymous
