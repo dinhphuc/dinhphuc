@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I have found that if you love life, life will love you back.**
+**No matter how you feel, get up, dress up, show up and never give up.**
 
-Arthur Rubinstein
+Anonymous
