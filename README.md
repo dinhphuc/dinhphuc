@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Every accomplishment begins with the decision to try.**
+**A little progress each day adds up to big results.**
 
-Anonymous
+Satya Nani
