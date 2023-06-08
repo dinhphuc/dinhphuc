@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When it rains look for rainbows.**
+**A positive attitude causes a chain reaction of positive thoughts, events, and outcomes. It is a catalyst, and it sparks extraordinary results.**
 
-Oscar Wilde
+Wade Boggs
