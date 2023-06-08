@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you stop chasing the wrong things you give the right things a chance to catch you.**
+**When you are enthusiastic about what you do, you feel this positive energy. It's very simple.**
 
-Anonymous
+Paulo Coelho
