@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When it comes to success, there are no shortcuts.**
+**Rock bottom became the solid foundation on which I rebuilt my life.**
 
-Bo Bennett
+J.K. Rowling
