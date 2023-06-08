@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Rock bottom became the solid foundation on which I rebuilt my life.**
+**The positive thinker sees the invisible, feels the intangible, and achieves the impossible.**
 
-J.K. Rowling
+Winston Churchill
