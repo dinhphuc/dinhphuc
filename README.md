@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is an attitude. We either make ourselves miserable, or happy and strong. The amount of work is the same.**
+**Smiling doesn't necessarily mean you're happy. Sometimes it just means you're strong.**
 
-Francesca Reigler
+Anonymous
