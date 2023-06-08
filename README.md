@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your life does not get better by chance, it gets better by change.**
+**Whatever you decide to do, make sure it makes you happy.**
 
 Anonymous
