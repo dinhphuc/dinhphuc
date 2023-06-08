@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A little progress each day adds up to big results.**
+**Life is a succession of lessons which must be lived to be understood.**
 
-Satya Nani
+Ralph Waldo Emerson
