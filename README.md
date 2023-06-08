@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Until you're broken, you don't know what you're made of.**
+**When it comes to success, there are no shortcuts.**
 
-Anonymous
+Bo Bennett
