@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Rock bottom became the solid foundation on which I rebuilt my life.**
+**Do something today that your future self will thank you for.**
 
-J.K. Rowling
+Anonymous
