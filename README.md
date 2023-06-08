@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be happy, be yourself, and if others don't like it, let them be. Your happiness is a choice. Life isn't about pleasing everybody, so do you.**
+**What you're thinking is what you're becoming.**
 
-Anonymous
+Muhammad Ali
