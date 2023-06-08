@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Maybe it won't work out. But maybe seeing if it does will be the best adventure ever.**
+**How long are you going to wait before you demand the best for yourself?**
 
-Anonymous
+Epictetus
