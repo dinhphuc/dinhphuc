@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**In life, many things don't go according to plan. If you fall, get back up. If you stumble, regain your balance. Never give up.**
+**Winning isn't everything, but wanting to win is.**
 
-Anonymous
+Vince Lombardi
