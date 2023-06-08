@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Even the smallest shift in perspective can bring about the greatest healing.**
+**Self-control is strength. Right thought is mastery. Calmness is power.**
 
-Joshua Kai
+James Allen
