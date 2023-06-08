@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The future belongs to those who believe in the beauty of their dreams.**
+**Even the smallest shift in perspective can bring about the greatest healing.**
 
-Franklin D. Roosevelt
+Joshua Kai
