@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**How long are you going to wait before you demand the best for yourself?**
+**Wherever you go, no matter what the weather, always bring your own sunshine.**
 
-Epictetus
+Anthony J. D'Angelo
