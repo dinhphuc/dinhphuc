@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Self-control is strength. Right thought is mastery. Calmness is power.**
+**The biggest adventure you can take is to live the life of your dreams.**
 
-James Allen
+Oprah Winfrey
