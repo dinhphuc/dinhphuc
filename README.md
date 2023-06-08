@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be who you are and say what you feel because those who mind don't matter and those who matter don't mind.**
+**I have found that if you love life, life will love you back.**
 
-Dr. Seuss
+Arthur Rubinstein
