@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A positive attitude causes a chain reaction of positive thoughts, events, and outcomes. It is a catalyst, and it sparks extraordinary results.**
+**The vision of a champion is someone who is bent over, drenched in sweat, at the point of exhaustion when no one else is watching.**
 
-Wade Boggs
+Jim Afremow
