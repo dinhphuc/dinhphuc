@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When you are enthusiastic about what you do, you feel this positive energy. It's very simple.**
+**Maybe it won't work out. But maybe seeing if it does will be the best adventure ever.**
 
-Paulo Coelho
+Anonymous
