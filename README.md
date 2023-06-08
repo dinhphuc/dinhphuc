@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Winning isn't everything, but wanting to win is.**
+**When you stop chasing the wrong things you give the right things a chance to catch you.**
 
-Vince Lombardi
+Anonymous
