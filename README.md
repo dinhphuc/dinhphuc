@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Wherever you go, no matter what the weather, always bring your own sunshine.**
+**Your life does not get better by chance, it gets better by change.**
 
-Anthony J. D'Angelo
+Anonymous
