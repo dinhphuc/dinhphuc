@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Plenty of people miss their share of happiness, not because they never found it, but because they didn't stop to enjoy it.**
+**The future belongs to those who believe in the beauty of their dreams.**
 
-William Feather
+Franklin D. Roosevelt
