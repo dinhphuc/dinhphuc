@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do something today that your future self will thank you for.**
+**A teacher is better than two books.**
 
-Anonymous
+German Proverb
