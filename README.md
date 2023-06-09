@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A problem is a chance for you to do your best.**
+**Start where you are. Use what you have. Do what you can.**
 
-Duke Ellington
+Arthur Ashe
