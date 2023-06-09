@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Working hard for something we don't care about is called stress; working hard for somthing we love is called passion.**
+**Life isn't about finding yourself. Life is about creating yourself.**
 
-Simon Sinek
+George Bernard Shaw
