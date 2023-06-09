@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A dream does not become reality through magic; it takes sweat, determination and hard work.**
+**You can either complain about it or grind, I choose to grind.**
 
-Colin Powell
+Kyle Vidrine
