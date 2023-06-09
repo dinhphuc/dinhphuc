@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Age is whatever you think it is. You are as old as you think you are.**
+**We last longer if we compete against ourselves for the good of others instead of competing against others for the good of ourselves.**
 
-Muhammad Ali
+Simon Sinek
