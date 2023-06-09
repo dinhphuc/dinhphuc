@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is a succession of lessons which must be lived to be understood.**
+**Skill is only developed by hours and hours of work.**
 
-Ralph Waldo Emerson
+Usain Bolt
