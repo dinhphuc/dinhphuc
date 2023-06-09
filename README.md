@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Try to be a rainbow in someone's cloud.**
+**Winners make a habit of manufacturing their own positive expectations in advance of the event.**
 
-Maya Angelou
+Brian Tracy
