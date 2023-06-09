@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**In a battle between elephants, the ants get squashed.**
+**A fault confessed is half redressed.**
 
-Thai Proverb
+Zulu Proverb
