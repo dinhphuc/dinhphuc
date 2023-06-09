@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Your relationship with yourself sets the tone for every other relationship you have.**
+**You can alter mood by running.**
 
-Anonymous
+Tumpal Sihombing
