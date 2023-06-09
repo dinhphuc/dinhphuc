@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The supreme art of war is to subdue the enemy without fighting.**
+**In a battle between elephants, the ants get squashed.**
 
-Sun Tzu
+Thai Proverb
