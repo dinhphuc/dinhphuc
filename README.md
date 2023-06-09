@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There is no shame in not knowing; the shame lies in not finding out.**
+**Do what makes you happy.**
 
-Russian Proverb
+Rachel Ann Nunes
