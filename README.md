@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There are two days in the year that we can not do anything, yesterday and tomorrow.**
+**Working hard for something we don't care about is called stress; working hard for somthing we love is called passion.**
 
-Mahatma Gandhi
+Simon Sinek
