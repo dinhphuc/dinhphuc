@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.**
+**The supreme art of war is to subdue the enemy without fighting.**
 
-Samuel Beckett
+Sun Tzu
