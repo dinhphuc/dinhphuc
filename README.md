@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do what makes you happy.**
+**Forgiving yourself, believing in yourself and choosing to love yourself are the best gifts one could receive.**
 
-Rachel Ann Nunes
+Brittany Burgunder
