@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Victory is always possible for the person who refuses to stop fighting.**
+**A dream does not become reality through magic; it takes sweat, determination and hard work.**
 
-Napoleon Hill
+Colin Powell
