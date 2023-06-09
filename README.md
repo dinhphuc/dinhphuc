@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We last longer if we compete against ourselves for the good of others instead of competing against others for the good of ourselves.**
+**The real opportunity for success lies within the person and not in the job.**
 
-Simon Sinek
+Zig Ziglar
