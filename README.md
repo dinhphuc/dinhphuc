@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The real opportunity for success lies within the person and not in the job.**
+**Life is trying things to see if they work.**
 
-Zig Ziglar
+Ray Bradbury
