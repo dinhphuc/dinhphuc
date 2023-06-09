@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Winners make a habit of manufacturing their own positive expectations in advance of the event.**
+**Don't cry because it's over, smile because it happened.**
 
-Brian Tracy
+Dr. Seuss
