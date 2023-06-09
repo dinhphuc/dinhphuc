@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**What you choose to focus on expands and grows.**
+**Try to be a rainbow in someone's cloud.**
 
-Anonymous
+Maya Angelou
