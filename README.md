@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You can alter mood by running.**
+**What you choose to focus on expands and grows.**
 
-Tumpal Sihombing
+Anonymous
