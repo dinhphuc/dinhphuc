@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you go to a donkey's house, don't talk about ears.**
+**A problem is a chance for you to do your best.**
 
-Jamaican Proverb
+Duke Ellington
