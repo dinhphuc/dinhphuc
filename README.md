@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You can either complain about it or grind, I choose to grind.**
+**Your relationship with yourself sets the tone for every other relationship you have.**
 
-Kyle Vidrine
+Anonymous
