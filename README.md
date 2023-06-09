@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is trying things to see if they work.**
+**Once you choose hope, anything's possible.**
 
-Ray Bradbury
+Christopher Reeve
