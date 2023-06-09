@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Once you choose hope, anything's possible.**
+**Good friends are like stars. You don't always see them, but you know they're always there.**
 
-Christopher Reeve
+Christy Evans
