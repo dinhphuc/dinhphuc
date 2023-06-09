@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't cry because it's over, smile because it happened.**
+**There are two days in the year that we can not do anything, yesterday and tomorrow.**
 
-Dr. Seuss
+Mahatma Gandhi
