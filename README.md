@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**When I hear somebody sigh, 'Life is hard,' I am always tempted to ask, 'Compared to what?'**
+**There is no shame in not knowing; the shame lies in not finding out.**
 
-Sydney Harris
+Russian Proverb
