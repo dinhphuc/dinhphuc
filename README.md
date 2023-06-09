@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The difference between stumbling blocks and stepping stones is how you use them.**
+**Live life to the fullest and focus on the positive.**
 
-Anonymous
+Matt Cameron
