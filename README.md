@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be aware as often as possible of the great transformation process you are going through.**
+**A dream does not become reality through magic; it takes sweat, determination and hard work.**
 
-Anonymous
+Colin Powell
