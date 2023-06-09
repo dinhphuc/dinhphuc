@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I alone cannot change the world, but I can cast a stone across the water to create many ripples.**
+**If you want to lift yourself up, lift up someone else.**
 
-Mother Teresa
+Booker T. Washington
