@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Skill is only developed by hours and hours of work.**
+**Be aware as often as possible of the great transformation process you are going through.**
 
-Usain Bolt
+Anonymous
