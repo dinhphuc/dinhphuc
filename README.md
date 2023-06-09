@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A fault confessed is half redressed.**
+**The difference between stumbling blocks and stepping stones is how you use them.**
 
-Zulu Proverb
+Anonymous
