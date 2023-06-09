@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A dream does not become reality through magic; it takes sweat, determination and hard work.**
+**Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.**
 
-Colin Powell
+Samuel Beckett
