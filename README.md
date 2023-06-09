@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Forgiving yourself, believing in yourself and choosing to love yourself are the best gifts one could receive.**
+**If you go to a donkey's house, don't talk about ears.**
 
-Brittany Burgunder
+Jamaican Proverb
