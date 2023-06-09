@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you want to lift yourself up, lift up someone else.**
+**When I hear somebody sigh, 'Life is hard,' I am always tempted to ask, 'Compared to what?'**
 
-Booker T. Washington
+Sydney Harris
