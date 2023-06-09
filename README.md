@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**There is nothing permanent except change.**
+**Age is whatever you think it is. You are as old as you think you are.**
 
-Heraclitus
+Muhammad Ali
