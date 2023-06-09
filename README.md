@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Live life to the fullest and focus on the positive.**
+**At the end of the day, you can either focus on what's tearing you apart, or you can focus on what's keeping you together.**
 
-Matt Cameron
+Anonymous
