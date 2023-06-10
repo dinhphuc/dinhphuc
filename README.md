@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The more grateful I am, the more beauty I see.**
+**You have to be at your strongest when you're feeling at your weakest.**
 
-Mary Davis
+Anonymous
