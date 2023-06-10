@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be humble in your confidence yet courageous in your character.**
+**It is only possible to live happily ever after on a daily basis.**
 
-Melanie Koulouris
+Anonymous
