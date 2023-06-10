@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Choosing to be positive and having a grateful attitude is going to determine how you're going to live your life.**
+**Starting today, I need to forget what's gone. Appreciate what still remains and look forward to what's coming next.**
 
-Joel Osteen
+Anonymous
