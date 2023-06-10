@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Passion first and everything will fall into place.**
+**Great minds discuss ideas; average minds discuss events; small minds discuss people.**
 
-Holly Holm
+Eleanor Roosevelt
