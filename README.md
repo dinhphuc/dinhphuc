@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Yesterday is not ours to recover, but tomorrow is ours to win or lose.**
+**Decide what matters most to you and do it.**
 
-Lyndon B. Johnson
+Anonymous
