@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Starting today, I need to forget what's gone. Appreciate what still remains and look forward to what's coming next.**
+**I learned that courage was not the absence of fear, but the triumph over it.**
 
-Anonymous
+Nelson Mandela
