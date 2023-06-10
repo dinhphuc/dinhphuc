@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Enjoy the little things, for one day you may look back and realize they were the big things.**
+**A gentle word, a kind look, a good-natured smile can work wonders and accomplish miracles.**
 
-Robert Brault
+William Hazlitt
