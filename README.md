@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Love who you are, embrace who you are. Love yourself.**
+**Don't miss out on something that could be great just because it could also be difficult.**
 
-Lilly Singh
+Anonymous
