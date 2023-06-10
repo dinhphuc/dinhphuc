@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is when what you think, what you say, and what you do are in harmony.**
+**Love who you are, embrace who you are. Love yourself.**
 
-Mahatma Gandhi
+Lilly Singh
