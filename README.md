@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Decide what matters most to you and do it.**
+**Cheerfulness is the very flower of health.**
 
 Anonymous
