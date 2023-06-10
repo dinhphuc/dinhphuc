@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Be crazy. Be stupid. Be silly. Be weird. Be whatever. Because life is too short to be anything but happy.**
+**Yesterday is not ours to recover, but tomorrow is ours to win or lose.**
 
-Anonymous
+Lyndon B. Johnson
