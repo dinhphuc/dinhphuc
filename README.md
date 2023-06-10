@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**100% commitment is easier than 98% commitment.**
+**Failure is simply the opportunity to begin again. Except this time more intelligently.**
 
-Harvard Business School
+Henry Ford
