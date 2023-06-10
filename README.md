@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Time is an illusion, there is only the now.**
+**Enjoy the little things, for one day you may look back and realize they were the big things.**
 
-Master Shifu
+Robert Brault
