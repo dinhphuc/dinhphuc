@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You have to be at your strongest when you're feeling at your weakest.**
+**You can't always control what goes on outside, but you can always control what goes on inside.**
 
-Anonymous
+Wayne Dyer
