@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We don't develop courage by being happy every day. We develop it by surviving difficult times and challenging adversity.**
+**Practice 'gratitude' each day and your relationship will last forever.**
 
-Barbara De Angelis
+Anonymous
