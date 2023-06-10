@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You may be disappointed if you fail, but you are doomed if you don't try.**
+**The people who make you smile from just seeing them, those are my favorite people.**
 
-Beverly Sills
+Koi Fresco
