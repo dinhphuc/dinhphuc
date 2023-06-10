@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**One small positive thought in the morning can change your whole day.**
+**The more grateful I am, the more beauty I see.**
 
-Anonymous
+Mary Davis
