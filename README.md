@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't miss out on something that could be great just because it could also be difficult.**
+**If you only do what you can do, you will never be more than you are now.**
 
-Anonymous
+Master Oogway
