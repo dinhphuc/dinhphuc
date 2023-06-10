@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Tension is who you think you should be. Relaxation is who you are.**
+**Don't cry because it's over, smile because it happened.**
 
-Jim Afremow
+Dr. Seuss
