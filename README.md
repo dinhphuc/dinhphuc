@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**If you only do what you can do, you will never be more than you are now.**
+**Choosing to be positive and having a grateful attitude is going to determine how you're going to live your life.**
 
-Master Oogway
+Joel Osteen
