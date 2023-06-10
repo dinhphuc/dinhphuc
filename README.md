@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**It is only possible to live happily ever after on a daily basis.**
+**Blessings sometimes show up in unrecognizable disguises.**
 
-Anonymous
+Janette Oke
