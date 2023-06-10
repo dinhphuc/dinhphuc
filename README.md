@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Happiness is not something ready made. It comes from your own actions.**
+**Choosing to be positive and having a grateful attitude is going to determine how you're going to live your life.**
 
-Dalai Lama
+Joel Osteen
