@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You cannot shake hands with a clenched fist.**
+**The people who make you smile from just seeing them, those are my favorite people.**
 
-Indira Gandhi
+Koi Fresco
