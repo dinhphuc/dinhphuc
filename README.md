@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**I learned that courage was not the absence of fear, but the triumph over it.**
+**Don't think about what might go wrong. Think about what might go right.**
 
-Nelson Mandela
+Anonymous
