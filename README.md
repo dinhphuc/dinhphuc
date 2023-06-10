@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Cheerfulness is the very flower of health.**
+**Don't stop until you're proud.**
 
 Anonymous
