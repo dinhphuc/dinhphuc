@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Failure is simply the opportunity to begin again. Except this time more intelligently.**
+**Passion first and everything will fall into place.**
 
-Henry Ford
+Holly Holm
