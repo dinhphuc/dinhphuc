@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't stop until you're proud.**
+**Happiness is when what you think, what you say, and what you do are in harmony.**
 
-Anonymous
+Mahatma Gandhi
