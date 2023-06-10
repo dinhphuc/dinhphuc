@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**A gentle word, a kind look, a good-natured smile can work wonders and accomplish miracles.**
+**Tension is who you think you should be. Relaxation is who you are.**
 
-William Hazlitt
+Jim Afremow
