@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You can't always control what goes on outside, but you can always control what goes on inside.**
+**You are the only one who can limit your greatness.**
 
-Wayne Dyer
+Anonymous
