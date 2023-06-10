@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Don't cry because it's over, smile because it happened.**
+**We don't develop courage by being happy every day. We develop it by surviving difficult times and challenging adversity.**
 
-Dr. Seuss
+Barbara De Angelis
