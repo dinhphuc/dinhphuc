@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Great minds discuss ideas; average minds discuss events; small minds discuss people.**
+**You cannot shake hands with a clenched fist.**
 
-Eleanor Roosevelt
+Indira Gandhi
