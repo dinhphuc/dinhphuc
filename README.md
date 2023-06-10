@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The people who make you smile from just seeing them, those are my favorite people.**
+**One small positive thought in the morning can change your whole day.**
 
-Koi Fresco
+Anonymous
