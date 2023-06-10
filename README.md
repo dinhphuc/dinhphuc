@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Blessings sometimes show up in unrecognizable disguises.**
+**You may be disappointed if you fail, but you are doomed if you don't try.**
 
-Janette Oke
+Beverly Sills
