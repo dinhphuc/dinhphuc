@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The only easy day was yesterday.**
+**No matter where you are on your journey, that's exactly where you need to be.**
 
-Navy Seals
+Oprah Winfrey
