@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Our greatest weakness lies in giving up. The most certain way to succeed is to just try one more time.**
+**Do something today that your future self will thank you for.**
 
-Thomas Edison
+Anonymous
