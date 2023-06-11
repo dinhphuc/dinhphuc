@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**No matter where you are on your journey, that's exactly where you need to be.**
+**Success usually comes to those who are too busy to be looking for it.**
 
-Oprah Winfrey
+Henry David Thoreau
