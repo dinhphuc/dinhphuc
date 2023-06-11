@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Success usually comes to those who are too busy to be looking for it.**
+**Time is an illusion, there is only the now.**
 
-Henry David Thoreau
+Master Shifu
