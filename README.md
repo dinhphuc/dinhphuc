@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is what happens when you're busy making other plans.**
+**We can complain because rose bushes have thorns, or rejoice because thorns have roses.**
 
-John Lennon
+Alphonse Karr
