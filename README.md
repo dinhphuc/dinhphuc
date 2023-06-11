@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Why worry? If you've done the very best you can, worrying won't make it any better.**
+**The best way to make your dreams come true is to wake up.**
 
-Walt Disney
+Paul Valery
