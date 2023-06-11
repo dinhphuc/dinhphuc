@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**The best way to make your dreams come true is to wake up.**
+**Enjoy the little things, for one day you may look back and realize they were the big things.**
 
-Paul Valery
+Robert Brault
