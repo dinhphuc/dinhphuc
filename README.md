@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Run when you can, walk if you have to, crawl if you must; just never give up.**
+**Our greatest weakness lies in giving up. The most certain way to succeed is to just try one more time.**
 
-Dean Karnazes
+Thomas Edison
