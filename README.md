@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Life is made of ever so many partings welded together.**
+**We last longer if we compete against ourselves for the good of others instead of competing against others for the good of ourselves.**
 
-Charles Dickens
+Simon Sinek
