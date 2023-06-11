@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Time is an illusion, there is only the now.**
+**Why worry? If you've done the very best you can, worrying won't make it any better.**
 
-Master Shifu
+Walt Disney
