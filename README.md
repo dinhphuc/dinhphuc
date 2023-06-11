@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**We last longer if we compete against ourselves for the good of others instead of competing against others for the good of ourselves.**
+**Our greatest weakness lies in giving up. The most certain way to succeed is to just try one more time.**
 
-Simon Sinek
+Thomas Edison
