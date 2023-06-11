@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**As long as we have hope, we have direction, the energy to move, and the map to move by.**
+**The good life is a process, not a state of being. It is a direction, not a destination.**
 
-Lao Tzu
+Carl Rogers
