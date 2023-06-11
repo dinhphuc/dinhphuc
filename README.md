@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**You don't want to look back and know you could have done better.**
+**Life is made of ever so many partings welded together.**
 
-Anonymous
+Charles Dickens
