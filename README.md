@@ -17,6 +17,6 @@
 
 ------------
 ⚡ Quote: 
-**Do something today that your future self will thank you for.**
+**As long as we have hope, we have direction, the energy to move, and the map to move by.**
 
-Anonymous
+Lao Tzu
