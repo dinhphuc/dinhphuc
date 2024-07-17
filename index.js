@@ -5,7 +5,7 @@ const getQuote = async () => {
   try {
     const { data } = await axios.get("https://api.goprogram.ai/inspiration");
     const quote = data.quote;
-    const author = data.author;
+    const author = data.author ;
 
     console.log("new quote", `"${quote}"`);
 
